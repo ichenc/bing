@@ -47,14 +47,14 @@ public class HtmlConstant {
         private static final String VAR_IMG_CARD_DATE = "${img_card_date}";
         private static final String IMG_CARD = ""
             + "<div class=\"w3-third \" style=\"position: relative;\">\n"
-            +"  <img class=\"smallImg\" src=\"${img_card_url_small}\"  style=\"width:95%;\" />"
-            + " <img class=\"bigImg\" src=\"${img_card_url_big}\" style=\"width:95%\" onload=\"imgloading(this)\">\n"
+            +"  <img class=\"smallImg\" src=\"${img_card_url_small}\"  style=\"width:95%;\" loading=\"lazy\" decoding=\"async\" />"
+            + " <img class=\"bigImg\" src=\"${img_card_url_big}\" style=\"width:95%\" loading=\"lazy\" decoding=\"async\" onload=\"imgloading(this)\">\n"
             + " <p>${img_card_date} <a href=\"${img_card_url}\" target=\"_blank\">Download 4k</a> </p>\n"
             + "</div>";
 
         public static String getImgCard(String imgUrl,String date) {
-            String result = IMG_CARD.replace(VAR_IMG_CARD_URL_SMALL, Images.withParams(imgUrl, "pid=hp&w=50"));
-            result = result.replace(VAR_IMG_CARD_URL_BIG, Images.withParams(imgUrl, "pid=hp&w=384&h=216&rs=1&c=4"));
+            String result = IMG_CARD.replace(VAR_IMG_CARD_URL_SMALL, Images.thumb(imgUrl, "pid=hp&w=50"));
+            result = result.replace(VAR_IMG_CARD_URL_BIG, Images.thumb(imgUrl, "pid=hp&w=384&h=216&rs=1&c=4"));
             result = result.replace(VAR_IMG_CARD_URL, imgUrl);
             return result.replace(VAR_IMG_CARD_DATE, date);
         }

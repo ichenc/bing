@@ -18,22 +18,27 @@ TIMEOUT = 10
 
 
 def probe(url, timeout=TIMEOUT):
-    """探测地址是否可用，返回 ((status, length), status_code)。"""
+    """探测地址是否可用，返回 ((status, size), status_code)。
+
+    用 Range GET 只取 1 字节：206 说明服务端支持 Range 且图片存在；
+    若服务端忽略 Range 直接 200，则用实际下载到的体积判断。
+    """
     try:
         out = subprocess.run(
             ["curl", "-s", "-o", "/dev/null", "-r", "0-0", "-m", str(timeout),
-             "-w", "%{http_code}", url],
+             "-w", "%{http_code} %{size_download}", url],
             capture_output=True, timeout=timeout + 10)
-        code = int((out.stdout or b"0").decode().strip() or 0)
+        parts = (out.stdout or b"").decode().split()
+        code = int(parts[0]) if parts else 0
+        size = int(parts[1]) if len(parts) > 1 else 0
     except Exception:
         return (0, 0), 0
-    # 206 = Range 命中真实图片；早期用 HEAD 探测留下的缓存是 200 + Content-Length
-    return (code, MIN_BYTES if code == 206 else 0), code
+    return (code, size), code
 
 
 def ok(res):
-    status, length = res
-    return status == 206 or (status == 200 and length >= MIN_BYTES)
+    status, size = res
+    return status == 206 or (status == 200 and size >= MIN_BYTES)
 
 
 def image_id(url):
@@ -72,7 +77,12 @@ def main():
     print("共 %d 条，待探测 %d 条（已缓存 %d）" % (len(entries), len(todo), len(entries) - len(todo)))
 
     def work(e):
-        res, _ = probe(e[2])
+        # 并发探测偶发空响应，失败重试两次再下结论
+        res = (0, 0)
+        for _ in range(3):
+            res, _ = probe(e[2])
+            if ok(res):
+                break
         return e[2], res
 
     if todo:

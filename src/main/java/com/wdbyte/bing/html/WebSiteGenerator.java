@@ -87,8 +87,8 @@ public class WebSiteGenerator {
      * @return
      */
     public String replaceHead(String html, Images images, String month) {
-        html = html.replace(Head.HEAD_IMG_SMALL, Images.withParams(images.getUrl(), "pid=hp&w=100"));
-        html = html.replace(Head.HEAD_IMG_BIG, Images.withParams(images.getUrl(), "pid=hp&w=2000"));
+        html = html.replace(Head.HEAD_IMG_SMALL, Images.thumb(images.getUrl(), "pid=hp&w=100"));
+        html = html.replace(Head.HEAD_IMG_BIG, Images.thumb(images.getUrl(), "pid=hp&w=2000"));
         html = html.replace(Head.HEAD_IMG_DESC, images.getDesc());
         if (month != null) {
             html = html.replace(Head.HEAD_TITLE, "Bing Wallpaper(" + month + ")");

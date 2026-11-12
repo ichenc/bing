@@ -21,9 +21,10 @@ SIDEBAR_MENU = ('<a href="{url}" onclick="w3_close()" class="w3-bar-item w3-butt
 MONTH_TAG = ('<a class="w3-tag w3-button w3-hover-green {color} w3-margin-bottom" href="{url}">'
              '{title}</a>')
 IMG_CARD = ('<div class="w3-third " style="position: relative;">\n'
-            '  <img class="smallImg" src="{small}"  style="width:95%;" />'
+            '  <img class="smallImg" src="{small}"  style="width:95%;" '
+            'loading="lazy" decoding="async" />'
             ' <img class="bigImg" src="{big}" style="width:95%" '
-            'onload="imgloading(this)">\n'
+            'loading="lazy" decoding="async" onload="imgloading(this)">\n'
             ' <p>{date} <a href="{url}" target="_blank">Download 4k</a> </p>\n'
             '</div>')
 
@@ -59,6 +60,17 @@ def to_markdown(entries):
 def with_params(url, params):
     """拼查询参数：地址本身已带 ? 时用 &，否则用 ?（cdn.bimg.cc 这类静态路径必须用 ?）。"""
     return url + ("&" if "?" in url else "?") + params
+
+
+def src_pair(url, small_params, big_params):
+    """返回 (小图地址, 大图地址)。
+
+    cdn.bimg.cc 的静态地址不识别 w/h 参数，缩放无效，大小图会是同一张 1080P；
+    此时两处复用同一地址，浏览器只下载一次。
+    """
+    if url.startswith("https://cdn.bimg.cc/"):
+        return url, url
+    return with_params(url, small_params), with_params(url, big_params)
 
 
 def _large_block(item):
@@ -139,8 +151,9 @@ def html_page(entries, mm, month=None):
     with open(TEMPLATE, encoding="utf-8") as f:
         html = f.read()
     head_item = entries[0] if month is None else mm[month][0]
-    html = html.replace("${head_img_small}", with_params(head_item[2], "pid=hp&w=100"))
-    html = html.replace("${head_img_big}", with_params(head_item[2], "pid=hp&w=2000"))
+    head_small, head_big = src_pair(head_item[2], "pid=hp&w=100", "pid=hp&w=2000")
+    html = html.replace("${head_img_small}", head_small)
+    html = html.replace("${head_img_big}", head_big)
     html = html.replace("${head_img_desc}", head_item[1])
     html = html.replace("${head_title}", "Bing Wallpaper" if month is None else "Bing Wallpaper(%s)" % month)
 
@@ -151,11 +164,11 @@ def html_page(entries, mm, month=None):
     html = html.replace("${sidabar}", "".join(sidebar))
 
     cards = entries[:30] if month is None else mm[month]
-    html = html.replace("${img_card_list}",
-                        "".join(IMG_CARD.format(url=u, date=d,
-                                                small=with_params(u, "pid=hp&w=50"),
-                                                big=with_params(u, THUMB_PARAMS))
-                                for d, _, u in cards))
+    parts = []
+    for d, _, u in cards:
+        small, big = src_pair(u, "pid=hp&w=50", THUMB_PARAMS)
+        parts.append(IMG_CARD.format(url=u, date=d, small=small, big=big))
+    html = html.replace("${img_card_list}", "".join(parts))
 
     tags = []
     for m in mm:

@@ -19,6 +19,21 @@ public class Images {
         return url + (url.indexOf('?') >= 0 ? "&" : "?") + params;
     }
 
+    /**
+     * cdn.bimg.cc 的静态存档地址不识别 w/h 参数，缩放无效，
+     * 大小图会是同一张 1080P，此时复用同一地址避免重复下载。
+     */
+    public static boolean isStaticCdn(String url) {
+        return url != null && url.startsWith("https://cdn.bimg.cc/");
+    }
+
+    /**
+     * 返回缩放后的小图地址；静态 CDN 无法缩放时原样返回。
+     */
+    public static String thumb(String url, String params) {
+        return isStaticCdn(url) ? url : withParams(url, params);
+    }
+
     @Override
     public String toString() {
         String smallUrl = withParams(url, "pid=hp&w=384&h=216&rs=1&c=4");
