@@ -1,0 +1,44 @@
+# This workflow will build a Java project with Maven
+# For more information see: https://help.github.com/actions/language-and-framework-guides/building-and-testing-java-with-maven
+
+name: Java CI with Maven
+
+on:
+  schedule:
+    # * is a special character in YAML so you have to quote this string
+    - cron:  '0 9 * * *'
+
+jobs:
+  build:
+
+    runs-on: ubuntu-latest
+
+    steps:
+    - uses: actions/checkout@v2
+    - name: Set up JDK 1.8
+      uses: actions/setup-java@v1
+      with:
+        java-version: 1.8
+    - name: Build with Maven
+      run: mvn -B package --file pom.xml
+    - name: Run Java Application
+      run: java -jar target/bing-wallpaper-jar-with-dependencies.jar
+    - name: Commit files
+      run: |
+         # 注意：这里的邮箱必须是仓库主账号（ichenc）的 GitHub noreply 地址。
+         # 之前用的是 ichenc@163.com，该邮箱绑定在小号 AiChenX 上，
+         # 于是每天的自动提交都被记到小号名下，小号才会出现在 Contributors 里。
+         git config --local user.email "101170810+ichenc@users.noreply.github.com"
+         git config --local user.name "ichenc"
+         git pull
+         git add README.md
+         git add bing-wallpaper.md
+         git add picture/*
+         git add docs/*
+         git commit -m "update readme.md" || echo "nothing to commit"
+    - name: Push changes
+      # secrets.MY_GIT_TOKEN 需要换成主账号 ichenc 的 PAT（小号的 token 推上去同样会算到小号头上）
+      uses:  ad-m/github-push-action@master
+      with:
+         github_token: ${{ secrets.MY_GIT_TOKEN }}
+         branch: main
