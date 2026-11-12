@@ -5017,477 +5017,477 @@
 
 2020-01-01 | [一只在暴风雪中蜷缩着的雪兔，英国苏格兰凯恩戈姆斯山脉 (© Lyle McCalmont/Getty Images)](https://cn.bing.com/th?id=OHR.SnowHare_ZH-CN9767012872_UHD.jpg) 
 
-2019-12-31 | [巴克南的跨年烟火，德国 (© Lilly/Alamy)](https://cn.bing.com/th?id=OHR.NYEBacknang_ZH-CN6301969939_UHD.jpg) 
+2019-12-31 | [巴克南的跨年烟火，德国 (© Lilly/Alamy)](https://cn.bing.com/th?id=OHR.NYEBacknang_ZH-CN6301969939_1920x1080.jpg) 
 
-2019-12-30 | [图森附近索诺兰沙漠中的巨柱仙人掌，亚利桑那州 (© Jack Dykinga/Minden Pictures)](https://cn.bing.com/th?id=OHR.SkyIslands_ZH-CN6229467399_UHD.jpg) 
+2019-12-30 | [图森附近索诺兰沙漠中的巨柱仙人掌，亚利桑那州 (© Jack Dykinga/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.SkyIslands_ZH-CN6229467399_1920x1080.jpg) 
 
-2019-12-29 | [贝希特斯加登县拉姆绍小镇上结冰的Hintersee湖和滑冰者，德国巴伐利亚 (© Jana Mänz/Westend61/Offset)](https://cn.bing.com/th?id=OHR.RamsauHinterseeEislauf_ZH-CN9685733410_UHD.jpg) 
+2019-12-29 | [贝希特斯加登县拉姆绍小镇上结冰的Hintersee湖和滑冰者，德国巴伐利亚 (© Jana Mänz/Westend61/Offset)](https://cdn.bimg.cc/bing/2019/OHR.RamsauHinterseeEislauf_ZH-CN9685733410_1920x1080.jpg) 
 
-2019-12-28 | [凯利温泉中的黑嘴天鹅，怀俄明州 (© DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.TrumpeterWinter_ZH-CN6156392179_UHD.jpg) 
+2019-12-28 | [凯利温泉中的黑嘴天鹅，怀俄明州 (© DEEPOL by plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.TrumpeterWinter_ZH-CN6156392179_1920x1080.jpg) 
 
-2019-12-27 | [池塘边结了冰的树 (© Philippe Sainte-Laudy Photography/Getty Images)](https://cn.bing.com/th?id=OHR.FrozenTree_ZH-CN9591258534_UHD.jpg) 
+2019-12-27 | [池塘边结了冰的树 (© Philippe Sainte-Laudy Photography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.FrozenTree_ZH-CN9591258534_1920x1080.jpg) 
 
-2019-12-26 | [位于Praprotno村之上的圣托马斯教堂 (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.SloveniaAlps_ZH-CN6052706424_UHD.jpg) 
+2019-12-26 | [位于Praprotno村之上的圣托马斯教堂 (© Guy Edwardes/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.SloveniaAlps_ZH-CN6052706424_1920x1080.jpg) 
 
-2019-12-25 | [华沙的圣诞节日装饰，波兰 (© David Milsen/Alamy)](https://cn.bing.com/th?id=OHR.WarsawXmas_ZH-CN5981724395_UHD.jpg) 
+2019-12-25 | [华沙的圣诞节日装饰，波兰 (© David Milsen/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.WarsawXmas_ZH-CN5981724395_1920x1080.jpg) 
 
-2019-12-24 | [挪威的一群驯鹿 (© Lena Granefelt/plainpicture)](https://cn.bing.com/th?id=OHR.ReindeerNorway_ZH-CN5913190372_UHD.jpg) 
+2019-12-24 | [挪威的一群驯鹿 (© Lena Granefelt/plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.ReindeerNorway_ZH-CN5913190372_1920x1080.jpg) 
 
-2019-12-23 | [正在宣泄不满的两只巴布亚企鹅，南极洲 (© Grafissimo/Getty Images)](https://cn.bing.com/th?id=OHR.AiringGrievances_ZH-CN5830208720_UHD.jpg) 
+2019-12-23 | [正在宣泄不满的两只巴布亚企鹅，南极洲 (© Grafissimo/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.AiringGrievances_ZH-CN5830208720_1920x1080.jpg) 
 
-2019-12-22 | [【今日冬至】 (© Sino Images/Getty Images)](https://cn.bing.com/th?id=OHR.Dongzhi2019_ZH-CN6252826480_UHD.jpg) 
+2019-12-22 | [【今日冬至】 (© Sino Images/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Dongzhi2019_ZH-CN6252826480_1920x1080.jpg) 
 
-2019-12-21 | [雪花 (© TothGaborGyula/Getty Images Plus)](https://cn.bing.com/th?id=OHR.RealSnowflake_ZH-CN5687037252_UHD.jpg) 
+2019-12-21 | [雪花 (© TothGaborGyula/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.RealSnowflake_ZH-CN5687037252_1920x1080.jpg) 
 
-2019-12-20 | [哈纳公路沿线的彩虹桉树，毛伊岛 (© GlowingEarth/Getty Images Plus)](https://cn.bing.com/th?id=OHR.MauiEucalyptus_ZH-CN5616197787_UHD.jpg) 
+2019-12-20 | [哈纳公路沿线的彩虹桉树，毛伊岛 (© GlowingEarth/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.MauiEucalyptus_ZH-CN5616197787_1920x1080.jpg) 
 
-2019-12-19 | [福吉谷国家历史公园中的小屋，宾夕法尼亚 (© Mark C. Morris/Shutterstock)](https://cn.bing.com/th?id=OHR.ValleyForge_ZH-CN8129420249_UHD.jpg) 
+2019-12-19 | [福吉谷国家历史公园中的小屋，宾夕法尼亚 (© Mark C. Morris/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.ValleyForge_ZH-CN8129420249_1920x1080.jpg) 
 
-2019-12-18 | [一年一度的施瓦本哈尔圣诞市集，德国巴登-符腾堡州 (© sack/Getty Images Plus)](https://cn.bing.com/th?id=OHR.HallXmasMarket_ZH-CN8059544504_UHD.jpg) 
+2019-12-18 | [一年一度的施瓦本哈尔圣诞市集，德国巴登-符腾堡州 (© sack/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.HallXmasMarket_ZH-CN8059544504_1920x1080.jpg) 
 
-2019-12-17 | [古罗马广场上的萨图尔诺农神庙，意大利罗马 (© Joe Daniel Price/Getty Images)](https://cn.bing.com/th?id=OHR.TempleofSaturn_ZH-CN7983217544_UHD.jpg) 
+2019-12-17 | [古罗马广场上的萨图尔诺农神庙，意大利罗马 (© Joe Daniel Price/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.TempleofSaturn_ZH-CN7983217544_1920x1080.jpg) 
 
-2019-12-16 | [桌山，南非开普敦 (© 4FR/Getty Images)](https://cn.bing.com/th?id=OHR.ReconciliationDay_ZH-CN7914130812_UHD.jpg) 
+2019-12-16 | [桌山，南非开普敦 (© 4FR/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.ReconciliationDay_ZH-CN7914130812_1920x1080.jpg) 
 
-2019-12-15 | [银装素裹的Luzulo-Fagetum山毛榉林，比利时阿登 (© Philippe Moes/Alamy)](https://cn.bing.com/th?id=OHR.NutsWeekend_ZH-CN7847508117_UHD.jpg) 
+2019-12-15 | [银装素裹的Luzulo-Fagetum山毛榉林，比利时阿登 (© Philippe Moes/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.NutsWeekend_ZH-CN7847508117_1920x1080.jpg) 
 
-2019-12-14 | [云杉树中的一只云杉松鸡，阿拉斯加德纳利国家公园 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpruceGrouse_ZH-CN7756892167_UHD.jpg) 
+2019-12-14 | [云杉树中的一只云杉松鸡，阿拉斯加德纳利国家公园 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.SpruceGrouse_ZH-CN7756892167_1920x1080.jpg) 
 
-2019-12-13 | [朗德瓦萨桥上的贝尔尼纳快车，瑞士格劳宾登 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LandwasserViaduct_ZH-CN7692075960_UHD.jpg) 
+2019-12-13 | [朗德瓦萨桥上的贝尔尼纳快车，瑞士格劳宾登 (© Marco Bottigelli/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.LandwasserViaduct_ZH-CN7692075960_1920x1080.jpg) 
 
-2019-12-12 | [冰岛羊 (© John Porter LRPS/Alamy)](https://cn.bing.com/th?id=OHR.SheepCoteClod_ZH-CN7630556554_UHD.jpg) 
+2019-12-12 | [冰岛羊 (© John Porter LRPS/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.SheepCoteClod_ZH-CN7630556554_1920x1080.jpg) 
 
-2019-12-11 | [喜马拉雅山脉中的Tengboche修道院，尼泊尔 (© Kyle Hammons/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TengbocheMonastery_ZH-CN7555740661_UHD.jpg) 
+2019-12-11 | [喜马拉雅山脉中的Tengboche修道院，尼泊尔 (© Kyle Hammons/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.TengbocheMonastery_ZH-CN7555740661_1920x1080.jpg) 
 
-2019-12-10 | [正在吃花楸果实的太平鸟 (© Berndt Fischer/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Seidenschwanz_ZH-CN7486965726_UHD.jpg) 
+2019-12-10 | [正在吃花楸果实的太平鸟 (© Berndt Fischer/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.Seidenschwanz_ZH-CN7486965726_1920x1080.jpg) 
 
-2019-12-09 | [一枚微芯片的特写 (© Bobkov Evgeniy/Shutterstock)](https://cn.bing.com/th?id=OHR.BlueChip_ZH-CN7376022522_UHD.jpg) 
+2019-12-09 | [一枚微芯片的特写 (© Bobkov Evgeniy/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.BlueChip_ZH-CN7376022522_1920x1080.jpg) 
 
-2019-12-08 | [装饰有多个镜子、灯和空气喇叭的摩托车 (© stocknshares/Getty Images)](https://cn.bing.com/th?id=OHR.PurpleWeekend_ZH-CN7324572668_UHD.jpg) 
+2019-12-08 | [装饰有多个镜子、灯和空气喇叭的摩托车 (© stocknshares/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.PurpleWeekend_ZH-CN7324572668_1920x1080.jpg) 
 
-2019-12-07 | [初雪与最后的秋色相会，日本 (© SpontaneousPictures/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KochiFall_ZH-CN7256567323_UHD.jpg) 
+2019-12-07 | [初雪与最后的秋色相会，日本 (© SpontaneousPictures/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.KochiFall_ZH-CN7256567323_1920x1080.jpg) 
 
-2019-12-06 | [南邦国家公园的尖峰石阵，西澳大利亚州 (© Frank Krahmer/Getty Images Plus)](https://cn.bing.com/th?id=OHR.NambungPinnacles_ZH-CN7198283991_UHD.jpg) 
+2019-12-06 | [南邦国家公园的尖峰石阵，西澳大利亚州 (© Frank Krahmer/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.NambungPinnacles_ZH-CN7198283991_1920x1080.jpg) 
 
-2019-12-05 | [安大略省的圣诞树农场，加拿大 (© FatCamera/Getty Images Plus)](https://cn.bing.com/th?id=OHR.CanadaTreeFarm_ZH-CN6478268657_UHD.jpg) 
+2019-12-05 | [安大略省的圣诞树农场，加拿大 (© FatCamera/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.CanadaTreeFarm_ZH-CN6478268657_1920x1080.jpg) 
 
-2019-12-04 | [阿姆哈拉禁猎区的两只犀牛和一只啄牛鸟，南非 (© Robert Harding World Imagery/Offset)](https://cn.bing.com/th?id=OHR.RhinosOxpecker_ZH-CN6392794613_UHD.jpg) 
+2019-12-04 | [阿姆哈拉禁猎区的两只犀牛和一只啄牛鸟，南非 (© Robert Harding World Imagery/Offset)](https://cdn.bimg.cc/bing/2019/OHR.RhinosOxpecker_ZH-CN6392794613_1920x1080.jpg) 
 
-2019-12-03 | [雄性大西洋海鹦将筑巢材料递给它的伴侣，威尔士斯科默岛 (© Danny Green/Minden Pictures)](https://cn.bing.com/th?id=OHR.PuffinSharing_ZH-CN6330890743_UHD.jpg) 
+2019-12-03 | [雄性大西洋海鹦将筑巢材料递给它的伴侣，威尔士斯科默岛 (© Danny Green/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.PuffinSharing_ZH-CN6330890743_1920x1080.jpg) 
 
-2019-12-02 | [波特兰比尔灯塔处的晨光和海浪，英格兰多塞特郡 (© Lee Pengelly/Getty Images Plus)](https://cn.bing.com/th?id=OHR.PortlandDawn_ZH-CN6187930845_UHD.jpg) 
+2019-12-02 | [波特兰比尔灯塔处的晨光和海浪，英格兰多塞特郡 (© Lee Pengelly/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.PortlandDawn_ZH-CN6187930845_1920x1080.jpg) 
 
-2019-12-01 | [“哈雷六号”科考站上空的南极光，南极洲 (© Stuart Holroyd/Alamy)](https://cn.bing.com/th?id=OHR.HalleyVI_ZH-CN6048621088_UHD.jpg) 
+2019-12-01 | [“哈雷六号”科考站上空的南极光，南极洲 (© Stuart Holroyd/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.HalleyVI_ZH-CN6048621088_1920x1080.jpg) 
 
-2019-11-30 | [马拉喀什的Jemaa el-Fnaa广场 (© Pavliha/Getty Images)](https://cn.bing.com/th?id=OHR.MarrakechMarket_ZH-CN5880133555_UHD.jpg) 
+2019-11-30 | [马拉喀什的Jemaa el-Fnaa广场 (© Pavliha/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MarrakechMarket_ZH-CN5880133555_1920x1080.jpg) 
 
-2019-11-29 | [阿斯本附近的褐铃山，科罗拉多州 (© Christopher E. Herbert/Getty Images)](https://cn.bing.com/th?id=OHR.AspenHiking_ZH-CN5769117414_UHD.jpg) 
+2019-11-29 | [阿斯本附近的褐铃山，科罗拉多州 (© Christopher E. Herbert/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.AspenHiking_ZH-CN5769117414_1920x1080.jpg) 
 
-2019-11-28 | [Las Catedrales海滩，西班牙加利西亚 (© Davide Seddio/Getty Images)](https://cn.bing.com/th?id=OHR.LasCatedralesBeach_ZH-CN5680206879_UHD.jpg) 
+2019-11-28 | [Las Catedrales海滩，西班牙加利西亚 (© Davide Seddio/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.LasCatedralesBeach_ZH-CN5680206879_1920x1080.jpg) 
 
-2019-11-27 | [凤凰城天港国际机场鸟瞰图，亚利桑那 (© Nearmap/Getty Images)](https://cn.bing.com/th?id=OHR.PhoenixAirport_ZH-CN5615941904_UHD.jpg) 
+2019-11-27 | [凤凰城天港国际机场鸟瞰图，亚利桑那 (© Nearmap/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.PhoenixAirport_ZH-CN5615941904_1920x1080.jpg) 
 
-2019-11-26 | [高地牛，荷兰德伦特省 (© defotoberg/Shutterstock)](https://cn.bing.com/th?id=OHR.HairyHighlanders_ZH-CN5546635143_UHD.jpg) 
+2019-11-26 | [高地牛，荷兰德伦特省 (© defotoberg/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.HairyHighlanders_ZH-CN5546635143_1920x1080.jpg) 
 
-2019-11-25 | [在米却肯州越冬的帝王蝶，墨西哥 (© Sylvain Cordier/Getty Images)](https://cn.bing.com/th?id=OHR.OverwinteringMonarchs_ZH-CN0248511586_UHD.jpg) 
+2019-11-25 | [在米却肯州越冬的帝王蝶，墨西哥 (© Sylvain Cordier/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.OverwinteringMonarchs_ZH-CN0248511586_1920x1080.jpg) 
 
-2019-11-24 | [阿查法拉亚盆地中的一棵柏树，路易斯安那州 (© Chris Moore/Tandem Still + Motion)](https://cn.bing.com/th?id=OHR.AtchafalayaCypress_ZH-CN0183179230_UHD.jpg) 
+2019-11-24 | [阿查法拉亚盆地中的一棵柏树，路易斯安那州 (© Chris Moore/Tandem Still + Motion)](https://cdn.bimg.cc/bing/2019/OHR.AtchafalayaCypress_ZH-CN0183179230_1920x1080.jpg) 
 
-2019-11-23 | [龙舌兰 (© Moab Republic/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenVictoriaAgave_ZH-CN0113999146_UHD.jpg) 
+2019-11-23 | [龙舌兰 (© Moab Republic/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.QueenVictoriaAgave_ZH-CN0113999146_1920x1080.jpg) 
 
-2019-11-22 | [Chon湖上空的低空云，苏格兰特罗萨克斯   (© Alistair Dick/Alamy)](https://cn.bing.com/th?id=OHR.SaltireClouds_ZH-CN0002027700_UHD.jpg) 
+2019-11-22 | [Chon湖上空的低空云，苏格兰特罗萨克斯   (© Alistair Dick/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.SaltireClouds_ZH-CN0002027700_1920x1080.jpg) 
 
-2019-11-21 | [Lantignie的景色，法国博若莱 (© Jon Arnold/Danita Delimont)](https://cn.bing.com/th?id=OHR.BeaujolaisRegion_ZH-CN1585928268_UHD.jpg) 
+2019-11-21 | [Lantignie的景色，法国博若莱 (© Jon Arnold/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.BeaujolaisRegion_ZH-CN1585928268_1920x1080.jpg) 
 
-2019-11-20 | [瑟门山国家公园里的狮尾狒狒，埃塞俄比亚北部 (© Marco Gaiotti/plainpicture)](https://cn.bing.com/th?id=OHR.SimienGelada_ZH-CN1529423800_UHD.jpg) 
+2019-11-20 | [瑟门山国家公园里的狮尾狒狒，埃塞俄比亚北部 (© Marco Gaiotti/plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.SimienGelada_ZH-CN1529423800_1920x1080.jpg) 
 
-2019-11-19 | [锡安国家公园的秋色，犹他州 (© pabradyphoto/Getty Images)](https://cn.bing.com/th?id=OHR.ZionBirthday_ZH-CN1467524477_UHD.jpg) 
+2019-11-19 | [锡安国家公园的秋色，犹他州 (© pabradyphoto/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.ZionBirthday_ZH-CN1467524477_1920x1080.jpg) 
 
-2019-11-18 | [Ichetucknee河的海牛，佛罗里达州 (© Jennifer Adler/Alamy)](https://cn.bing.com/th?id=OHR.IchetuckneeRiver_ZH-CN1410417151_UHD.jpg) 
+2019-11-18 | [Ichetucknee河的海牛，佛罗里达州 (© Jennifer Adler/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.IchetuckneeRiver_ZH-CN1410417151_1920x1080.jpg) 
 
-2019-11-17 | [伏尔塔瓦河上的查理大桥和老城桥塔，捷克布拉格 (© Markus Lange/Offset)](https://cn.bing.com/th?id=OHR.VelvetRevolution_ZH-CN1356552228_UHD.jpg) 
+2019-11-17 | [伏尔塔瓦河上的查理大桥和老城桥塔，捷克布拉格 (© Markus Lange/Offset)](https://cdn.bimg.cc/bing/2019/OHR.VelvetRevolution_ZH-CN1356552228_1920x1080.jpg) 
 
-2019-11-16 | [大雾笼罩下的巴伐利亚阿尔卑斯山脉，德国 (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.Nebelmond_ZH-CN1304523635_UHD.jpg) 
+2019-11-16 | [大雾笼罩下的巴伐利亚阿尔卑斯山脉，德国 (© Anton Petrus/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Nebelmond_ZH-CN1304523635_1920x1080.jpg) 
 
-2019-11-15 | [夕阳下的椋鸟，英格兰布莱克浦 (© Mediaworld Images/Alamy)](https://cn.bing.com/th?id=OHR.Murmurations_ZH-CN1257945583_UHD.jpg) 
+2019-11-15 | [夕阳下的椋鸟，英格兰布莱克浦 (© Mediaworld Images/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.Murmurations_ZH-CN1257945583_1920x1080.jpg) 
 
-2019-11-14 | [秋日雾中清晨里的特里斐斯城堡，德国莱茵兰普法尔茨森林 (© Björn Lauer/Getty Images)](https://cn.bing.com/th?id=OHR.BurgTrifels_ZH-CN1204167722_UHD.jpg) 
+2019-11-14 | [秋日雾中清晨里的特里斐斯城堡，德国莱茵兰普法尔茨森林 (© Björn Lauer/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.BurgTrifels_ZH-CN1204167722_1920x1080.jpg) 
 
-2019-11-13 | [日落时分，柏林施普雷河上美丽的奥伯鲍姆桥 (© elxeneize/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.BerlinerMauerFall_ZH-CN1154604596_UHD.jpg) 
+2019-11-13 | [日落时分，柏林施普雷河上美丽的奥伯鲍姆桥 (© elxeneize/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2019/OHR.BerlinerMauerFall_ZH-CN1154604596_1920x1080.jpg) 
 
-2019-11-12 | [小刺猬 (© lorenzo104/Getty Images)](https://cn.bing.com/th?id=OHR.BabyHedgehog_ZH-CN1095415688_UHD.jpg) 
+2019-11-12 | [小刺猬 (© lorenzo104/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.BabyHedgehog_ZH-CN1095415688_1920x1080.jpg) 
 
-2019-11-11 | [阿尔卑斯国家公园豪伊特山上雾中的野花，澳大利亚维多利亚 (© Australian Scenics/Photolibrary/Getty Images Plus)](https://cn.bing.com/th?id=OHR.MountHowitt_ZH-CN1042812457_UHD.jpg) 
+2019-11-11 | [阿尔卑斯国家公园豪伊特山上雾中的野花，澳大利亚维多利亚 (© Australian Scenics/Photolibrary/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.MountHowitt_ZH-CN1042812457_1920x1080.jpg) 
 
-2019-11-10 | [蓝莓植物上的霜，加拿大新不伦瑞克 (© Freeman Patterson/Masterfile)](https://cn.bing.com/th?id=OHR.BlueberryFrost_ZH-CN0971529753_UHD.jpg) 
+2019-11-10 | [蓝莓植物上的霜，加拿大新不伦瑞克 (© Freeman Patterson/Masterfile)](https://cdn.bimg.cc/bing/2019/OHR.BlueberryFrost_ZH-CN0971529753_1920x1080.jpg) 
 
 2019-11-09 | [秋日景色倒映于镜池中，日本长野 (© magicflute002/Getty images)](https://cdn.bimg.cc/bing/2019/OHR.KagamiMirror_ZH-CN0889648187_1920x1080.jpg) 
 
-2019-11-08 | [【今日立冬】 (© zhouyousifang/Getty Images)](https://cn.bing.com/th?id=OHR.Lidong2019_ZH-CN0761273672_UHD.jpg) 
+2019-11-08 | [【今日立冬】 (© zhouyousifang/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Lidong2019_ZH-CN0761273672_1920x1080.jpg) 
 
-2019-11-07 | [秋日里通往卢浮宫的杜乐丽花园，法国巴黎 (© Brian A. Jackson/Getty Images Plus)](https://cn.bing.com/th?id=OHR.LouvreAutumn_ZH-CN3206208609_UHD.jpg) 
+2019-11-07 | [秋日里通往卢浮宫的杜乐丽花园，法国巴黎 (© Brian A. Jackson/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.LouvreAutumn_ZH-CN3206208609_1920x1080.jpg) 
 
-2019-11-06 | [西班牙的藏红花 (© Juan-Carlos Munoz/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrocusSativus_ZH-CN3143423131_UHD.jpg) 
+2019-11-06 | [西班牙的藏红花 (© Juan-Carlos Munoz/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CrocusSativus_ZH-CN3143423131_1920x1080.jpg) 
 
-2019-11-05 | [普什卡骆驼节上的骆驼与牧民，印度拉贾斯坦邦 (© Anand Purohit/Getty Images)](https://cn.bing.com/th?id=OHR.CamelsBalloons_ZH-CN3086626309_UHD.jpg) 
+2019-11-05 | [普什卡骆驼节上的骆驼与牧民，印度拉贾斯坦邦 (© Anand Purohit/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.CamelsBalloons_ZH-CN3086626309_1920x1080.jpg) 
 
-2019-11-04 | [代阿布洛峰州立公园，加利福尼亚 (© Yuval Helfman/Getty Images)](https://cn.bing.com/th?id=OHR.MtDiablo_ZH-CN2888586273_UHD.jpg) 
+2019-11-04 | [代阿布洛峰州立公园，加利福尼亚 (© Yuval Helfman/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MtDiablo_ZH-CN2888586273_1920x1080.jpg) 
 
-2019-11-03 | [喜马拉雅山脉的钱德拉塔尔湖，印度 (© f9photos/Getty Images Plus)](https://cn.bing.com/th?id=OHR.ChandraTal_ZH-CN2809744505_UHD.jpg) 
+2019-11-03 | [喜马拉雅山脉的钱德拉塔尔湖，印度 (© f9photos/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.ChandraTal_ZH-CN2809744505_1920x1080.jpg) 
 
-2019-11-02 | [软木橡树林 (© Andrés M. Domínguez/Minden)](https://cn.bing.com/th?id=OHR.CorkTrees_ZH-CN1253123792_UHD.jpg) 
+2019-11-02 | [软木橡树林 (© Andrés M. Domínguez/Minden)](https://cdn.bimg.cc/bing/2019/OHR.CorkTrees_ZH-CN1253123792_1920x1080.jpg) 
 
-2019-11-01 | [一只坐在白杨树上的大雕鸮，阿尔伯塔 (© Ambre Haller/Getty Images)](https://cn.bing.com/th?id=OHR.AlbertaOwl_ZH-CN1184867720_UHD.jpg) 
+2019-11-01 | [一只坐在白杨树上的大雕鸮，阿尔伯塔 (© Ambre Haller/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.AlbertaOwl_ZH-CN1184867720_1920x1080.jpg) 
 
-2019-10-31 | [【今日万圣节】科尔温城堡，罗马尼亚 (© DCPmedia/Shutterstock)](https://cn.bing.com/th?id=OHR.VampireCastle_ZH-CN1018939203_UHD.jpg) 
+2019-10-31 | [【今日万圣节】科尔温城堡，罗马尼亚 (© DCPmedia/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.VampireCastle_ZH-CN1018939203_1920x1080.jpg) 
 
-2019-10-30 | [伏尔塔瓦河上的查理大桥，布拉格 (© Martin Moxter/Offset)](https://cn.bing.com/th?id=OHR.CharlesNight_ZH-CN0933393880_UHD.jpg) 
+2019-10-30 | [伏尔塔瓦河上的查理大桥，布拉格 (© Martin Moxter/Offset)](https://cdn.bimg.cc/bing/2019/OHR.CharlesNight_ZH-CN0933393880_1920x1080.jpg) 
 
-2019-10-29 | [卡国家公园的黄毛果蝠，赞比亚 (© Nick Garbutt/Minden Pictures)](https://cn.bing.com/th?id=OHR.EidolonHelvum_ZH-CN0881732109_UHD.jpg) 
+2019-10-29 | [卡国家公园的黄毛果蝠，赞比亚 (© Nick Garbutt/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.EidolonHelvum_ZH-CN0881732109_1920x1080.jpg) 
 
-2019-10-28 | [Fort Rock Valley Historical Homestead博物馆，俄勒冈 (© Prisma by Dukas Presseagentur GmbH/Alamy)](https://cn.bing.com/th?id=OHR.FortRockHomestead_ZH-CN0775183699_UHD.jpg) 
+2019-10-28 | [Fort Rock Valley Historical Homestead博物馆，俄勒冈 (© Prisma by Dukas Presseagentur GmbH/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.FortRockHomestead_ZH-CN0775183699_1920x1080.jpg) 
 
-2019-10-27 | [欧罗巴山国家公园中的Naranjo de Bulnes峰，西班牙阿斯图里亚斯  (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.NaranjoBulnes_ZH-CN0696600867_UHD.jpg) 
+2019-10-27 | [欧罗巴山国家公园中的Naranjo de Bulnes峰，西班牙阿斯图里亚斯  (© Anton Petrus/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.NaranjoBulnes_ZH-CN0696600867_1920x1080.jpg) 
 
-2019-10-26 | [一只红垂蜜鸟，澳大利亚维多利亚 (© plainpicture/Minden Pictures/Jan Wegener/BIA)](https://cn.bing.com/th?id=OHR.RedWattlebird_ZH-CN0640093095_UHD.jpg) 
+2019-10-26 | [一只红垂蜜鸟，澳大利亚维多利亚 (© plainpicture/Minden Pictures/Jan Wegener/BIA)](https://cdn.bimg.cc/bing/2019/OHR.RedWattlebird_ZH-CN0640093095_1920x1080.jpg) 
 
-2019-10-25 | [马达加斯加的环尾狐猴 (© Image Source/Alamy)](https://cn.bing.com/th?id=OHR.WorldLemurDay_ZH-CN9867937861_UHD.jpg) 
+2019-10-25 | [马达加斯加的环尾狐猴 (© Image Source/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.WorldLemurDay_ZH-CN9867937861_1920x1080.jpg) 
 
-2019-10-24 | [新罕布什尔州的县桥 (© Denis Tangney Jr/E+/Getty Images)](https://cn.bing.com/th?id=OHR.CountyBridge_ZH-CN6500717169_UHD.jpg) 
+2019-10-24 | [新罕布什尔州的县桥 (© Denis Tangney Jr/E+/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.CountyBridge_ZH-CN6500717169_1920x1080.jpg) 
 
-2019-10-23 | [丘吉尔哈德逊湾附近的北极熊一家，加拿大马尼托巴省 (© Marco Pozzi Photographer/Getty Images)](https://cn.bing.com/th?id=OHR.ChurchillPolarBear_ZH-CN6443232536_UHD.jpg) 
+2019-10-23 | [丘吉尔哈德逊湾附近的北极熊一家，加拿大马尼托巴省 (© Marco Pozzi Photographer/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.ChurchillPolarBear_ZH-CN6443232536_1920x1080.jpg) 
 
-2019-10-22 | [一只正在花园里吃野苹果的乌鸫，英国威尔特郡 (© Nick Upton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrabAppleBlackbird_ZH-CN6395785205_UHD.jpg) 
+2019-10-22 | [一只正在花园里吃野苹果的乌鸫，英国威尔特郡 (© Nick Upton/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CrabAppleBlackbird_ZH-CN6395785205_1920x1080.jpg) 
 
-2019-10-21 | [亚士顿森林薄雾日出，英国东萨塞克斯郡 (© Tim Stocker Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MistyAshdown_ZH-CN6344044927_UHD.jpg) 
+2019-10-21 | [亚士顿森林薄雾日出，英国东萨塞克斯郡 (© Tim Stocker Photography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MistyAshdown_ZH-CN6344044927_1920x1080.jpg) 
 
-2019-10-20 | [一只栖息在树上的白喉三趾树懒，圭亚那埃塞奎博河树懒岛 (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.PaleSloth_ZH-CN6293546034_UHD.jpg) 
+2019-10-20 | [一只栖息在树上的白喉三趾树懒，圭亚那埃塞奎博河树懒岛 (© Suzi Eszterhas/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.PaleSloth_ZH-CN6293546034_1920x1080.jpg) 
 
-2019-10-19 | [半月湾南瓜地鸟瞰图，加利福尼亚 (© Tinker Street/Michael O'Neal/Gallery Stock)](https://cn.bing.com/th?id=OHR.HalfMoonBayPumpkin_ZH-CN6219747714_UHD.jpg) 
+2019-10-19 | [半月湾南瓜地鸟瞰图，加利福尼亚 (© Tinker Street/Michael O'Neal/Gallery Stock)](https://cdn.bimg.cc/bing/2019/OHR.HalfMoonBayPumpkin_ZH-CN6219747714_1920x1080.jpg) 
 
-2019-10-18 | [烟囱岩和安肯帕格里国家森林，科罗拉多州 (© Cory Marshall/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.UncompahgreForest_ZH-CN6161020948_UHD.jpg) 
+2019-10-18 | [烟囱岩和安肯帕格里国家森林，科罗拉多州 (© Cory Marshall/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.UncompahgreForest_ZH-CN6161020948_1920x1080.jpg) 
 
-2019-10-17 | [东京的秋叶和金鱼，日本 (© qrsk/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.LeavesGoldfish_ZH-CN6109097460_UHD.jpg) 
+2019-10-17 | [东京的秋叶和金鱼，日本 (© qrsk/Moment/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.LeavesGoldfish_ZH-CN6109097460_1920x1080.jpg) 
 
-2019-10-16 | [阿卡迪亚国家公园的高丛蓝莓植物，缅因州 (© Danita Delimont/Gallo Images/Getty Images Plus)](https://cn.bing.com/th?id=OHR.AcadiaBlueberries_ZH-CN6014510748_UHD.jpg) 
+2019-10-16 | [阿卡迪亚国家公园的高丛蓝莓植物，缅因州 (© Danita Delimont/Gallo Images/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.AcadiaBlueberries_ZH-CN6014510748_1920x1080.jpg) 
 
-2019-10-15 | [蜻蜓翅膀特写 (© Azwar Thaufeeq/500px/Getty Images)](https://cn.bing.com/th?id=OHR.MaldivesDragonfly_ZH-CN5949519396_UHD.jpg) 
+2019-10-15 | [蜻蜓翅膀特写 (© Azwar Thaufeeq/500px/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MaldivesDragonfly_ZH-CN5949519396_1920x1080.jpg) 
 
-2019-10-14 | [阿尔伯塔的日出，加拿大 (© Ambre Haller/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.AlbertaThanksgiving_ZH-CN5899007960_UHD.jpg) 
+2019-10-14 | [阿尔伯塔的日出，加拿大 (© Ambre Haller/Moment/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.AlbertaThanksgiving_ZH-CN5899007960_1920x1080.jpg) 
 
-2019-10-13 | [一块石炭纪蕨类化石 (© Juan Carlos Munoz/Minden Pictures)](https://cn.bing.com/th?id=OHR.CompressionFossil_ZH-CN5809840201_UHD.jpg) 
+2019-10-13 | [一块石炭纪蕨类化石 (© Juan Carlos Munoz/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CompressionFossil_ZH-CN5809840201_1920x1080.jpg) 
 
-2019-10-12 | [巴克拉纳帆船赛百舸争流，意大利的里雅斯特港 (© Ababsolutum/E+/Getty Images)](https://cn.bing.com/th?id=OHR.BarcolanaTrieste_ZH-CN5745744257_UHD.jpg) 
+2019-10-12 | [巴克拉纳帆船赛百舸争流，意大利的里雅斯特港 (© Ababsolutum/E+/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.BarcolanaTrieste_ZH-CN5745744257_1920x1080.jpg) 
 
-2019-10-11 | [拱门国家公园，犹他州莫阿布 (© Whit Richardson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.RedRocksArches_ZH-CN5664546697_UHD.jpg) 
+2019-10-11 | [拱门国家公园，犹他州莫阿布 (© Whit Richardson/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2019/OHR.RedRocksArches_ZH-CN5664546697_1920x1080.jpg) 
 
-2019-10-10 | [气泡星云 (NGC 7635) (© NASA, ESA, and the Hubble Heritage Team STScI/AURA)](https://cn.bing.com/th?id=OHR.BubbleNebula_ZH-CN2787112807_UHD.jpg) 
+2019-10-10 | [气泡星云 (NGC 7635) (© NASA, ESA, and the Hubble Heritage Team STScI/AURA)](https://cdn.bimg.cc/bing/2019/OHR.BubbleNebula_ZH-CN2787112807_1920x1080.jpg) 
 
-2019-10-09 | [莱奇沃思州立公园，纽约 (© Jay O'Brien/Danita Delimont)](https://cn.bing.com/th?id=OHR.GrandCanyonEast_ZH-CN2721062078_UHD.jpg) 
+2019-10-09 | [莱奇沃思州立公园，纽约 (© Jay O'Brien/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.GrandCanyonEast_ZH-CN2721062078_1920x1080.jpg) 
 
-2019-10-08 | [夜间潜水时发现的章鱼，夏威夷科纳附近 (© Jeff Milisen/Alamy)](https://cn.bing.com/th?id=OHR.WorldOctopus_ZH-CN2670477302_UHD.jpg) 
+2019-10-08 | [夜间潜水时发现的章鱼，夏威夷科纳附近 (© Jeff Milisen/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.WorldOctopus_ZH-CN2670477302_1920x1080.jpg) 
 
-2019-10-07 | [韦尔瓦奥迪尔湿地起飞的三只大红鹳，西班牙安达卢西亚 (© Óscar Díez/Minden Pictures)](https://cn.bing.com/th?id=OHR.GreaterFlamingo_ZH-CN2596334768_UHD.jpg) 
+2019-10-07 | [韦尔瓦奥迪尔湿地起飞的三只大红鹳，西班牙安达卢西亚 (© Óscar Díez/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.GreaterFlamingo_ZH-CN2596334768_1920x1080.jpg) 
 
-2019-10-06 | [马尔堡峡湾鸟瞰图，新西兰 (© Mathias Ortmann/Getty Images)](https://cn.bing.com/th?id=OHR.MarlboroughSounds_ZH-CN2539444443_UHD.jpg) 
+2019-10-06 | [马尔堡峡湾鸟瞰图，新西兰 (© Mathias Ortmann/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MarlboroughSounds_ZH-CN2539444443_1920x1080.jpg) 
 
-2019-10-05 | [丁顿修道院，威尔士 (© Lynda Morris Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TinternAbbey_ZH-CN1922933358_UHD.jpg) 
+2019-10-05 | [丁顿修道院，威尔士 (© Lynda Morris Photography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.TinternAbbey_ZH-CN1922933358_1920x1080.jpg) 
 
-2019-10-04 | [木星增强色彩后的一组镜头 (© Enhanced Image by Gerald Eichstädt and Sean Doran, CC BY-NC-SA, based on images provided Courtesy of NASA/JPL-Caltech/SwRI/MSSS)](https://cn.bing.com/th?id=OHR.JupiterJunoCam_ZH-CN1843443643_UHD.jpg) 
+2019-10-04 | [木星增强色彩后的一组镜头 (© Enhanced Image by Gerald Eichstädt and Sean Doran, CC BY-NC-SA, based on images provided Courtesy of NASA/JPL-Caltech/SwRI/MSSS)](https://cdn.bimg.cc/bing/2019/OHR.JupiterJunoCam_ZH-CN1843443643_1920x1080.jpg) 
 
-2019-10-03 | [珀泽申群岛上的阿德利企鹅，南极洲 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.AdelieBreeding_ZH-CN1750945258_UHD.jpg) 
+2019-10-03 | [珀泽申群岛上的阿德利企鹅，南极洲 (© Tui De Roy/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.AdelieBreeding_ZH-CN1750945258_1920x1080.jpg) 
 
-2019-10-02 | [秋天的罗梦湖和特罗萨克斯国家公园，苏格兰 (© Jon Arnold/Danita Delimont)](https://cn.bing.com/th?id=OHR.TrossachsAutumn_ZH-CN1693535266_UHD.jpg) 
+2019-10-02 | [秋天的罗梦湖和特罗萨克斯国家公园，苏格兰 (© Jon Arnold/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.TrossachsAutumn_ZH-CN1693535266_1920x1080.jpg) 
 
-2019-10-01 | [【国庆70周年】 (© Prasit Rodphan/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.NationalDay70_ZH-CN1636316274_UHD.jpg) 
+2019-10-01 | [【国庆70周年】 (© Prasit Rodphan/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2019/OHR.NationalDay70_ZH-CN1636316274_1920x1080.jpg) 
 
-2019-09-30 | [一对深红玫瑰鹦鹉幼鸟，维多利亚州 (© Naser Alhujailan/plainpicture/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrimsonRosella_ZH-CN1581892400_UHD.jpg) 
+2019-09-30 | [一对深红玫瑰鹦鹉幼鸟，维多利亚州 (© Naser Alhujailan/plainpicture/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CrimsonRosella_ZH-CN1581892400_1920x1080.jpg) 
 
-2019-09-29 | [班牙里奥哈区克拉维霍镇附近的秋日景色 (© Olimpio Fantuz/eStock Photo)](https://cn.bing.com/th?id=OHR.ClavijoLandscape_ZH-CN1525245124_UHD.jpg) 
+2019-09-29 | [班牙里奥哈区克拉维霍镇附近的秋日景色 (© Olimpio Fantuz/eStock Photo)](https://cdn.bimg.cc/bing/2019/OHR.ClavijoLandscape_ZH-CN1525245124_1920x1080.jpg) 
 
-2019-09-28 | [新农场公园内盛开的蓝花楹树，布里斯班 (© Walter Bibikow/Danita Delimont)](https://cn.bing.com/th?id=OHR.BloomingJacaranda_ZH-CN1456780313_UHD.jpg) 
+2019-09-28 | [新农场公园内盛开的蓝花楹树，布里斯班 (© Walter Bibikow/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.BloomingJacaranda_ZH-CN1456780313_1920x1080.jpg) 
 
-2019-09-27 | [德纳斯雷亚尔斯自然公园Castildetierra上空绚丽的日落，西班牙纳瓦拉 (© Inigofotografia/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.BardenasDesert_ZH-CN1357611840_UHD.jpg) 
+2019-09-27 | [德纳斯雷亚尔斯自然公园Castildetierra上空绚丽的日落，西班牙纳瓦拉 (© Inigofotografia/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.BardenasDesert_ZH-CN1357611840_1920x1080.jpg) 
 
-2019-09-26 | [鱼湖国家森林中的美洲山杨，犹他州  (© Don Paulson/Danita Delimont)](https://cn.bing.com/th?id=OHR.ThePando_ZH-CN5991870639_UHD.jpg) 
+2019-09-26 | [鱼湖国家森林中的美洲山杨，犹他州  (© Don Paulson/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.ThePando_ZH-CN5991870639_1920x1080.jpg) 
 
-2019-09-25 | [罗弗敦群岛的北极冲浪之旅，挪威罗弗敦大师赛 (© Nicolás Pina/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LofotenSurfing_ZH-CN5901239545_UHD.jpg) 
+2019-09-25 | [罗弗敦群岛的北极冲浪之旅，挪威罗弗敦大师赛 (© Nicolás Pina/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.LofotenSurfing_ZH-CN5901239545_1920x1080.jpg) 
 
-2019-09-24 | [一只正在树上吃东西的山地大猩猩，乌干达布恩迪国家公园 (© Robert Haasmann/Minden Pictures)](https://cn.bing.com/th?id=OHR.UgandaGorilla_ZH-CN5826117482_UHD.jpg) 
+2019-09-24 | [一只正在树上吃东西的山地大猩猩，乌干达布恩迪国家公园 (© Robert Haasmann/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.UgandaGorilla_ZH-CN5826117482_1920x1080.jpg) 
 
-2019-09-23 | [秋分时日的卡斯蒂略金字塔，墨西哥奇琴伊察 (© Somatuscani/Getty Images Plus)](https://cn.bing.com/th?id=OHR.FeatherSerpent_ZH-CN5706017355_UHD.jpg) 
+2019-09-23 | [秋分时日的卡斯蒂略金字塔，墨西哥奇琴伊察 (© Somatuscani/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.FeatherSerpent_ZH-CN5706017355_1920x1080.jpg) 
 
-2019-09-22 | [鸟瞰生长在森林中的树木，加拿大不列颠哥伦比亚省温哥华 (© Michael Wu/EyeEm/Getty Images)](https://cn.bing.com/th?id=OHR.VancouverFall_ZH-CN9824386829_UHD.jpg) 
+2019-09-22 | [鸟瞰生长在森林中的树木，加拿大不列颠哥伦比亚省温哥华 (© Michael Wu/EyeEm/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.VancouverFall_ZH-CN9824386829_1920x1080.jpg) 
 
-2019-09-21 | [“和平之墙”和巴黎的埃菲尔铁塔 (© Prisma by Dukas Presseagentur GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WallofPeace_ZH-CN5582031878_UHD.jpg) 
+2019-09-21 | [“和平之墙”和巴黎的埃菲尔铁塔 (© Prisma by Dukas Presseagentur GmbH/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.WallofPeace_ZH-CN5582031878_1920x1080.jpg) 
 
-2019-09-20 | [塞巴斯蒂安电影节举办地：圣塞巴斯蒂安和库尔萨尔文化中心 (© Aljndr/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.SanSebastianFilm_ZH-CN5506786379_UHD.jpg) 
+2019-09-20 | [塞巴斯蒂安电影节举办地：圣塞巴斯蒂安和库尔萨尔文化中心 (© Aljndr/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.SanSebastianFilm_ZH-CN5506786379_1920x1080.jpg) 
 
-2019-09-19 | [苏必利尔国家森林中一只常见的潜鸟，明尼苏达州 (© Jim Brandenburg/Minden Pictures)](https://cn.bing.com/th?id=OHR.CommonLoon_ZH-CN5437917206_UHD.jpg) 
+2019-09-19 | [苏必利尔国家森林中一只常见的潜鸟，明尼苏达州 (© Jim Brandenburg/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CommonLoon_ZH-CN5437917206_1920x1080.jpg) 
 
-2019-09-18 | [孚日山脉的针叶林，法国 (© Radomir Jakubowski/Minden Pictures)](https://cn.bing.com/th?id=OHR.SunbeamsForest_ZH-CN5358008117_UHD.jpg) 
+2019-09-18 | [孚日山脉的针叶林，法国 (© Radomir Jakubowski/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.SunbeamsForest_ZH-CN5358008117_1920x1080.jpg) 
 
-2019-09-17 | [埃克斯穆尔国家公园斯托克佩罗公地，英国英格兰 (© David Noton/Alamy)](https://cn.bing.com/th?id=OHR.StokePero_ZH-CN5293082939_UHD.jpg) 
+2019-09-17 | [埃克斯穆尔国家公园斯托克佩罗公地，英国英格兰 (© David Noton/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.StokePero_ZH-CN5293082939_1920x1080.jpg) 
 
-2019-09-16 | [赖格莱兴的Wachsenburg城堡，德国图林根州 (© Raimund Linke/Masterfile)](https://cn.bing.com/th?id=OHR.Wachsenburg_ZH-CN5224299503_UHD.jpg) 
+2019-09-16 | [赖格莱兴的Wachsenburg城堡，德国图林根州 (© Raimund Linke/Masterfile)](https://cdn.bimg.cc/bing/2019/OHR.Wachsenburg_ZH-CN5224299503_1920x1080.jpg) 
 
-2019-09-15 | [一排冲浪板 (© plainpicture/Tony Arruza)](https://cn.bing.com/th?id=OHR.SurfboardRow_ZH-CN5154549470_UHD.jpg) 
+2019-09-15 | [一排冲浪板 (© plainpicture/Tony Arruza)](https://cdn.bimg.cc/bing/2019/OHR.SurfboardRow_ZH-CN5154549470_1920x1080.jpg) 
 
-2019-09-14 | [白岛附近的海象，挪威斯瓦尔巴群岛 (© Ole Jorgen Liodden/Minden Pictures)](https://cn.bing.com/th?id=OHR.ToothWalkingSeahorse_ZH-CN5089043566_UHD.jpg) 
+2019-09-14 | [白岛附近的海象，挪威斯瓦尔巴群岛 (© Ole Jorgen Liodden/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.ToothWalkingSeahorse_ZH-CN5089043566_1920x1080.jpg) 
 
-2019-09-13 | [【今日中秋】 (© VCG/VCG via Getty Images)](https://cn.bing.com/th?id=OHR.midmoon_ZH-CN4973736313_UHD.jpg) 
+2019-09-13 | [【今日中秋】 (© VCG/VCG via Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.midmoon_ZH-CN4973736313_1920x1080.jpg) 
 
-2019-09-12 | [在犹他州峡谷地国家公园中看到的银河 (© Cavan Images/Offset)](https://cn.bing.com/th?id=OHR.MilkyWayCanyonlands_ZH-CN2363274510_UHD.jpg) 
+2019-09-12 | [在犹他州峡谷地国家公园中看到的银河 (© Cavan Images/Offset)](https://cdn.bimg.cc/bing/2019/OHR.MilkyWayCanyonlands_ZH-CN2363274510_1920x1080.jpg) 
 
-2019-09-11 | [鸟瞰雨林和丹特里河，澳大利亚 (© Peter Adams/Offset)](https://cn.bing.com/th?id=OHR.DaintreeRiver_ZH-CN2284362798_UHD.jpg) 
+2019-09-11 | [鸟瞰雨林和丹特里河，澳大利亚 (© Peter Adams/Offset)](https://cdn.bimg.cc/bing/2019/OHR.DaintreeRiver_ZH-CN2284362798_1920x1080.jpg) 
 
-2019-09-10 | [察沃国家公园里的一只长颈羚，肯尼亚 (© Byrdyak/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.TsavoGerenuk_ZH-CN2231549718_UHD.jpg) 
+2019-09-10 | [察沃国家公园里的一只长颈羚，肯尼亚 (© Byrdyak/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.TsavoGerenuk_ZH-CN2231549718_1920x1080.jpg) 
 
-2019-09-09 | [中部海岸的葡萄园，加利福尼亚大阿罗约 (© Ian Shive/Tandem Motion + Stills)](https://cn.bing.com/th?id=OHR.ArroyoGrande_ZH-CN2178202888_UHD.jpg) 
+2019-09-09 | [中部海岸的葡萄园，加利福尼亚大阿罗约 (© Ian Shive/Tandem Motion + Stills)](https://cdn.bimg.cc/bing/2019/OHR.ArroyoGrande_ZH-CN2178202888_1920x1080.jpg) 
 
-2019-09-08 | [克鲁格国家公园中的黄嘴犀鸟，南非 (© Ben Cranke/Getty Image)](https://cn.bing.com/th?id=OHR.SouthernYellow_ZH-CN2055825919_UHD.jpg) 
+2019-09-08 | [克鲁格国家公园中的黄嘴犀鸟，南非 (© Ben Cranke/Getty Image)](https://cdn.bimg.cc/bing/2019/OHR.SouthernYellow_ZH-CN2055825919_1920x1080.jpg) 
 
-2019-09-07 | [武陵山脉的最高峰梵净山，中国西南 (© Keitma/Alamy)](https://cn.bing.com/th?id=OHR.MountFanjing_ZH-CN1999613800_UHD.jpg) 
+2019-09-07 | [武陵山脉的最高峰梵净山，中国西南 (© Keitma/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.MountFanjing_ZH-CN1999613800_1920x1080.jpg) 
 
-2019-09-06 | [旧圣胡安的圣费利佩海角城堡，波多黎各 (© grandriver/Getty Images)](https://cn.bing.com/th?id=OHR.ElMorro_ZH-CN1911346184_UHD.jpg) 
+2019-09-06 | [旧圣胡安的圣费利佩海角城堡，波多黎各 (© grandriver/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.ElMorro_ZH-CN1911346184_1920x1080.jpg) 
 
-2019-09-05 | [乌布的德格拉朗梯田，印度尼西亚巴厘岛 (© gorgeoussab/Shutterstock)](https://cn.bing.com/th?id=OHR.Tegallalang_ZH-CN1855493751_UHD.jpg) 
+2019-09-05 | [乌布的德格拉朗梯田，印度尼西亚巴厘岛 (© gorgeoussab/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.Tegallalang_ZH-CN1855493751_1920x1080.jpg) 
 
-2019-09-04 | [新英格兰的杨树，澳大利亚新南威尔士州 (© ILYA GENKIN/Alamy)](https://cn.bing.com/th?id=OHR.AutumnTreesNewEngland_ZH-CN1766405773_UHD.jpg) 
+2019-09-04 | [新英格兰的杨树，澳大利亚新南威尔士州 (© ILYA GENKIN/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.AutumnTreesNewEngland_ZH-CN1766405773_1920x1080.jpg) 
 
-2019-09-03 | [石楠花丛中的一只欧亚红松鼠，英格兰 (© Christopher Drabble/Alamy)](https://cn.bing.com/th?id=OHR.SquirrelHeather_ZH-CN1683129884_UHD.jpg) 
+2019-09-03 | [石楠花丛中的一只欧亚红松鼠，英格兰 (© Christopher Drabble/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.SquirrelHeather_ZH-CN1683129884_1920x1080.jpg) 
 
-2019-09-02 | [拉姆绍的Wimbachklamm峡谷，德国巴伐利亚 (© Westend61 GmbH/Alamy)](https://cn.bing.com/th?id=OHR.RamsauWimbachklamm_ZH-CN1602837695_UHD.jpg) 
+2019-09-02 | [拉姆绍的Wimbachklamm峡谷，德国巴伐利亚 (© Westend61 GmbH/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.RamsauWimbachklamm_ZH-CN1602837695_1920x1080.jpg) 
 
-2019-09-01 | [法国塔恩河沿岸的Castelbouc城堡和塔恩峡谷 (© Stefan Schurr/Westend61/Offset)](https://cn.bing.com/th?id=OHR.Castelbouc_ZH-CN1475157551_UHD.jpg) 
+2019-09-01 | [法国塔恩河沿岸的Castelbouc城堡和塔恩峡谷 (© Stefan Schurr/Westend61/Offset)](https://cdn.bimg.cc/bing/2019/OHR.Castelbouc_ZH-CN1475157551_1920x1080.jpg) 
 
-2019-08-31 | [正在巨石间走扁带的人，加利福尼亚毕晓普 (© Evgeny Vasenev/Aurora Photos)](https://cn.bing.com/th?id=OHR.Slackers_ZH-CN1408656264_UHD.jpg) 
+2019-08-31 | [正在巨石间走扁带的人，加利福尼亚毕晓普 (© Evgeny Vasenev/Aurora Photos)](https://cdn.bimg.cc/bing/2019/OHR.Slackers_ZH-CN1408656264_1920x1080.jpg) 
 
-2019-08-30 | [新泽西阿斯伯里公园 (© Patrick Morisson/Alamy)](https://cn.bing.com/th?id=OHR.AsburyParkNJ_ZH-CN1353073841_UHD.jpg) 
+2019-08-30 | [新泽西阿斯伯里公园 (© Patrick Morisson/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.AsburyParkNJ_ZH-CN1353073841_1920x1080.jpg) 
 
-2019-08-29 | [沃楚拉的哈迪县集市，佛罗里达州 (© Oscar G. Davila/Getty Images)](https://cn.bing.com/th?id=OHR.HardeeCoFair_ZH-CN8647295545_UHD.jpg) 
+2019-08-29 | [沃楚拉的哈迪县集市，佛罗里达州 (© Oscar G. Davila/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.HardeeCoFair_ZH-CN8647295545_1920x1080.jpg) 
 
-2019-08-28 | [科尼西宫的花园，佛罗伦萨 (© Will Perrett/Alamy)](https://cn.bing.com/th?id=OHR.CorsiniGardens_ZH-CN8547012221_UHD.jpg) 
+2019-08-28 | [科尼西宫的花园，佛罗伦萨 (© Will Perrett/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.CorsiniGardens_ZH-CN8547012221_1920x1080.jpg) 
 
-2019-08-27 | [苏门答腊海岸正在喷发的喀拉喀托火山，印度尼西亚 (© Martin Rietze/Alamy)](https://cn.bing.com/th?id=OHR.Krakatoa_ZH-CN8471800710_UHD.jpg) 
+2019-08-27 | [苏门答腊海岸正在喷发的喀拉喀托火山，印度尼西亚 (© Martin Rietze/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.Krakatoa_ZH-CN8471800710_1920x1080.jpg) 
 
-2019-08-26 | [Gharial野生动物保护区中的两只玫瑰环鹦鹉，印度中央邦 (© Pete Oxford/Minden Pictures)](https://cn.bing.com/th?id=OHR.ParrotsIndia_ZH-CN8386276023_UHD.jpg) 
+2019-08-26 | [Gharial野生动物保护区中的两只玫瑰环鹦鹉，印度中央邦 (© Pete Oxford/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.ParrotsIndia_ZH-CN8386276023_1920x1080.jpg) 
 
-2019-08-25 | [德比郡高峰区的Winnats山口，英格兰 (© Christopher Drabble/Alamy)](https://cn.bing.com/th?id=OHR.WinnatsPass_ZH-CN8251326840_UHD.jpg) 
+2019-08-25 | [德比郡高峰区的Winnats山口，英格兰 (© Christopher Drabble/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.WinnatsPass_ZH-CN8251326840_1920x1080.jpg) 
 
-2019-08-24 | [卡特迈国家公园里的棕熊，阿拉斯加州 (© imageBROKER/SuperStock)](https://cn.bing.com/th?id=OHR.AugustBears_ZH-CN8159736622_UHD.jpg) 
+2019-08-24 | [卡特迈国家公园里的棕熊，阿拉斯加州 (© imageBROKER/SuperStock)](https://cdn.bimg.cc/bing/2019/OHR.AugustBears_ZH-CN8159736622_1920x1080.jpg) 
 
-2019-08-23 | [华盛顿州帕卢斯地区的农田 (© Art Wolfe/Getty Images)](https://cn.bing.com/th?id=OHR.FarmlandLandscape_ZH-CN8021236701_UHD.jpg) 
+2019-08-23 | [华盛顿州帕卢斯地区的农田 (© Art Wolfe/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.FarmlandLandscape_ZH-CN8021236701_1920x1080.jpg) 
 
-2019-08-22 | [哈利法塔湖中的迪拜喷泉，迪拜哈利法塔 (© Eli Asenova/Getty Images)](https://cn.bing.com/th?id=OHR.DubaiFountain_ZH-CN7944507087_UHD.jpg) 
+2019-08-22 | [哈利法塔湖中的迪拜喷泉，迪拜哈利法塔 (© Eli Asenova/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.DubaiFountain_ZH-CN7944507087_1920x1080.jpg) 
 
-2019-08-21 | [角马群穿越在肯尼亚和坦桑尼亚之间的马拉河 (© zhengvision/Getty Images)](https://cn.bing.com/th?id=OHR.MaraRiverCrossing_ZH-CN6598585392_UHD.jpg) 
+2019-08-21 | [角马群穿越在肯尼亚和坦桑尼亚之间的马拉河 (© zhengvision/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MaraRiverCrossing_ZH-CN6598585392_1920x1080.jpg) 
 
-2019-08-20 | [芬兰东部的Muje-Oulu湖 (© Topi Ylä-Mononen/plainpicture)](https://cn.bing.com/th?id=OHR.FinlandCamping_ZH-CN6418764403_UHD.jpg) 
+2019-08-20 | [芬兰东部的Muje-Oulu湖 (© Topi Ylä-Mononen/plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.FinlandCamping_ZH-CN6418764403_1920x1080.jpg) 
 
-2019-08-19 | [温特弗灵附近的费灵加湖，德国巴伐利亚 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.Feringasee_ZH-CN6335425001_UHD.jpg) 
+2019-08-19 | [温特弗灵附近的费灵加湖，德国巴伐利亚 (© Westend61/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Feringasee_ZH-CN6335425001_1920x1080.jpg) 
 
-2019-08-18 | [马格达伦群岛洞穴内部，加拿大魁北克 (© Virginie Fréchette/Getty Images)](https://cn.bing.com/th?id=OHR.MagdalenCave_ZH-CN6279630125_UHD.jpg) 
+2019-08-18 | [马格达伦群岛洞穴内部，加拿大魁北克 (© Virginie Fréchette/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MagdalenCave_ZH-CN6279630125_1920x1080.jpg) 
 
-2019-08-17 | [蜜蜂 (© Angela Parker/Offset)](https://cn.bing.com/th?id=OHR.DrinkingNectar_ZH-CN6196689688_UHD.jpg) 
+2019-08-17 | [蜜蜂 (© Angela Parker/Offset)](https://cdn.bimg.cc/bing/2019/OHR.DrinkingNectar_ZH-CN6196689688_1920x1080.jpg) 
 
-2019-08-16 | [从午夜穹顶看育空河，加拿大育空道森市 (© Robert Postma/Getty Images)](https://cn.bing.com/th?id=OHR.GoldRushYukon_ZH-CN6132080652_UHD.jpg) 
+2019-08-16 | [从午夜穹顶看育空河，加拿大育空道森市 (© Robert Postma/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.GoldRushYukon_ZH-CN6132080652_1920x1080.jpg) 
 
-2019-08-15 | [斯默根，瑞典 (© Martin Wahlborg/Getty Images Plus)](https://cn.bing.com/th?id=OHR.SmogenSweden_ZH-CN0457682922_UHD.jpg) 
+2019-08-15 | [斯默根，瑞典 (© Martin Wahlborg/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.SmogenSweden_ZH-CN0457682922_1920x1080.jpg) 
 
-2019-08-14 | [雄性和雌性的匹诺曹蜥蜴，厄瓜多尔明多 (© James Christensen/Minden Pictures)](https://cn.bing.com/th?id=OHR.HornedAnole_ZH-CN0388959247_UHD.jpg) 
+2019-08-14 | [雄性和雌性的匹诺曹蜥蜴，厄瓜多尔明多 (© James Christensen/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.HornedAnole_ZH-CN0388959247_1920x1080.jpg) 
 
-2019-08-13 | [火星快车号传来的火星南极冰盖图像 (© ESA/DLR/FU Berlin/Bill Dunford)](https://cn.bing.com/th?id=OHR.MartianSouthPole_ZH-CN0324422893_UHD.jpg) 
+2019-08-13 | [火星快车号传来的火星南极冰盖图像 (© ESA/DLR/FU Berlin/Bill Dunford)](https://cdn.bimg.cc/bing/2019/OHR.MartianSouthPole_ZH-CN0324422893_1920x1080.jpg) 
 
-2019-08-12 | [安博塞利国家公园的大象，肯尼亚 (© Adam Bannister/Offset)](https://cn.bing.com/th?id=OHR.AmboseliHerd_ZH-CN0249135007_UHD.jpg) 
+2019-08-12 | [安博塞利国家公园的大象，肯尼亚 (© Adam Bannister/Offset)](https://cdn.bimg.cc/bing/2019/OHR.AmboseliHerd_ZH-CN0249135007_1920x1080.jpg) 
 
-2019-08-11 | [一场雷雨席卷西奥多·罗斯福国家公园，北达科他州 (© Judith Zimmerman/Danita Delimont)](https://cn.bing.com/th?id=OHR.TRNPThunderstorm_ZH-CN0178957327_UHD.jpg) 
+2019-08-11 | [一场雷雨席卷西奥多·罗斯福国家公园，北达科他州 (© Judith Zimmerman/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.TRNPThunderstorm_ZH-CN0178957327_1920x1080.jpg) 
 
-2019-08-10 | [伊莎贝尔二世桥，塞维利亚 (© Zu Sanchez Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TrianaBridge_ZH-CN0107319931_UHD.jpg) 
+2019-08-10 | [伊莎贝尔二世桥，塞维利亚 (© Zu Sanchez Photography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.TrianaBridge_ZH-CN0107319931_1920x1080.jpg) 
 
-2019-08-09 | [克鲁瓦尼国家公园中杨树的抽象动态模糊影像，育空 (© Don Paulson/Jaynes Gallery/Danita Delimont)](https://cn.bing.com/th?id=OHR.KluaneAspen_ZH-CN0028056280_UHD.jpg) 
+2019-08-09 | [克鲁瓦尼国家公园中杨树的抽象动态模糊影像，育空 (© Don Paulson/Jaynes Gallery/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.KluaneAspen_ZH-CN0028056280_1920x1080.jpg) 
 
-2019-08-08 | [利尼扬蒂野生动物保护区中的一只雄性豹子，博茨瓦纳 (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LinyantiLeopard_ZH-CN9934758728_UHD.jpg) 
+2019-08-08 | [利尼扬蒂野生动物保护区中的一只雄性豹子，博茨瓦纳 (© Karine Aigner/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.LinyantiLeopard_ZH-CN9934758728_1920x1080.jpg) 
 
-2019-08-07 | [【今日七夕】 (© Martin Hale/Minden Pictures)](https://cn.bing.com/th?id=OHR.qixi_ZH-CN3534017617_UHD.jpg) 
+2019-08-07 | [【今日七夕】 (© Martin Hale/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.qixi_ZH-CN3534017617_1920x1080.jpg) 
 
-2019-08-06 | [洛斯巴鲁埃科斯自然纪念碑上的白鹳，西班牙卡塞雷斯 (© Wild Wonders of Europe/Widstrand/Minden Pictures)](https://cn.bing.com/th?id=OHR.WhiteStorksNest_ZH-CN9809680903_UHD.jpg) 
+2019-08-06 | [洛斯巴鲁埃科斯自然纪念碑上的白鹳，西班牙卡塞雷斯 (© Wild Wonders of Europe/Widstrand/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.WhiteStorksNest_ZH-CN9809680903_1920x1080.jpg) 
 
-2019-08-05 | [威斯康星州贝菲尔德附近的阿波斯特尔群岛国家湖岸，一只皮划艇正在探索砂岩海蚀洞 (© Chuck Haney/Danita Delimont)](https://cn.bing.com/th?id=OHR.ApostleIslands_ZH-CN9543695883_UHD.jpg) 
+2019-08-05 | [威斯康星州贝菲尔德附近的阿波斯特尔群岛国家湖岸，一只皮划艇正在探索砂岩海蚀洞 (© Chuck Haney/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.ApostleIslands_ZH-CN9543695883_1920x1080.jpg) 
 
-2019-08-04 | [瓦勒玛丽附近草原国家公园中的草原狐幼崽，加拿大萨斯喀彻温省 (© John E Marriott/age fotostock)](https://cn.bing.com/th?id=OHR.SwiftFox_ZH-CN9413097062_UHD.jpg) 
+2019-08-04 | [瓦勒玛丽附近草原国家公园中的草原狐幼崽，加拿大萨斯喀彻温省 (© John E Marriott/age fotostock)](https://cdn.bimg.cc/bing/2019/OHR.SwiftFox_ZH-CN9413097062_1920x1080.jpg) 
 
-2019-08-03 | [野花草甸上的一只欧亚雕鸮，德国莱茵兰-普法尔茨 (© Rosl Roessner/Minden Pictures)](https://cn.bing.com/th?id=OHR.UhuRLP_ZH-CN5421658032_UHD.jpg) 
+2019-08-03 | [野花草甸上的一只欧亚雕鸮，德国莱茵兰-普法尔茨 (© Rosl Roessner/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.UhuRLP_ZH-CN5421658032_1920x1080.jpg) 
 
-2019-08-02 | [克拉莫克湖上的倒影，英国坎布里亚湖区 (© Damian Harrison/Alamy)](https://cn.bing.com/th?id=OHR.CrummockWater_ZH-CN9317792500_UHD.jpg) 
+2019-08-02 | [克拉莫克湖上的倒影，英国坎布里亚湖区 (© Damian Harrison/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.CrummockWater_ZH-CN9317792500_1920x1080.jpg) 
 
-2019-08-01 | [夏威夷火山国家公园，夏威夷 (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LavaFlows_ZH-CN4235925500_UHD.jpg) 
+2019-08-01 | [夏威夷火山国家公园，夏威夷 (© Grant Ordelheide/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.LavaFlows_ZH-CN4235925500_1920x1080.jpg) 
 
-2019-07-31 | [巴伐利亚森林国家公园的树梢步道，德国诺伊舍瑙 (© imageBROKER/Alamy)](https://cn.bing.com/th?id=OHR.TreeTower_ZH-CN4181961177_UHD.jpg) 
+2019-07-31 | [巴伐利亚森林国家公园的树梢步道，德国诺伊舍瑙 (© imageBROKER/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.TreeTower_ZH-CN4181961177_1920x1080.jpg) 
 
-2019-07-30 | [阿尔塞多火山上的象龟，加拉帕戈斯群岛 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.TortoiseMigration_ZH-CN4128473636_UHD.jpg) 
+2019-07-30 | [阿尔塞多火山上的象龟，加拉帕戈斯群岛 (© Tui De Roy/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.TortoiseMigration_ZH-CN4128473636_1920x1080.jpg) 
 
-2019-07-29 | [胡德山国家森林里的延龄草湖，俄勒冈州 (© Frank Krahmer/Getty Images)](https://cn.bing.com/th?id=OHR.TrilliumLake_ZH-CN4079462365_UHD.jpg) 
+2019-07-29 | [胡德山国家森林里的延龄草湖，俄勒冈州 (© Frank Krahmer/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.TrilliumLake_ZH-CN4079462365_1920x1080.jpg) 
 
-2019-07-28 | [斯科默岛白玉草丛中的海鹦，威尔士彭布罗克郡 (© Ross Hoddinott/Minden Pictures)](https://cn.bing.com/th?id=OHR.PuffinSkomer_ZH-CN4039641381_UHD.jpg) 
+2019-07-28 | [斯科默岛白玉草丛中的海鹦，威尔士彭布罗克郡 (© Ross Hoddinott/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.PuffinSkomer_ZH-CN4039641381_1920x1080.jpg) 
 
-2019-07-27 | [卡惠塔国家公园的海岸线，哥斯达黎加 (© Greg Basco/Minden Pictures)](https://cn.bing.com/th?id=OHR.CahuitaNP_ZH-CN3985565209_UHD.jpg) 
+2019-07-27 | [卡惠塔国家公园的海岸线，哥斯达黎加 (© Greg Basco/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CahuitaNP_ZH-CN3985565209_1920x1080.jpg) 
 
-2019-07-26 | [温哥华岛麋鹿瀑布吊桥鸟瞰图，加拿大 (© Ink Drop/Alamy)](https://cn.bing.com/th?id=OHR.ElkFallsBridge_ZH-CN3921681387_UHD.jpg) 
+2019-07-26 | [温哥华岛麋鹿瀑布吊桥鸟瞰图，加拿大 (© Ink Drop/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.ElkFallsBridge_ZH-CN3921681387_1920x1080.jpg) 
 
-2019-07-25 | [清晨暴雨中的Cathedral，澳大利亚布法罗山 (© Ilya Genkin/Alamy)](https://cn.bing.com/th?id=OHR.CathedralMountBuffalo_ZH-CN4341947983_UHD.jpg) 
+2019-07-25 | [清晨暴雨中的Cathedral，澳大利亚布法罗山 (© Ilya Genkin/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.CathedralMountBuffalo_ZH-CN4341947983_1920x1080.jpg) 
 
-2019-07-24 | [博茨瓦纳卡拉哈里沙漠中的狐獴 (© Aluma Images/Getty Images)](https://cn.bing.com/th?id=OHR.MeerkatMob_ZH-CN3788674757_UHD.jpg) 
+2019-07-24 | [博茨瓦纳卡拉哈里沙漠中的狐獴 (© Aluma Images/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MeerkatMob_ZH-CN3788674757_1920x1080.jpg) 
 
-2019-07-23 | [直布罗陀巨岩上的人行天桥 (© Stephen Ball/Alamy)](https://cn.bing.com/th?id=OHR.Skywalk_ZH-CN3725661090_UHD.jpg) 
+2019-07-23 | [直布罗陀巨岩上的人行天桥 (© Stephen Ball/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.Skywalk_ZH-CN3725661090_1920x1080.jpg) 
 
-2019-07-22 | [一只正在吸食花蜜的蜂鸟鹰蛾，意大利撒丁岛 (© patriziomartorana/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.SardiniaHawkMoth_ZH-CN3672906054_UHD.jpg) 
+2019-07-22 | [一只正在吸食花蜜的蜂鸟鹰蛾，意大利撒丁岛 (© patriziomartorana/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.SardiniaHawkMoth_ZH-CN3672906054_1920x1080.jpg) 
 
-2019-07-21 | [白金汉宫和维多利亚女王纪念碑，伦敦 (© CTC Creative/Offset)](https://cn.bing.com/th?id=OHR.BuckinghamSummer_ZH-CN3519250117_UHD.jpg) 
+2019-07-21 | [白金汉宫和维多利亚女王纪念碑，伦敦 (© CTC Creative/Offset)](https://cdn.bimg.cc/bing/2019/OHR.BuckinghamSummer_ZH-CN3519250117_1920x1080.jpg) 
 
-2019-07-20 | [日出时分的圣皮埃尔全景，加拿大圣皮埃尔和密克隆 (© Henryk Sadura/Getty Images)](https://cn.bing.com/th?id=OHR.MiquelonPanorama_ZH-CN3614818937_UHD.jpg) 
+2019-07-20 | [日出时分的圣皮埃尔全景，加拿大圣皮埃尔和密克隆 (© Henryk Sadura/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MiquelonPanorama_ZH-CN3614818937_1920x1080.jpg) 
 
-2019-07-19 | [科罗拉多斯普林斯的上帝公园，科罗拉多州 (© lightphoto/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.GodsGarden_ZH-CN3317703606_UHD.jpg) 
+2019-07-19 | [科罗拉多斯普林斯的上帝公园，科罗拉多州 (© lightphoto/iStock/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.GodsGarden_ZH-CN3317703606_1920x1080.jpg) 
 
-2019-07-18 | [特立尼达和多巴哥的棱皮龟 (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.LeatherbackTT_ZH-CN5495532728_UHD.jpg) 
+2019-07-18 | [特立尼达和多巴哥的棱皮龟 (© Shane P. White/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.LeatherbackTT_ZH-CN5495532728_1920x1080.jpg) 
 
-2019-07-17 | [Narrenmuehle（愚人磨坊风车），德国Dülken (© dpa picture alliance/Alamy)](https://cn.bing.com/th?id=OHR.Narrenmuehle_ZH-CN5582540867_UHD.jpg) 
+2019-07-17 | [Narrenmuehle（愚人磨坊风车），德国Dülken (© dpa picture alliance/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.Narrenmuehle_ZH-CN5582540867_1920x1080.jpg) 
 
-2019-07-16 | [一只草丛里的狐狸 (© Frederic Desmette/Minden Pictures)](https://cn.bing.com/th?id=OHR.VulpesVulpes_ZH-CN5650159325_UHD.jpg) 
+2019-07-16 | [一只草丛里的狐狸 (© Frederic Desmette/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.VulpesVulpes_ZH-CN5650159325_1920x1080.jpg) 
 
-2019-07-15 | [富士山和双岩，日本松崎 (© Tommy Tsutsui/Getty Images)](https://cn.bing.com/th?id=OHR.Ushitukiiwa_ZH-CN5710944706_UHD.jpg) 
+2019-07-15 | [富士山和双岩，日本松崎 (© Tommy Tsutsui/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Ushitukiiwa_ZH-CN5710944706_1920x1080.jpg) 
 
-2019-07-14 | [Waterperry花园，英国牛津郡 (© Lauren Hibbit/Danita Delimont)](https://cn.bing.com/th?id=OHR.WaterperryGardens_ZH-CN5767279278_UHD.jpg) 
+2019-07-14 | [Waterperry花园，英国牛津郡 (© Lauren Hibbit/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.WaterperryGardens_ZH-CN5767279278_1920x1080.jpg) 
 
-2019-07-13 | [摇篮山-圣克莱尔湖国家公园 (© Rob Blakers/Getty Images)](https://cn.bing.com/th?id=OHR.CradleMountain_ZH-CN5817437189_UHD.jpg) 
+2019-07-13 | [摇篮山-圣克莱尔湖国家公园 (© Rob Blakers/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.CradleMountain_ZH-CN5817437189_1920x1080.jpg) 
 
-2019-07-12 | [加利福尼亚州雷斯岬国家海岸上的柏树隧道 (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.NightofNights_ZH-CN5872572560_UHD.jpg) 
+2019-07-12 | [加利福尼亚州雷斯岬国家海岸上的柏树隧道 (© Rachid Dahnoun/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.NightofNights_ZH-CN5872572560_1920x1080.jpg) 
 
-2019-07-11 | [夜晚的地球 (© NASA)](https://cn.bing.com/th?id=OHR.IndiaLitSpace_ZH-CN5941074986_UHD.jpg) 
+2019-07-11 | [夜晚的地球 (© NASA)](https://cdn.bimg.cc/bing/2019/OHR.IndiaLitSpace_ZH-CN5941074986_1920x1080.jpg) 
 
-2019-07-10 | [“国王的小路”上的游客，西班牙马拉加 (© Ken Welsh/Alamy)](https://cn.bing.com/th?id=OHR.KingsWalkway_ZH-CN5988888672_UHD.jpg) 
+2019-07-10 | [“国王的小路”上的游客，西班牙马拉加 (© Ken Welsh/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.KingsWalkway_ZH-CN5988888672_1920x1080.jpg) 
 
-2019-07-09 | [潘塔纳尔湿地的美洲豹，巴西 (© Andy Rouse/Minden Pictures)](https://cn.bing.com/th?id=OHR.JaguarPantanal_ZH-CN6062516404_UHD.jpg) 
+2019-07-09 | [潘塔纳尔湿地的美洲豹，巴西 (© Andy Rouse/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.JaguarPantanal_ZH-CN6062516404_1920x1080.jpg) 
 
-2019-07-08 | [舍夫沙万的蓝色墙壁，摩洛哥 (© Tatsuya Ohinata/Getty Images)](https://cn.bing.com/th?id=OHR.ChefchaouenMorocco_ZH-CN6127993429_UHD.jpg) 
+2019-07-08 | [舍夫沙万的蓝色墙壁，摩洛哥 (© Tatsuya Ohinata/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.ChefchaouenMorocco_ZH-CN6127993429_1920x1080.jpg) 
 
-2019-07-07 | [科伯克谷国家公园里的驯鹿，阿拉斯加 (© Staffan Widstrand/Minden Pictures)](https://cn.bing.com/th?id=OHR.WesternArcticHerd_ZH-CN6254887608_UHD.jpg) 
+2019-07-07 | [科伯克谷国家公园里的驯鹿，阿拉斯加 (© Staffan Widstrand/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.WesternArcticHerd_ZH-CN6254887608_1920x1080.jpg) 
 
-2019-07-06 | [巴拉涅卡尔维湾的城堡和要塞，法国科西嘉岛 (© Siephoto/Masterfile)](https://cn.bing.com/th?id=OHR.SommerCalviCorsica_ZH-CN6313433064_UHD.jpg) 
+2019-07-06 | [巴拉涅卡尔维湾的城堡和要塞，法国科西嘉岛 (© Siephoto/Masterfile)](https://cdn.bimg.cc/bing/2019/OHR.SommerCalviCorsica_ZH-CN6313433064_1920x1080.jpg) 
 
-2019-07-05 | [圣帕特里克岛上的皮尔城堡，马恩岛 (© Massimo Ripani/SIME/eStock Photo)](https://cn.bing.com/th?id=OHR.PeelCastle_ZH-CN6366204379_UHD.jpg) 
+2019-07-05 | [圣帕特里克岛上的皮尔城堡，马恩岛 (© Massimo Ripani/SIME/eStock Photo)](https://cdn.bimg.cc/bing/2019/OHR.PeelCastle_ZH-CN6366204379_1920x1080.jpg) 
 
 2019-07-04 | [德文郡南海岸的索尔科姆港，英国 (© Devon and Cornwall Photography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.SalcombeDevon_ZH-CN5806331292_1920x1080.jpg) 
 
-2019-07-03 | [特兰西瓦尼亚的川斯发格拉山公路，罗马尼亚 (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.Transfagarasan_ZH-CN5760731327_UHD.jpg) 
+2019-07-03 | [特兰西瓦尼亚的川斯发格拉山公路，罗马尼亚 (© Calin Stan/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.Transfagarasan_ZH-CN5760731327_1920x1080.jpg) 
 
-2019-07-02 | [2017年8月21日的一组日食镜头 (© Lindsay Daniels/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BailysBeads_ZH-CN5728297739_UHD.jpg) 
+2019-07-02 | [2017年8月21日的一组日食镜头 (© Lindsay Daniels/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.BailysBeads_ZH-CN5728297739_1920x1080.jpg) 
 
-2019-07-01 | [【香港回归22周年】 (© ViewStock/Getty Images)](https://cn.bing.com/th?id=OHR.HKreuni_ZH-CN5683726370_UHD.jpg) 
+2019-07-01 | [【香港回归22周年】 (© ViewStock/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.HKreuni_ZH-CN5683726370_1920x1080.jpg) 
 
-2019-06-30 | [金拟花鮨鱼群游过珊瑚，印度洋马约特岛 (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedAnthiasCoralMayotte_ZH-CN5646370533_UHD.jpg) 
+2019-06-30 | [金拟花鮨鱼群游过珊瑚，印度洋马约特岛 (© Gabriel Barathieu/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.RedAnthiasCoralMayotte_ZH-CN5646370533_1920x1080.jpg) 
 
-2019-06-29 | [一只正在摆姿势的穴鸮，佛罗里达州开普科勒尔 (© mlorenzphotography/Getty Images)](https://cn.bing.com/th?id=OHR.BurrowingOwlet_ZH-CN5583013899_UHD.jpg) 
+2019-06-29 | [一只正在摆姿势的穴鸮，佛罗里达州开普科勒尔 (© mlorenzphotography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.BurrowingOwlet_ZH-CN5583013899_1920x1080.jpg) 
 
-2019-06-28 | [蒙特勒和日内瓦湖，瑞士 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.Montreux_ZH-CN5485205583_UHD.jpg) 
+2019-06-28 | [蒙特勒和日内瓦湖，瑞士 (© Westend61/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Montreux_ZH-CN5485205583_1920x1080.jpg) 
 
-2019-06-27 | [印度活根桥 (© dhritipurna/Shutterstock)](https://cn.bing.com/th?id=OHR.RootBridge_ZH-CN5173953292_UHD.jpg) 
+2019-06-27 | [印度活根桥 (© dhritipurna/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.RootBridge_ZH-CN5173953292_1920x1080.jpg) 
 
-2019-06-26 | [格拉斯顿伯里托尔和圣迈克尔塔，英格兰 (© Spraggon Photography/Getty Images Plus)](https://cn.bing.com/th?id=OHR.GlastonburyTor_ZH-CN4673691420_UHD.jpg) 
+2019-06-26 | [格拉斯顿伯里托尔和圣迈克尔塔，英格兰 (© Spraggon Photography/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.GlastonburyTor_ZH-CN4673691420_1920x1080.jpg) 
 
-2019-06-25 | [新西兰的萨瑟兰瀑布和奎尔湖 (© Michael Rathmayr/plainpicture)](https://cn.bing.com/th?id=OHR.SutherlandFalls_ZH-CN4602884079_UHD.jpg) 
+2019-06-25 | [新西兰的萨瑟兰瀑布和奎尔湖 (© Michael Rathmayr/plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.SutherlandFalls_ZH-CN4602884079_1920x1080.jpg) 
 
-2019-06-24 | [吕宋岛上的萤火虫环绕着榄仁树，菲律宾南甘马粦省 (© Jurgen Freund/Minden Pictures)](https://cn.bing.com/th?id=OHR.PhilippinesFirefly_ZH-CN4519927697_UHD.jpg) 
+2019-06-24 | [吕宋岛上的萤火虫环绕着榄仁树，菲律宾南甘马粦省 (© Jurgen Freund/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.PhilippinesFirefly_ZH-CN4519927697_1920x1080.jpg) 
 
-2019-06-23 | [Dardanup郡的小矮人村，澳大利亚 (© Amanda Hughes/Alamy)](https://cn.bing.com/th?id=OHR.Gnomesville_ZH-CN4402652527_UHD.jpg) 
+2019-06-23 | [Dardanup郡的小矮人村，澳大利亚 (© Amanda Hughes/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.Gnomesville_ZH-CN4402652527_1920x1080.jpg) 
 
-2019-06-22 | [马瑙斯附近的亚马逊河流域鸟瞰图，巴西 (© Art Wolfe/Danita Delimont)](https://cn.bing.com/th?id=OHR.ManausBasin_ZH-CN4303809335_UHD.jpg) 
+2019-06-22 | [马瑙斯附近的亚马逊河流域鸟瞰图，巴西 (© Art Wolfe/Danita Delimont)](https://cdn.bimg.cc/bing/2019/OHR.ManausBasin_ZH-CN4303809335_1920x1080.jpg) 
 
-2019-06-21 | [从上布法罗荒野地区的惠特克顶小道向东看，阿肯色州奥沙克国家森林 (© Jens Lambert Photography/Getty Images Plus)](https://cn.bing.com/th?id=OHR.HawksbillCrag_ZH-CN4429681235_UHD.jpg) 
+2019-06-21 | [从上布法罗荒野地区的惠特克顶小道向东看，阿肯色州奥沙克国家森林 (© Jens Lambert Photography/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.HawksbillCrag_ZH-CN4429681235_1920x1080.jpg) 
 
-2019-06-20 | [一种常见茅膏菜（圆叶茅膏菜）的粘性叶片，法国孚日省 (© Christophe Sidamon-Pesson/Minden Pictures)](https://cn.bing.com/th?id=OHR.CommonSundewVosges_ZH-CN0507660055_UHD.jpg) 
+2019-06-20 | [一种常见茅膏菜（圆叶茅膏菜）的粘性叶片，法国孚日省 (© Christophe Sidamon-Pesson/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.CommonSundewVosges_ZH-CN0507660055_1920x1080.jpg) 
 
-2019-06-19 | [格伦德根花园的樱桃月桂树迷宫鸟瞰图，英国康沃尔 (© Richard Cooke/Alamy)](https://cn.bing.com/th?id=OHR.CherryLaurelMaze_ZH-CN9887470516_UHD.jpg) 
+2019-06-19 | [格伦德根花园的樱桃月桂树迷宫鸟瞰图，英国康沃尔 (© Richard Cooke/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.CherryLaurelMaze_ZH-CN9887470516_1920x1080.jpg) 
 
-2019-06-18 | [勃艮第蜗牛，也称为食用蜗牛 (© Heidi and Hans-Juergen Koch/Minden Pictures)](https://cn.bing.com/th?id=OHR.HelixPomatia_ZH-CN9785223494_UHD.jpg) 
+2019-06-18 | [勃艮第蜗牛，也称为食用蜗牛 (© Heidi and Hans-Juergen Koch/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.HelixPomatia_ZH-CN9785223494_1920x1080.jpg) 
 
-2019-06-17 | [安克雷奇的秃鹰，阿拉斯加 (© Ron Niebrugge/Alamy)](https://cn.bing.com/th?id=OHR.AlaskaEagle_ZH-CN9957205086_UHD.jpg) 
+2019-06-17 | [安克雷奇的秃鹰，阿拉斯加 (© Ron Niebrugge/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.AlaskaEagle_ZH-CN9957205086_1920x1080.jpg) 
 
-2019-06-16 | [南非卡拉哈迪跨界公园的雄性非洲狮和它的幼崽 (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.PantheraLeoDad_ZH-CN9580668524_UHD.jpg) 
+2019-06-16 | [南非卡拉哈迪跨界公园的雄性非洲狮和它的幼崽 (© Richard Du Toit/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.PantheraLeoDad_ZH-CN9580668524_1920x1080.jpg) 
 
-2019-06-15 | [大沙丘上的日落，加拿大萨斯喀彻温省 (© Robert Postma/plainpicture)](https://cn.bing.com/th?id=OHR.SaskFlowers_ZH-CN9497517721_UHD.jpg) 
+2019-06-15 | [大沙丘上的日落，加拿大萨斯喀彻温省 (© Robert Postma/plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.SaskFlowers_ZH-CN9497517721_1920x1080.jpg) 
 
-2019-06-14 | [大叶绣球花上的一对日本树蛙，日本滋贺 (© Mitsuhiko Imamori/Minden)](https://cn.bing.com/th?id=OHR.TreeFrog_ZH-CN9016355758_UHD.jpg) 
+2019-06-14 | [大叶绣球花上的一对日本树蛙，日本滋贺 (© Mitsuhiko Imamori/Minden)](https://cdn.bimg.cc/bing/2019/OHR.TreeFrog_ZH-CN9016355758_1920x1080.jpg) 
 
-2019-06-13 | [塞尚山，法国普罗旺斯艾克斯 (© travelview/iStock)](https://cn.bing.com/th?id=OHR.SainteVictoireCezanneBirthday_ZH-CN8216109812_UHD.jpg) 
+2019-06-13 | [塞尚山，法国普罗旺斯艾克斯 (© travelview/iStock)](https://cdn.bimg.cc/bing/2019/OHR.SainteVictoireCezanneBirthday_ZH-CN8216109812_1920x1080.jpg) 
 
-2019-06-12 | [位于大本德国家公园的格兰德河和卡门山脉，得克萨斯州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RioGrande_ZH-CN8091224199_UHD.jpg) 
+2019-06-12 | [位于大本德国家公园的格兰德河和卡门山脉，得克萨斯州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.RioGrande_ZH-CN8091224199_1920x1080.jpg) 
 
-2019-06-11 | [富士山与丛生福禄考花田，日本山梨县 (© Srinil/shutterstock)](https://cn.bing.com/th?id=OHR.FujiSakura_ZH-CN8005792871_UHD.jpg) 
+2019-06-11 | [富士山与丛生福禄考花田，日本山梨县 (© Srinil/shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.FujiSakura_ZH-CN8005792871_1920x1080.jpg) 
 
-2019-06-10 | [阿尔加维海岸附近的Ponta da Piedade岩层，葡萄牙 (© David Santiago Garcia/Offset)](https://cn.bing.com/th?id=OHR.PontadaPiedade_ZH-CN7717691454_UHD.jpg) 
+2019-06-10 | [阿尔加维海岸附近的Ponta da Piedade岩层，葡萄牙 (© David Santiago Garcia/Offset)](https://cdn.bimg.cc/bing/2019/OHR.PontadaPiedade_ZH-CN7717691454_1920x1080.jpg) 
 
-2019-06-09 | [蓝翅黄森莺，加拿大安大略省 (© Bill Coster/Minden Pictures)](https://cn.bing.com/th?id=OHR.OntWarbler_ZH-CN7999782156_UHD.jpg) 
+2019-06-09 | [蓝翅黄森莺，加拿大安大略省 (© Bill Coster/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.OntWarbler_ZH-CN7999782156_1920x1080.jpg) 
 
-2019-06-08 | [吉利群岛上生长着珊瑚的人工珊瑚礁，印度尼西亚 (© fenkieandreas/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Biorocks_ZH-CN7851264095_UHD.jpg) 
+2019-06-08 | [吉利群岛上生长着珊瑚的人工珊瑚礁，印度尼西亚 (© fenkieandreas/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.Biorocks_ZH-CN7851264095_1920x1080.jpg) 
 
-2019-06-07 | [【今日端午节】 (© Xinhua/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.dragonboat_ZH-CN0697680986_UHD.jpg) 
+2019-06-07 | [【今日端午节】 (© Xinhua/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2019/OHR.dragonboat_ZH-CN0697680986_1920x1080.jpg) 
 
-2019-06-06 | [诺曼底入侵后的桑树港遗址，法国诺曼底Arromanches les Bains (© Javier Gil/Alamy)](https://cn.bing.com/th?id=OHR.MulberryArtificialHarbour_ZH-CN3973249802_UHD.jpg) 
+2019-06-06 | [诺曼底入侵后的桑树港遗址，法国诺曼底Arromanches les Bains (© Javier Gil/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.MulberryArtificialHarbour_ZH-CN3973249802_1920x1080.jpg) 
 
-2019-06-05 | [秘鲁亚马逊坦博帕塔国家保护区中的树冠 (© Patrick Brandenburg/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PeruvianRainforest_ZH-CN4066508593_UHD.jpg) 
+2019-06-05 | [秘鲁亚马逊坦博帕塔国家保护区中的树冠 (© Patrick Brandenburg/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2019/OHR.PeruvianRainforest_ZH-CN4066508593_1920x1080.jpg) 
 
-2019-06-04 | [摩洛哥扎戈拉附近的椰枣树林 (© Frans Lemmens/Getty Images)](https://cn.bing.com/th?id=OHR.VastPalmGrove_ZH-CN4145018538_UHD.jpg) 
+2019-06-04 | [摩洛哥扎戈拉附近的椰枣树林 (© Frans Lemmens/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.VastPalmGrove_ZH-CN4145018538_1920x1080.jpg) 
 
-2019-06-03 | [一只躺在沙滩上的港海豹幼崽，德国黑尔戈兰岛 (© Fotofeeling/Westend61/Offset)](https://cn.bing.com/th?id=OHR.HeligolandSealPup_ZH-CN4217382978_UHD.jpg) 
+2019-06-03 | [一只躺在沙滩上的港海豹幼崽，德国黑尔戈兰岛 (© Fotofeeling/Westend61/Offset)](https://cdn.bimg.cc/bing/2019/OHR.HeligolandSealPup_ZH-CN4217382978_1920x1080.jpg) 
 
-2019-06-02 | [苏格兰福斯湾的巴斯岩 (© Richard Shucksmith/Minden Pictures)](https://cn.bing.com/th?id=OHR.BassRock_ZH-CN4418828352_UHD.jpg) 
+2019-06-02 | [苏格兰福斯湾的巴斯岩 (© Richard Shucksmith/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.BassRock_ZH-CN4418828352_1920x1080.jpg) 
 
-2019-06-01 | [爱荷华州中部的高架栈桥 (© Kelly van Dellen/Getty Images Plus)](https://cn.bing.com/th?id=OHR.HighTrestleTrail_ZH-CN4499525731_UHD.jpg) 
+2019-06-01 | [爱荷华州中部的高架栈桥 (© Kelly van Dellen/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.HighTrestleTrail_ZH-CN4499525731_1920x1080.jpg) 
 
-2019-05-31 | [俄勒冈州Zumwalt Prairie的草原土墩 (© Michael Durham/Minden Pictures)](https://cn.bing.com/th?id=OHR.ZumwaltPrairie_ZH-CN4572430876_UHD.jpg) 
+2019-05-31 | [俄勒冈州Zumwalt Prairie的草原土墩 (© Michael Durham/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.ZumwaltPrairie_ZH-CN4572430876_1920x1080.jpg) 
 
-2019-05-30 | [2018年曼哈顿悬日期间的克莱斯勒大厦与42号街，纽约市 (© Dennis Fischer Photography/Getty Images)](https://cn.bing.com/th?id=OHR.Manhattanhenge_ZH-CN4659585143_UHD.jpg) 
+2019-05-30 | [2018年曼哈顿悬日期间的克莱斯勒大厦与42号街，纽约市 (© Dennis Fischer Photography/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Manhattanhenge_ZH-CN4659585143_1920x1080.jpg) 
 
-2019-05-29 | [草地上的罂粟和矢车菊，德国北莱茵-威斯特法伦州 (© imageBROKER/Alamy)](https://cn.bing.com/th?id=OHR.BlumenwieseNRW_ZH-CN4774429225_UHD.jpg) 
+2019-05-29 | [草地上的罂粟和矢车菊，德国北莱茵-威斯特法伦州 (© imageBROKER/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.BlumenwieseNRW_ZH-CN4774429225_1920x1080.jpg) 
 
-2019-05-28 | [沿海的雾，加拿大纽芬兰 (© Scott Leslie/Minden Pictures)](https://cn.bing.com/th?id=OHR.NFLDfog_ZH-CN4846953507_UHD.jpg) 
+2019-05-28 | [沿海的雾，加拿大纽芬兰 (© Scott Leslie/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.NFLDfog_ZH-CN4846953507_1920x1080.jpg) 
 
-2019-05-27 | [彭布鲁克郡海岸国家公园中的Pitting Gales Point，西威尔士 (© Sebastian Wasek/Getty Images)](https://cn.bing.com/th?id=OHR.PittingGalesPoint_ZH-CN4893591142_UHD.jpg) 
+2019-05-27 | [彭布鲁克郡海岸国家公园中的Pitting Gales Point，西威尔士 (© Sebastian Wasek/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.PittingGalesPoint_ZH-CN4893591142_1920x1080.jpg) 
 
-2019-05-26 | [圣米歇尔山 (© Leroy Francis/Getty Images)](https://cn.bing.com/th?id=OHR.MarathonduMont_ZH-CN5049722437_UHD.jpg) 
+2019-05-26 | [圣米歇尔山 (© Leroy Francis/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.MarathonduMont_ZH-CN5049722437_1920x1080.jpg) 
 
-2019-05-25 | [春天里的一只雄性开普梅莺 (© JZHunt/Getty Images Plus)](https://cn.bing.com/th?id=OHR.CapeMayWarbler_ZH-CN5148312890_UHD.jpg) 
+2019-05-25 | [春天里的一只雄性开普梅莺 (© JZHunt/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.CapeMayWarbler_ZH-CN5148312890_1920x1080.jpg) 
 
-2019-05-24 | [麦克米伦省级公园里的神殿林，加拿大不列颠哥伦比亚省 (© Robert Postma/Shutterstock)](https://cn.bing.com/th?id=OHR.MacmillanForest_ZH-CN5295176479_UHD.jpg) 
+2019-05-24 | [麦克米伦省级公园里的神殿林，加拿大不列颠哥伦比亚省 (© Robert Postma/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.MacmillanForest_ZH-CN5295176479_1920x1080.jpg) 
 
-2019-05-23 | [库拉索普拉亚格兰迪海滩附近的绿海龟和沙丁鱼 (© yfhishinuma/Getty Images Plus)](https://cn.bing.com/th?id=OHR.CuracaoTurtle_ZH-CN5468901173_UHD.jpg) 
+2019-05-23 | [库拉索普拉亚格兰迪海滩附近的绿海龟和沙丁鱼 (© yfhishinuma/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.CuracaoTurtle_ZH-CN5468901173_1920x1080.jpg) 
 
-2019-05-22 | [澳大利亚太平洋海岸的海崖大桥 (© Nick Fox/Alamy)](https://cn.bing.com/th?id=OHR.SeaCliffBridge_ZH-CN5362667487_UHD.jpg) 
+2019-05-22 | [澳大利亚太平洋海岸的海崖大桥 (© Nick Fox/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.SeaCliffBridge_ZH-CN5362667487_1920x1080.jpg) 
 
-2019-05-21 | [圣伊莱亚斯国家公园中的铜河三角洲，阿拉斯加 (© Frans Lanting/plainpicture)](https://cn.bing.com/th?id=OHR.CRDelta_ZH-CN5088201492_UHD.jpg) 
+2019-05-21 | [圣伊莱亚斯国家公园中的铜河三角洲，阿拉斯加 (© Frans Lanting/plainpicture)](https://cdn.bimg.cc/bing/2019/OHR.CRDelta_ZH-CN5088201492_1920x1080.jpg) 
 
-2019-05-20 | [一只身上粘满南瓜花粉的蜜蜂，德国 (© Konrad Wothe/Minden Pictures)](https://cn.bing.com/th?id=OHR.BeeWeek_ZH-CN4917222816_UHD.jpg) 
+2019-05-20 | [一只身上粘满南瓜花粉的蜜蜂，德国 (© Konrad Wothe/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.BeeWeek_ZH-CN4917222816_1920x1080.jpg) 
 
-2019-05-19 | [Ghyakar村，尼泊尔上木斯塘 (© Frank Bienewald/Alamy)](https://cn.bing.com/th?id=OHR.Ghyakar_ZH-CN4631836915_UHD.jpg) 
+2019-05-19 | [Ghyakar村，尼泊尔上木斯塘 (© Frank Bienewald/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.Ghyakar_ZH-CN4631836915_1920x1080.jpg) 
 
-2019-05-18 | [山毛榉树林里的蓝铃花，英国赫特福德郡 (© Dan Tucker/Alamy)](https://cn.bing.com/th?id=OHR.BluebellBeech_ZH-CN8269343251_UHD.jpg) 
+2019-05-18 | [山毛榉树林里的蓝铃花，英国赫特福德郡 (© Dan Tucker/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.BluebellBeech_ZH-CN8269343251_1920x1080.jpg) 
 
-2019-05-17 | [the Pura Meduwe Karang神庙中雕刻艺术家W.O.J.Nieuwenkamp的作品，印度尼西亚巴厘岛 (© John Elk III/Getty Images)](https://cn.bing.com/th?id=OHR.BicycleRelief_ZH-CN4483533362_UHD.jpg) 
+2019-05-17 | [the Pura Meduwe Karang神庙中雕刻艺术家W.O.J.Nieuwenkamp的作品，印度尼西亚巴厘岛 (© John Elk III/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.BicycleRelief_ZH-CN4483533362_1920x1080.jpg) 
 
-2019-05-16 | [来自人工智能的画作《思念》 (© 微软小冰)](https://cn.bing.com/th?id=OHR.xiaoicepainting_ZH-CN8581660984_UHD.jpg) 
+2019-05-16 | [来自人工智能的画作《思念》 (© 微软小冰)](https://cdn.bimg.cc/bing/2019/OHR.xiaoicepainting_ZH-CN8581660984_1920x1080.jpg) 
 
-2019-05-15 | [松树上的一只美国黑熊幼崽，加拿大贾斯珀国家公园 (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.JasperCub_ZH-CN4314891686_UHD.jpg) 
+2019-05-15 | [松树上的一只美国黑熊幼崽，加拿大贾斯珀国家公园 (© Donald M. Jones/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.JasperCub_ZH-CN4314891686_1920x1080.jpg) 
 
-2019-05-14 | [戛纳，法国 (© Manjik Photography/Alamy)](https://cn.bing.com/th?id=OHR.BlueCannes_ZH-CN1811852585_UHD.jpg) 
+2019-05-14 | [戛纳，法国 (© Manjik Photography/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.BlueCannes_ZH-CN1811852585_1920x1080.jpg) 
 
-2019-05-13 | [松木国家森林，佛罗里达州 (© plainpicture/Cavan Images)](https://cn.bing.com/th?id=OHR.PineLogSP_ZH-CN1105763820_UHD.jpg) 
+2019-05-13 | [松木国家森林，佛罗里达州 (© plainpicture/Cavan Images)](https://cdn.bimg.cc/bing/2019/OHR.PineLogSP_ZH-CN1105763820_1920x1080.jpg) 
 
-2019-05-12 | [琼斯海滩岛上的笛鸻和它的幼崽 (© Vicki Jauron/Getty Images)](https://cn.bing.com/th?id=OHR.PipingPlover_ZH-CN0992806167_UHD.jpg) 
+2019-05-12 | [琼斯海滩岛上的笛鸻和它的幼崽 (© Vicki Jauron/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.PipingPlover_ZH-CN0992806167_1920x1080.jpg) 
 
-2019-05-11 | [荷兰阿姆斯特丹附近赞瑟斯汉斯村里古老的风车 (© Matt Cooper/Gallery Stock)](https://cn.bing.com/th?id=OHR.ZaanseSchans_ZH-CN5665496862_UHD.jpg) 
+2019-05-11 | [荷兰阿姆斯特丹附近赞瑟斯汉斯村里古老的风车 (© Matt Cooper/Gallery Stock)](https://cdn.bimg.cc/bing/2019/OHR.ZaanseSchans_ZH-CN5665496862_1920x1080.jpg) 
 
-2019-05-10 | [圣克鲁斯岛上的一只岛屿灰狐，加利福尼亚州海峡群岛国家公园 (© Ian Shive/Tandem Motion + Stills)](https://cn.bing.com/th?id=OHR.ChannelIslandFox_ZH-CN5568101953_UHD.jpg) 
+2019-05-10 | [圣克鲁斯岛上的一只岛屿灰狐，加利福尼亚州海峡群岛国家公园 (© Ian Shive/Tandem Motion + Stills)](https://cdn.bimg.cc/bing/2019/OHR.ChannelIslandFox_ZH-CN5568101953_1920x1080.jpg) 
 
 2019-05-09 | [塞伦盖蒂国家公园里的斑马群，坦桑尼亚 (© pchoui/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.SerengetiZebra_ZH-CN9007197602_1920x1080.jpg) 
 
@@ -5613,7 +5613,7 @@
 
 2019-03-09 | [葡萄藤上的葡萄，阿根廷门多萨 (© javarman3/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2019/OHR.GrapeHarvest_ZH-CN9372743517_1920x1080.jpg) 
 
-2019-03-08 | [出席2016年国际妇女节庆祝仪式的联合国海地稳定特派团的女警察 (© Hector Retamal/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.Policewomen_ZH-CN9260416327_UHD.jpg) 
+2019-03-08 | [出席2016年国际妇女节庆祝仪式的联合国海地稳定特派团的女警察 (© Hector Retamal/AFP/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.Policewomen_ZH-CN9260416327_1920x1080.jpg) 
 
 2019-03-07 | [迷失荷兰人国家公园里盛开的野花，亚利桑那 (© Tim Fitzharris/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.BrittlebushBloom_ZH-CN9198170508_1920x1080.jpg) 
 
@@ -5657,7 +5657,7 @@
 
 2019-02-15 | [汤西川温泉雪屋祭，日本栃木县 (© Em7/Shutterstock)](https://cdn.bimg.cc/bing/2019/OHR.Kamakura_ZH-CN4324380274_1920x1080.jpg) 
 
-2019-02-14 | [交颈组成心形的灰冠鹤 (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.HeartCranes_ROW1989469410_UHD.jpg) 
+2019-02-14 | [交颈组成心形的灰冠鹤 (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.HeartCranes_ROW1989469410_1920x1080.jpg) 
 
 2019-02-13 | [彩色灯光下的冰柱，日本秩父市 (© JTB Photo/UIG/age fotostock)](https://cdn.bimg.cc/bing/2019/OHR.Misotsuchi_ZH-CN5137902045_1920x1080.jpg) 
 
@@ -5703,155 +5703,155 @@
 
 2019-01-23 | [冬天里的一棵苹果树 (© Chris Stein/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.ApfelTag_ZH-CN7906570680_1920x1080.jpg) 
 
-2019-01-22 | [伊修斯酒庄，西班牙拉里奥哈 (© Mike Randolph/Masterfile)](https://cn.bing.com/th?id=OHR.BodegasYsios_EN-AU4068043796_UHD.jpg) 
+2019-01-22 | [伊修斯酒庄，西班牙拉里奥哈 (© Mike Randolph/Masterfile)](https://cn.bing.com/th?id=OHR.BodegasYsios_EN-AU4068043796_1920x1080.jpg) 
 
-2019-01-21 | [一只欧洲金翅雀栖息在雪中的玫瑰果枝上 (© Ernie Janes/Nature Picture Library/Offset)](https://cn.bing.com/th?id=OHR.GoldfinchSnow_EN-AU0026372013_UHD.jpg) 
+2019-01-21 | [一只欧洲金翅雀栖息在雪中的玫瑰果枝上 (© Ernie Janes/Nature Picture Library/Offset)](https://cn.bing.com/th?id=OHR.GoldfinchSnow_EN-AU0026372013_1920x1080.jpg) 
 
-2019-01-20 | [罗斯海中的帝企鹅，南极洲 (© Paul Nicklen/Getty Images)](https://cn.bing.com/th?id=OHR.DivingEmperors_EN-AU9700060815_UHD.jpg) 
+2019-01-20 | [罗斯海中的帝企鹅，南极洲 (© Paul Nicklen/Getty Images)](https://cn.bing.com/th?id=OHR.DivingEmperors_EN-AU9700060815_1920x1080.jpg) 
 
-2019-01-19 | [迈阿密滨海大道，美国佛罗里达州 (© Guido Cozzi/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.OceanDrive_EN-AU9424629590_UHD.jpg) 
+2019-01-19 | [迈阿密滨海大道，美国佛罗里达州 (© Guido Cozzi/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.OceanDrive_EN-AU9424629590_1920x1080.jpg) 
 
-2019-01-18 | [凡尔赛花园中的拉托纳喷泉，法国巴黎 (© Arnaud Chicurel/SuperStock)](https://cn.bing.com/th?id=OHR.LatonaFountain_EN-AU9033977869_UHD.jpg) 
+2019-01-18 | [凡尔赛花园中的拉托纳喷泉，法国巴黎 (© Arnaud Chicurel/SuperStock)](https://cn.bing.com/th?id=OHR.LatonaFountain_EN-AU9033977869_1920x1080.jpg) 
 
 2019-01-17 | [英格兰，萨默塞特 (© Guy Edwardes/Minden Pictures)](https://cdn.bimg.cc/bing/2019/OHR.UKSomerset_ZH-CN2587621995_1920x1080.jpg) 
 
-2019-01-16 | [一名登山者攀爬阿萨巴斯卡冰川时，北极光当空闪耀，加拿大贾斯珀国家公园 (© Paul Zizka/Aurora Photos)](https://cn.bing.com/th?id=OHR.AthabascaCave_EN-AU0628983693_UHD.jpg) 
+2019-01-16 | [一名登山者攀爬阿萨巴斯卡冰川时，北极光当空闪耀，加拿大贾斯珀国家公园 (© Paul Zizka/Aurora Photos)](https://cn.bing.com/th?id=OHR.AthabascaCave_EN-AU0628983693_1920x1080.jpg) 
 
-2019-01-15 | [大英博物馆独特的屋顶及其周边地区 (© Vladimir Zakharov/Getty Images)](https://cn.bing.com/th?id=OHR.BM1759_EN-AU0329493905_UHD.jpg) 
+2019-01-15 | [大英博物馆独特的屋顶及其周边地区 (© Vladimir Zakharov/Getty Images)](https://cn.bing.com/th?id=OHR.BM1759_EN-AU0329493905_1920x1080.jpg) 
 
 2019-01-14 | [塞舌尔群岛之一的拉迪戈岛 (© Oleksandr Dibrova/Adobe Stock)](https://cdn.bimg.cc/bing/2019/OHR.LaDigue_ZH-CN2774523529_1920x1080.jpg) 
 
-2019-01-13 | [阿尔泰山脉中一名用老鹰狩猎的骑手，蒙古 (© Timothy Allen/Getty Images)](https://cn.bing.com/th?id=OHR.GoldenEagle_EN-AU9816441405_UHD.jpg) 
+2019-01-13 | [阿尔泰山脉中一名用老鹰狩猎的骑手，蒙古 (© Timothy Allen/Getty Images)](https://cn.bing.com/th?id=OHR.GoldenEagle_EN-AU9816441405_1920x1080.jpg) 
 
-2019-01-12 | [“西伯利亚杯”冬季风筝冲浪比赛，俄罗斯新西伯利亚 (© Kirill Kukhmar/Getty Images)](https://cn.bing.com/th?id=OHR.Snowkiters_EN-AU9603475374_UHD.jpg) 
+2019-01-12 | [“西伯利亚杯”冬季风筝冲浪比赛，俄罗斯新西伯利亚 (© Kirill Kukhmar/Getty Images)](https://cn.bing.com/th?id=OHR.Snowkiters_EN-AU9603475374_1920x1080.jpg) 
 
-2019-01-11 | [泰夫劳特镇，摩洛哥 (© Doug Pearson Photography/plainpicture)](https://cn.bing.com/th?id=OHR.NapoleonsHat_EN-AU5099662657_UHD.jpg) 
+2019-01-11 | [泰夫劳特镇，摩洛哥 (© Doug Pearson Photography/plainpicture)](https://cn.bing.com/th?id=OHR.NapoleonsHat_EN-AU5099662657_1920x1080.jpg) 
 
 2019-01-10 | [冰钓渔村，加拿大魁北克 (© Hemis/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.SaguenayIceFishing_ZH-CN9008067301_1920x1080.jpg) 
 
-2019-01-09 | [木阿洞穴，越南宁平 (© Cavan Images/Offset)](https://cn.bing.com/th?id=OHR.VietnamStairs_EN-AU4320366505_UHD.jpg) 
+2019-01-09 | [木阿洞穴，越南宁平 (© Cavan Images/Offset)](https://cn.bing.com/th?id=OHR.VietnamStairs_EN-AU4320366505_1920x1080.jpg) 
 
-2019-01-08 | [瑞尼尔山国家公园，美国华盛顿州 (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RainierDawn_EN-AU3730494945_UHD.jpg) 
+2019-01-08 | [瑞尼尔山国家公园，美国华盛顿州 (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RainierDawn_EN-AU3730494945_1920x1080.jpg) 
 
 2019-01-07 | [一只在雪中驻立的雪鸮 (© Jérémie LeBlond-Fontaine/Getty Images)](https://cdn.bimg.cc/bing/2019/OHR.SnowyOwlVideo_ZH-CN9249781901_1920x1080.jpg) 
 
-2019-01-06 | [哈尔滨冰雪节，中国 (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.TwilightHarbin_EN-AU2725726491_UHD.jpg) 
+2019-01-06 | [哈尔滨冰雪节，中国 (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.TwilightHarbin_EN-AU2725726491_1920x1080.jpg) 
 
-2019-01-05 | [巴黎歌剧院穹顶上的夏加尔画作 (© Stephane Gautier/agefotostock)](https://cn.bing.com/th?id=OHR.ParisOpera_EN-AU1557621930_UHD.jpg) 
+2019-01-05 | [巴黎歌剧院穹顶上的夏加尔画作 (© Stephane Gautier/agefotostock)](https://cn.bing.com/th?id=OHR.ParisOpera_EN-AU1557621930_1920x1080.jpg) 
 
-2019-01-04 | [兰茨胡特的触觉地图，德国 (© Zoonar GmbH/Alamy)](https://cn.bing.com/th?id=OHR.LandshutReliefMap_EN-AU1211690012_UHD.jpg) 
+2019-01-04 | [兰茨胡特的触觉地图，德国 (© Zoonar GmbH/Alamy)](https://cn.bing.com/th?id=OHR.LandshutReliefMap_EN-AU1211690012_1920x1080.jpg) 
 
 2019-01-03 | [一只冬眠的瓢虫，英国特温 (© James Pearce/Alamy)](https://cdn.bimg.cc/bing/2019/OHR.LadyBugFrost_ZH-CN0796268333_1920x1080.jpg) 
 
-2019-01-02 | [发明家尼古拉·特斯拉和他的“放大发射机” (© Nikola Tesla Museum/Science Photo Library)](https://cn.bing.com/th?id=OHR.TeslaCoil_EN-AU8096924390_UHD.jpg) 
+2019-01-02 | [发明家尼古拉·特斯拉和他的“放大发射机” (© Nikola Tesla Museum/Science Photo Library)](https://cn.bing.com/th?id=OHR.TeslaCoil_EN-AU8096924390_1920x1080.jpg) 
 
 2019-01-01 | [【今日元旦】  (© The Art Archive/SuperStock)](https://cdn.bimg.cc/bing/2019/OHR.Newyear_ZH-CN7704868471_1920x1080.jpg) 
 
-2018-12-31 | [跨年烟火表演，伦敦 (© Anadolu Agency/Getty Images)](https://cn.bing.com/th?id=OHR.EyeFireworks_EN-AU4834024020_UHD.jpg) 
+2018-12-31 | [跨年烟火表演，伦敦 (© Anadolu Agency/Getty Images)](https://cn.bing.com/th?id=OHR.EyeFireworks_EN-AU4834024020_1920x1080.jpg) 
 
-2018-12-30 | [巴厘岛海域的一只海蛞蝓 (© Media Drum World/Alamy)](https://cn.bing.com/th?id=OHR.Shaun_EN-AU4549414138_UHD.jpg) 
+2018-12-30 | [巴厘岛海域的一只海蛞蝓 (© Media Drum World/Alamy)](https://cn.bing.com/th?id=OHR.Shaun_EN-AU4549414138_1920x1080.jpg) 
 
-2018-12-29 | [罗弗敦群岛上空的北极光，挪威 (© arnaudbertrande/Getty Images)](https://cn.bing.com/th?id=OHR.NLNorway_EN-AU4158829752_UHD.jpg) 
+2018-12-29 | [罗弗敦群岛上空的北极光，挪威 (© arnaudbertrande/Getty Images)](https://cn.bing.com/th?id=OHR.NLNorway_EN-AU4158829752_1920x1080.jpg) 
 
-2018-12-28 | [大提顿国家公园里的一只白头鹰，美国怀俄明州 (© Kathleen Reeder Wildlife Photography/Getty Images)](https://cn.bing.com/th?id=OHR.WYBaldEagle_EN-AU3747996768_UHD.jpg) 
+2018-12-28 | [大提顿国家公园里的一只白头鹰，美国怀俄明州 (© Kathleen Reeder Wildlife Photography/Getty Images)](https://cn.bing.com/th?id=OHR.WYBaldEagle_EN-AU3747996768_1920x1080.jpg) 
 
-2018-12-27 | [毕士达喷泉，纽约 (© Mitchell Funk/Getty Images)](https://cn.bing.com/th?id=OHR.BethesdaSnow_JA-JP6092831884_UHD.jpg) 
+2018-12-27 | [毕士达喷泉，纽约 (© Mitchell Funk/Getty Images)](https://cn.bing.com/th?id=OHR.BethesdaSnow_JA-JP6092831884_1920x1080.jpg) 
 
 2018-12-26 | [伦敦牛津街的十字路口 (© Matt Cheetham/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.OxfordBoxing_ZH-CN2854964515_1920x1080.jpg) 
 
-2018-12-25 | [【今日圣诞节】冬日风景 (© Nimia)](https://cn.bing.com/th?id=OHR.ToyXmasTree_EN-AU7637478450_UHD.jpg) 
+2018-12-25 | [【今日圣诞节】冬日风景 (© Nimia)](https://cn.bing.com/th?id=OHR.ToyXmasTree_EN-AU7637478450_1920x1080.jpg) 
 
-2018-12-24 | [萨尔茨堡，奥地利 (© MacEaton/Alamy)](https://cn.bing.com/th?id=OHR.SilentNight_EN-AU0461958841_UHD.jpg) 
+2018-12-24 | [萨尔茨堡，奥地利 (© MacEaton/Alamy)](https://cn.bing.com/th?id=OHR.SilentNight_EN-AU0461958841_1920x1080.jpg) 
 
-2018-12-23 | [拉文纳峡谷圣诞市集 ，德国 (© Daniel Schoenen/Aurora Photos)](https://cn.bing.com/th?id=OHR.Ravennaschlucht_EN-AU3424818520_UHD.jpg) 
+2018-12-23 | [拉文纳峡谷圣诞市集 ，德国 (© Daniel Schoenen/Aurora Photos)](https://cn.bing.com/th?id=OHR.Ravennaschlucht_EN-AU3424818520_1920x1080.jpg) 
 
-2018-12-22 | [黄石国家公园里正在升起的月亮  (© Tom Murphy/Getty Images)](https://cn.bing.com/th?id=OHR.ColdMoonRising_EN-AU9869603276_UHD.jpg) 
+2018-12-22 | [黄石国家公园里正在升起的月亮  (© Tom Murphy/Getty Images)](https://cn.bing.com/th?id=OHR.ColdMoonRising_EN-AU9869603276_1920x1080.jpg) 
 
-2018-12-21 | [圣达菲的Farolito，美国新墨西哥州 (© Julien McRoberts/Danita Delimont)](https://cn.bing.com/th?id=OHR.AdobeSantaFe_EN-AU3063917358_UHD.jpg) 
+2018-12-21 | [圣达菲的Farolito，美国新墨西哥州 (© Julien McRoberts/Danita Delimont)](https://cn.bing.com/th?id=OHR.AdobeSantaFe_EN-AU3063917358_1920x1080.jpg) 
 
-2018-12-20 | [名花之里冬季彩灯展，日本桑名市 (© Julian Krakowiak/Alamy)](https://cn.bing.com/th?id=OHR.WinterIllumination_EN-AU9373805444_UHD.jpg) 
+2018-12-20 | [名花之里冬季彩灯展，日本桑名市 (© Julian Krakowiak/Alamy)](https://cn.bing.com/th?id=OHR.WinterIllumination_EN-AU9373805444_1920x1080.jpg) 
 
-2018-12-19 | [查理大桥，捷克布拉格 (© borchee/E+/Getty Images)](https://cn.bing.com/th?id=OHR.PragueChristmas_EN-AU8649790921_UHD.jpg) 
+2018-12-19 | [查理大桥，捷克布拉格 (© borchee/E+/Getty Images)](https://cn.bing.com/th?id=OHR.PragueChristmas_EN-AU8649790921_1920x1080.jpg) 
 
-2018-12-18 | [正在表演“胡桃夹子”芭蕾舞剧的莫斯科芭蕾舞团 (© Tytus Zmijewski/Epa/Shutterstock)](https://cn.bing.com/th?id=OHR.NutcrackerSeason_EN-AU8373379424_UHD.jpg) 
+2018-12-18 | [正在表演“胡桃夹子”芭蕾舞剧的莫斯科芭蕾舞团 (© Tytus Zmijewski/Epa/Shutterstock)](https://cn.bing.com/th?id=OHR.NutcrackerSeason_EN-AU8373379424_1920x1080.jpg) 
 
-2018-12-17 | [长曝光摄影下的奥索尤斯小镇车流 (© Bun Lee/Media Drum World/Aurora Photos)](https://cn.bing.com/th?id=OHR.OsoyoosExpressway_EN-AU12955968650_UHD.jpg) 
+2018-12-17 | [长曝光摄影下的奥索尤斯小镇车流 (© Bun Lee/Media Drum World/Aurora Photos)](https://cn.bing.com/th?id=OHR.OsoyoosExpressway_EN-AU12955968650_1920x1080.jpg) 
 
-2018-12-16 | [运河旁的节日装饰品，意大利穆拉诺岛 (© John Warburton-Lee/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.MuranoChristmas_EN-AU10759540271_UHD.jpg) 
+2018-12-16 | [运河旁的节日装饰品，意大利穆拉诺岛 (© John Warburton-Lee/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.MuranoChristmas_EN-AU10759540271_1920x1080.jpg) 
 
 2018-12-15 | [优胜美地国家公园美熹德河上的石人桥 (© Ron_Thomas/E+/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.YosemiteBridge_ZH-CN10163806053_1920x1080.jpg) 
 
-2018-12-14 | [一只雌性北美红雀 (© Matthew Studebaker/Minden Pictures)](https://cn.bing.com/th?id=OHR.CardinalBerries_EN-AU11262203078_UHD.jpg) 
+2018-12-14 | [一只雌性北美红雀 (© Matthew Studebaker/Minden Pictures)](https://cn.bing.com/th?id=OHR.CardinalBerries_EN-AU11262203078_1920x1080.jpg) 
 
-2018-12-13 | [雷克雅未克的夜景 (© Arctic-Images/Corbis Documentary/Getty Images)](https://cn.bing.com/th?id=OHR.ReykjavikYuleLads_EN-AU11288116047_UHD.jpg) 
+2018-12-13 | [雷克雅未克的夜景 (© Arctic-Images/Corbis Documentary/Getty Images)](https://cn.bing.com/th?id=OHR.ReykjavikYuleLads_EN-AU11288116047_1920x1080.jpg) 
 
-2018-12-12 | [一品红的花蕾 (© Wild Wonders of Europe/Radisics/Minden Pictures)](https://cn.bing.com/th?id=OHR.PoinsettiaBuds_EN-AU11909781257_UHD.jpg) 
+2018-12-12 | [一品红的花蕾 (© Wild Wonders of Europe/Radisics/Minden Pictures)](https://cn.bing.com/th?id=OHR.PoinsettiaBuds_EN-AU11909781257_1920x1080.jpg) 
 
-2018-12-11 | [乞力马扎罗山，肯尼亚 (© Lucas Vallecillos/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.KilimanjaroMawenzi_EN-AU11195362920_UHD.jpg) 
+2018-12-11 | [乞力马扎罗山，肯尼亚 (© Lucas Vallecillos/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.KilimanjaroMawenzi_EN-AU11195362920_1920x1080.jpg) 
 
-2018-12-10 | [一只正在迁徙的圣诞岛红蟹 (© Ingo Arndt/Minden Pictures)](https://cn.bing.com/th?id=OHR.ChristmasIslandCrab_EN-AU11734696998_UHD.jpg) 
+2018-12-10 | [一只正在迁徙的圣诞岛红蟹 (© Ingo Arndt/Minden Pictures)](https://cn.bing.com/th?id=OHR.ChristmasIslandCrab_EN-AU11734696998_1920x1080.jpg) 
 
-2018-12-09 | [被雪覆盖的彩绘山丘，美国俄勒冈州  (© Floris van Breugel/Minden Pictures)](https://cn.bing.com/th?id=OHR.JohnDaySnow_EN-AU9302838803_UHD.jpg) 
+2018-12-09 | [被雪覆盖的彩绘山丘，美国俄勒冈州  (© Floris van Breugel/Minden Pictures)](https://cn.bing.com/th?id=OHR.JohnDaySnow_EN-AU9302838803_1920x1080.jpg) 
 
-2018-12-08 | [班夫国家公园内的双杰克湖，加拿大阿尔伯塔省 (© Aurora Photos/Offset by Shutterstock)](https://cn.bing.com/th?id=OHR.BanffEvergreens_EN-AU12780032283_UHD.jpg) 
+2018-12-08 | [班夫国家公园内的双杰克湖，加拿大阿尔伯塔省 (© Aurora Photos/Offset by Shutterstock)](https://cn.bing.com/th?id=OHR.BanffEvergreens_EN-AU12780032283_1920x1080.jpg) 
 
-2018-12-07 | [【今日大雪】被大雪覆盖的合掌屋，日本白川乡 (© Toyofumi Mori/Getty Images)](https://cn.bing.com/th?id=OHR.TaisetsuShirakawago_JA-JP12009900747_UHD.jpg) 
+2018-12-07 | [【今日大雪】被大雪覆盖的合掌屋，日本白川乡 (© Toyofumi Mori/Getty Images)](https://cn.bing.com/th?id=OHR.TaisetsuShirakawago_JA-JP12009900747_1920x1080.jpg) 
 
-2018-12-06 | [在赫尔辛基的一只雕鸮 (© Markus Varesvuo/Minden Pictures)](https://cn.bing.com/th?id=OHR.Huuhkajat_EN-AU10665360880_UHD.jpg) 
+2018-12-06 | [在赫尔辛基的一只雕鸮 (© Markus Varesvuo/Minden Pictures)](https://cn.bing.com/th?id=OHR.Huuhkajat_EN-AU10665360880_1920x1080.jpg) 
 
-2018-12-05 | [室外冰壶锦标赛，新西兰 (© David Wall/Danita Delimont)](https://cn.bing.com/th?id=OHR.CurlingBonspiel_EN-AU6638213482_UHD.jpg) 
+2018-12-05 | [室外冰壶锦标赛，新西兰 (© David Wall/Danita Delimont)](https://cn.bing.com/th?id=OHR.CurlingBonspiel_EN-AU6638213482_1920x1080.jpg) 
 
 2018-12-04 | [斯芬克斯天文台，瑞士 (© Jan Greune/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.SphinxObservatory_ZH-CN7733546261_1920x1080.jpg) 
 
-2018-12-03 | [艾伦·图灵的笔记本 (© Spencer Platt/Getty Images News)](https://cn.bing.com/th?id=OHR.AlanTuringNotebook_EN-AU7743633207_UHD.jpg) 
+2018-12-03 | [艾伦·图灵的笔记本 (© Spencer Platt/Getty Images News)](https://cn.bing.com/th?id=OHR.AlanTuringNotebook_EN-AU7743633207_1920x1080.jpg) 
 
 2018-12-02 | [努克，格陵兰岛 (© nevereverro/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.Nuuk_ZH-CN12127666588_1920x1080.jpg) 
 
-2018-12-01 | [南极的日落 (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedAntarctica_EN-AU12197122155_UHD.jpg) 
+2018-12-01 | [南极的日落 (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedAntarctica_EN-AU12197122155_1920x1080.jpg) 
 
-2018-11-30 | [基尔亨城堡，苏格兰 (© Jon Arnold/Danita Delimont)](https://cn.bing.com/th?id=OHR.KilchurnSky_EN-AU9115024751_UHD.jpg) 
+2018-11-30 | [基尔亨城堡，苏格兰 (© Jon Arnold/Danita Delimont)](https://cn.bing.com/th?id=OHR.KilchurnSky_EN-AU9115024751_1920x1080.jpg) 
 
-2018-11-29 | [法兰克福圣诞集市，德国 (© Patrice von Collani/Westend61/Offset)](https://cn.bing.com/th?id=OHR.FrankfurtXmas_EN-AU9289866662_UHD.jpg) 
+2018-11-29 | [法兰克福圣诞集市，德国 (© Patrice von Collani/Westend61/Offset)](https://cn.bing.com/th?id=OHR.FrankfurtXmas_EN-AU9289866662_1920x1080.jpg) 
 
-2018-11-28 | [眺望圣艾夫斯湾的戈德雷维灯塔，英国康沃尔郡 (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.GodrevyLighthouse_EN-AU10503280912_UHD.jpg) 
+2018-11-28 | [眺望圣艾夫斯湾的戈德雷维灯塔，英国康沃尔郡 (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.GodrevyLighthouse_EN-AU10503280912_1920x1080.jpg) 
 
 2018-11-27 | [北极狐，挪威多夫勒山 (© Andy Trowbridge/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.FoxMolt_ZH-CN7917304192_1920x1080.jpg) 
 
-2018-11-26 | [纽约中央公园内的爱丽丝梦游仙境雕塑，美国纽约  (© Diego Grandi/Shutterstock)](https://cn.bing.com/th?id=OHR.AliceCentralPark_EN-AU9031006021_UHD.jpg) 
+2018-11-26 | [纽约中央公园内的爱丽丝梦游仙境雕塑，美国纽约  (© Diego Grandi/Shutterstock)](https://cn.bing.com/th?id=OHR.AliceCentralPark_EN-AU9031006021_1920x1080.jpg) 
 
-2018-11-25 | [在划艇上方的北极光，加拿大纽芬兰 (© Adam Woodworth/Aurora Photos)](https://cn.bing.com/th?id=OHR.NorsteadLights_EN-AU10671353253_UHD.jpg) 
+2018-11-25 | [在划艇上方的北极光，加拿大纽芬兰 (© Adam Woodworth/Aurora Photos)](https://cn.bing.com/th?id=OHR.NorsteadLights_EN-AU10671353253_1920x1080.jpg) 
 
-2018-11-24 | [站在巨龟头上的达尔文雀 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.DarwinOrigin_EN-AU14530151991_UHD.jpg) 
+2018-11-24 | [站在巨龟头上的达尔文雀 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.DarwinOrigin_EN-AU14530151991_1920x1080.jpg) 
 
-2018-11-23 | [科莫湖，意大利瓦伦纳 (© Andrea Comi/Getty Images)](https://cn.bing.com/th?id=OHR.VarennaSnow_EN-AU8379460546_UHD.jpg) 
+2018-11-23 | [科莫湖，意大利瓦伦纳 (© Andrea Comi/Getty Images)](https://cn.bing.com/th?id=OHR.VarennaSnow_EN-AU8379460546_1920x1080.jpg) 
 
-2018-11-22 | [艾布湖，德国巴伐利亚 (© plainpicture/BY)](https://cn.bing.com/th?id=OHR.EibseeHerbst_EN-AU10470771604_UHD.jpg) 
+2018-11-22 | [艾布湖，德国巴伐利亚 (© plainpicture/BY)](https://cn.bing.com/th?id=OHR.EibseeHerbst_EN-AU10470771604_1920x1080.jpg) 
 
-2018-11-21 | [布雷肯比肯斯国家公园的野生小马，英国威尔士 (© Justin Foulkes/SIME/eStock Photo)](https://cn.bing.com/th?id=OHR.PoniesWales_EN-AU12228719072_UHD.jpg) 
+2018-11-21 | [布雷肯比肯斯国家公园的野生小马，英国威尔士 (© Justin Foulkes/SIME/eStock Photo)](https://cn.bing.com/th?id=OHR.PoniesWales_EN-AU12228719072_1920x1080.jpg) 
 
-2018-11-20 | [在百内国家公园上空飞翔的智利红鹳，智利 (© Ben Hall/Minden Pictures)](https://cn.bing.com/th?id=OHR.TDPflamingos_EN-AU9923017546_UHD.jpg) 
+2018-11-20 | [在百内国家公园上空飞翔的智利红鹳，智利 (© Ben Hall/Minden Pictures)](https://cn.bing.com/th?id=OHR.TDPflamingos_EN-AU9923017546_1920x1080.jpg) 
 
-2018-11-19 | [锡安国家公园内的维尔京河，美国犹他州 (© Justinreznick/Getty Images)](https://cn.bing.com/th?id=OHR.NarrowsZion_EN-AU8919763491_UHD.jpg) 
+2018-11-19 | [锡安国家公园内的维尔京河，美国犹他州 (© Justinreznick/Getty Images)](https://cn.bing.com/th?id=OHR.NarrowsZion_EN-AU8919763491_1920x1080.jpg) 
 
-2018-11-18 | [乔治亚水族馆，美国亚特兰大 (© novikat/Getty Images)](https://cn.bing.com/th?id=OHR.GeorgiaAquarium_EN-AU12896401074_UHD.jpg) 
+2018-11-18 | [乔治亚水族馆，美国亚特兰大 (© novikat/Getty Images)](https://cn.bing.com/th?id=OHR.GeorgiaAquarium_EN-AU12896401074_1920x1080.jpg) 
 
-2018-11-17 | [沉睡的柯莫德熊，加拿大英属哥伦比亚 (© John E Marriott/SuperStock)](https://cn.bing.com/th?id=OHR.SpiritBearSleeps_EN-AU7883048709_UHD.jpg) 
+2018-11-17 | [沉睡的柯莫德熊，加拿大英属哥伦比亚 (© John E Marriott/SuperStock)](https://cn.bing.com/th?id=OHR.SpiritBearSleeps_EN-AU7883048709_1920x1080.jpg) 
 
-2018-11-16 | [奇里比克特山脉国家自然公园的古代岩画，哥伦比亚 (© Steve Winter/Getty Images)](https://cn.bing.com/th?id=OHR.ChiribiqueteNP_EN-AU10713623298_UHD.jpg) 
+2018-11-16 | [奇里比克特山脉国家自然公园的古代岩画，哥伦比亚 (© Steve Winter/Getty Images)](https://cn.bing.com/th?id=OHR.ChiribiqueteNP_EN-AU10713623298_1920x1080.jpg) 
 
 2018-11-15 | [刘易斯和克拉克国家历史公园，美国俄勒冈州 (© Morey Milbradt/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.EcolaSP_ZH-CN10746626161_1920x1080.jpg) 
 
-2018-11-14 | [奥赛博物馆展出的莫奈作品，法国巴黎 (Photo © VCG Wilson/Corbis via Getty Images)](https://cn.bing.com/th?id=OHR.LeGivre_EN-AU7576437900_UHD.jpg) 
+2018-11-14 | [奥赛博物馆展出的莫奈作品，法国巴黎 (Photo © VCG Wilson/Corbis via Getty Images)](https://cn.bing.com/th?id=OHR.LeGivre_EN-AU7576437900_1920x1080.jpg) 
 
-2018-11-13 | [飞过密西西比河面的小天鹅，美国明尼苏达州 (© National Geographic Image Collection/Alamy)](https://cn.bing.com/th?id=OHR.TundraSwanMN_EN-AU11075882211_UHD.jpg) 
+2018-11-13 | [飞过密西西比河面的小天鹅，美国明尼苏达州 (© National Geographic Image Collection/Alamy)](https://cn.bing.com/th?id=OHR.TundraSwanMN_EN-AU11075882211_1920x1080.jpg) 
 
-2018-11-12 | [哈默斯利峡谷里的石头结构，澳大利亚 (© Frank Krahmer/Corbis Documentary/Getty Images)](https://cn.bing.com/th?id=OHR.HamersleyGorge_EN-AU6119915173_UHD.jpg) 
+2018-11-12 | [哈默斯利峡谷里的石头结构，澳大利亚 (© Frank Krahmer/Corbis Documentary/Getty Images)](https://cn.bing.com/th?id=OHR.HamersleyGorge_EN-AU6119915173_1920x1080.jpg) 
 
-2018-11-11 | [帝国战争博物馆北馆内的装置艺术‘Blood Swept Lands and Seas of Red’，英国曼彻斯特 (© Christopher Furlong/Getty Images)](https://cn.bing.com/th?id=OHR.WavePoppy_EN-AU9071800685_UHD.jpg) 
+2018-11-11 | [帝国战争博物馆北馆内的装置艺术‘Blood Swept Lands and Seas of Red’，英国曼彻斯特 (© Christopher Furlong/Getty Images)](https://cn.bing.com/th?id=OHR.WavePoppy_EN-AU9071800685_1920x1080.jpg) 
 
-2018-11-10 | [恶地国家公园 (© Tetra Images/Getty Images)](https://cn.bing.com/th?id=OHR.BadlandsBday_EN-AU10299777329_UHD.jpg) 
+2018-11-10 | [恶地国家公园 (© Tetra Images/Getty Images)](https://cn.bing.com/th?id=OHR.BadlandsBday_EN-AU10299777329_1920x1080.jpg) 
 
-2018-11-09 | [科尔科瓦杜国家公园的盘菌 (© Alex Hyde/Minden Pictures)](https://cn.bing.com/th?id=OHR.CupFungus_EN-AU8870948617_UHD.jpg) 
+2018-11-09 | [科尔科瓦杜国家公园的盘菌 (© Alex Hyde/Minden Pictures)](https://cn.bing.com/th?id=OHR.CupFungus_EN-AU8870948617_1920x1080.jpg) 
 
 2018-11-08 | [蓝色温泉州立公园内的海牛，美国佛罗里达州 (© Paul Nicklen/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.ManateeAwareness_ZH-CN7743165279_1920x1080.jpg) 
 
@@ -5859,121 +5859,121 @@
 
 2018-11-06 | [蜂窝状风化作用，澳大利亚 (© Ralph Lee Hopkins/Shutterstock/Offset)](https://cdn.bimg.cc/bing/2018/OHR.HoneycombKoolamaBay_ZH-CN8963688992_1920x1080.jpg) 
 
-2018-11-05 | [新天鹅堡，德国巴伐利亚 (© Boris Jordan Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnNeuschwanstein_EN-AU10604288553_UHD.jpg) 
+2018-11-05 | [新天鹅堡，德国巴伐利亚 (© Boris Jordan Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AutumnNeuschwanstein_EN-AU10604288553_1920x1080.jpg) 
 
-2018-11-04 | [韦拉札诺海峡大桥上的赛跑者，美国纽约州 (© David Madison/Getty Images)](https://cn.bing.com/th?id=OHR.NYCM_EN-AU8962861446_UHD.jpg) 
+2018-11-04 | [韦拉札诺海峡大桥上的赛跑者，美国纽约州 (© David Madison/Getty Images)](https://cn.bing.com/th?id=OHR.NYCM_EN-AU8962861446_1920x1080.jpg) 
 
-2018-11-03 | [羚羊岛州立公园内的美洲野牛，美国犹他州  (© Conor Barry/Aurora Photos)](https://cn.bing.com/th?id=OHR.BisonDay_EN-AU9060544603_UHD.jpg) 
+2018-11-03 | [羚羊岛州立公园内的美洲野牛，美国犹他州  (© Conor Barry/Aurora Photos)](https://cn.bing.com/th?id=OHR.BisonDay_EN-AU9060544603_1920x1080.jpg) 
 
-2018-11-02 | [卡拉维拉人偶，墨西哥亡灵节 (© PvE/Alamy)](https://cn.bing.com/th?id=OHR.DeadPhotographer_EN-US9480942912_UHD.jpg) 
+2018-11-02 | [卡拉维拉人偶，墨西哥亡灵节 (© PvE/Alamy)](https://cn.bing.com/th?id=OHR.DeadPhotographer_EN-US9480942912_1920x1080.jpg) 
 
 2018-11-01 | [大山，日本神奈川县 (© Katsuhiro Yamanashi/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.OyamaLeaves_ZH-CN10033445271_1920x1080.jpg) 
 
-2018-10-31 | [幽灵电影院 (© Getty ｜ Shutterstock)](https://cn.bing.com/th?id=OHR.TheaterLostSouls_EN-AU9247537981_UHD.jpg) 
+2018-10-31 | [幽灵电影院 (© Getty ｜ Shutterstock)](https://cn.bing.com/th?id=OHR.TheaterLostSouls_EN-AU9247537981_1920x1080.jpg) 
 
-2018-10-30 | [伏翼 (© Mario Cea Sanchez/Minden Pictures)](https://cn.bing.com/th?id=OHR.CommonPipistrelle_EN-AU7421359791_UHD.jpg) 
+2018-10-30 | [伏翼 (© Mario Cea Sanchez/Minden Pictures)](https://cn.bing.com/th?id=OHR.CommonPipistrelle_EN-AU7421359791_1920x1080.jpg) 
 
-2018-10-29 | [南瓜园，美国宾夕法尼亚州 (© Beck Photography/Aurora Photos)](https://cn.bing.com/th?id=OHR.PumpkinPatch_EN-AU15054547949_UHD.jpg) 
+2018-10-29 | [南瓜园，美国宾夕法尼亚州 (© Beck Photography/Aurora Photos)](https://cn.bing.com/th?id=OHR.PumpkinPatch_EN-AU15054547949_1920x1080.jpg) 
 
-2018-10-28 | [凡尔赛花园，法国 (© Lindsay Daniels/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.VersaillesGhosts_EN-AU13230111547_UHD.jpg) 
+2018-10-28 | [凡尔赛花园，法国 (© Lindsay Daniels/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.VersaillesGhosts_EN-AU13230111547_1920x1080.jpg) 
 
-2018-10-27 | [玉米迷宫，美国佩塔卢马  (© Gallery Stock)](https://cn.bing.com/th?id=OHR.CornMaze_EN-AU12455937800_UHD.jpg) 
+2018-10-27 | [玉米迷宫，美国佩塔卢马  (© Gallery Stock)](https://cn.bing.com/th?id=OHR.CornMaze_EN-AU12455937800_1920x1080.jpg) 
 
-2018-10-26 | [布雷顿角岛的夕阳，加拿大新斯科舍省 (© Mike Grandmaison/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CapeBretonSunset_EN-AU10231293487_UHD.jpg) 
+2018-10-26 | [布雷顿角岛的夕阳，加拿大新斯科舍省 (© Mike Grandmaison/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CapeBretonSunset_EN-AU10231293487_1920x1080.jpg) 
 
-2018-10-25 | [盖亚尔城堡，法国雷安德利斯镇 (© Francis Cormon/age fotostock)](https://cn.bing.com/th?id=OHR.ChateauGaillard_EN-AU11027430397_UHD.jpg) 
+2018-10-25 | [盖亚尔城堡，法国雷安德利斯镇 (© Francis Cormon/age fotostock)](https://cn.bing.com/th?id=OHR.ChateauGaillard_EN-AU11027430397_1920x1080.jpg) 
 
-2018-10-24 | [大教堂广场上方的白鸽装置艺术，意大利阿马尔菲 (© LatitudeStock – TTL/Getty Images)](https://cn.bing.com/th?id=OHR.DovesPiazza_EN-AU11041089534_UHD.jpg) 
+2018-10-24 | [大教堂广场上方的白鸽装置艺术，意大利阿马尔菲 (© LatitudeStock – TTL/Getty Images)](https://cn.bing.com/th?id=OHR.DovesPiazza_EN-AU11041089534_1920x1080.jpg) 
 
 2018-10-23 | [液氮 (© Sunny/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.LiquidNitrogen_ZH-CN9276021591_1920x1080.jpg) 
 
-2018-10-22 | [玛丽亚岛上的塔斯马尼亚袋熊，澳大利亚塔斯马尼亚州 (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.PointLesueur_EN-AU7674211601_UHD.jpg) 
+2018-10-22 | [玛丽亚岛上的塔斯马尼亚袋熊，澳大利亚塔斯马尼亚州 (© Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.PointLesueur_EN-AU7674211601_1920x1080.jpg) 
 
-2018-10-21 | [塞万提斯国际艺术节，墨西哥瓜纳华托州 (© Hector Vivas/Getty Images)](https://cn.bing.com/th?id=OHR.FICPlanets_EN-AU11696191570_UHD.jpg) 
+2018-10-21 | [塞万提斯国际艺术节，墨西哥瓜纳华托州 (© Hector Vivas/Getty Images)](https://cn.bing.com/th?id=OHR.FICPlanets_EN-AU11696191570_1920x1080.jpg) 
 
-2018-10-20 | [瓦莱塔，马耳他 (© Adrian Malanca/Getty Images)](https://cn.bing.com/th?id=OHR.VallettaMalta_ZH-CN11321825930_UHD.jpg) 
+2018-10-20 | [瓦莱塔，马耳他 (© Adrian Malanca/Getty Images)](https://cn.bing.com/th?id=OHR.VallettaMalta_ZH-CN11321825930_1920x1080.jpg) 
 
 2018-10-19 | [波特兰，美国缅因州 (© CFW Photography/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.WorkingHarbor_ZH-CN10722095387_1920x1080.jpg) 
 
-2018-10-18 | [门登霍尔湖上的冰山，美国阿拉斯加州 (© John Hyde/age fotostock)](https://cn.bing.com/th?id=OHR.MendenhalLake_EN-AU8702202262_UHD.jpg) 
+2018-10-18 | [门登霍尔湖上的冰山，美国阿拉斯加州 (© John Hyde/age fotostock)](https://cn.bing.com/th?id=OHR.MendenhalLake_EN-AU8702202262_1920x1080.jpg) 
 
 2018-10-17 | [【今日重阳节】复兴公园里跳探戈的人们，中国上海 (© GARDEL Bertrand/hemis.fr/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.chongyang_ZH-CN10246105371_1920x1080.jpg) 
 
-2018-10-16 | [站在非洲水牛鼻头上的黄嘴牛椋鸟，肯尼亚 (© Susan Portnoy/Offset)](https://cn.bing.com/th?id=OHR.OxpeckerBoss_EN-AU6807610910_UHD.jpg) 
+2018-10-16 | [站在非洲水牛鼻头上的黄嘴牛椋鸟，肯尼亚 (© Susan Portnoy/Offset)](https://cn.bing.com/th?id=OHR.OxpeckerBoss_EN-AU6807610910_1920x1080.jpg) 
 
-2018-10-15 | [紫马岭公园内的水杉，中国中山市 (© Yaorusheng/Getty Images)](https://cn.bing.com/th?id=OHR.DawnRedwoods_EN-AU11213367899_UHD.jpg) 
+2018-10-15 | [紫马岭公园内的水杉，中国中山市 (© Yaorusheng/Getty Images)](https://cn.bing.com/th?id=OHR.DawnRedwoods_EN-AU11213367899_1920x1080.jpg) 
 
-2018-10-14 | [柏林灯光节期间的博德博物馆 (© fhm/Getty Images)](https://cn.bing.com/th?id=OHR.BodeBerlin_EN-AU6982399462_UHD.jpg) 
+2018-10-14 | [柏林灯光节期间的博德博物馆 (© fhm/Getty Images)](https://cn.bing.com/th?id=OHR.BodeBerlin_EN-AU6982399462_1920x1080.jpg) 
 
-2018-10-13 | [激光艺术'0 Degrees'，英国格林威治 (© Norah Saudan/Getty)](https://cn.bing.com/th?id=OHR.ZeroDegrees_EN-AU10117368234_UHD.jpg) 
+2018-10-13 | [激光艺术'0 Degrees'，英国格林威治 (© Norah Saudan/Getty)](https://cn.bing.com/th?id=OHR.ZeroDegrees_EN-AU10117368234_1920x1080.jpg) 
 
-2018-10-12 | [史前洞窟壁画国际艺术中心内的“高仿”拉斯科洞穴壁画，法国蒙蒂尼亚克 (© Caroline Blumberg/Epa/Shutterstock)](https://cn.bing.com/th?id=OHR.LascauxCavePainting_EN-AU11733576571_UHD.jpg) 
+2018-10-12 | [史前洞窟壁画国际艺术中心内的“高仿”拉斯科洞穴壁画，法国蒙蒂尼亚克 (© Caroline Blumberg/Epa/Shutterstock)](https://cn.bing.com/th?id=OHR.LascauxCavePainting_EN-AU11733576571_1920x1080.jpg) 
 
-2018-10-11 | [沙滩上的女学生们，印度喀拉拉邦 (© imageBROKER/Alamy)](https://cn.bing.com/th?id=OHR.SchoolGirls_EN-AU10666418108_UHD.jpg) 
+2018-10-11 | [沙滩上的女学生们，印度喀拉拉邦 (© imageBROKER/Alamy)](https://cn.bing.com/th?id=OHR.SchoolGirls_EN-AU10666418108_1920x1080.jpg) 
 
-2018-10-10 | [哈勃望远镜下的土星 (© NASA)](https://cn.bing.com/th?id=OHR.HubbleSaturn_EN-AU12572317531_UHD.jpg) 
+2018-10-10 | [哈勃望远镜下的土星 (© NASA)](https://cn.bing.com/th?id=OHR.HubbleSaturn_EN-AU12572317531_1920x1080.jpg) 
 
 2018-10-09 | [克莱德港的马歇尔角灯塔，美国缅因州 (© S. Greg Panosian/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.MarshallPoint_ZH-CN9062933060_1920x1080.jpg) 
 
 2018-10-08 | [冉冉升起的热气球，美国新墨西哥州 (© Blaine Harrington III/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.SandiaSunrise_ZH-CN11155504388_1920x1080.jpg) 
 
-2018-10-07 | [第26届叠人塔大赛的选手们， 西班牙塔拉戈纳 (© Xinhua/Pau Barrena/Getty Images)](https://cn.bing.com/th?id=OHR.HumanTower_EN-AU8948459298_UHD.jpg) 
+2018-10-07 | [第26届叠人塔大赛的选手们， 西班牙塔拉戈纳 (© Xinhua/Pau Barrena/Getty Images)](https://cn.bing.com/th?id=OHR.HumanTower_EN-AU8948459298_1920x1080.jpg) 
 
-2018-10-06 | [盐泉岛上的苹果树，加拿大不列颠哥伦比亚省 (© Radius Images/Offset)](https://cn.bing.com/th?id=OHR.SaltApple_EN-AU13056568956_UHD.jpg) 
+2018-10-06 | [盐泉岛上的苹果树，加拿大不列颠哥伦比亚省 (© Radius Images/Offset)](https://cn.bing.com/th?id=OHR.SaltApple_EN-AU13056568956_1920x1080.jpg) 
 
-2018-10-05 | [无法真正微笑的章鱼 (© blickwinkel/Alamy)](https://cn.bing.com/th?id=OHR.SmilingOctopus_EN-AU7303849274_UHD.jpg) 
+2018-10-05 | [无法真正微笑的章鱼 (© blickwinkel/Alamy)](https://cn.bing.com/th?id=OHR.SmilingOctopus_EN-AU7303849274_1920x1080.jpg) 
 
-2018-10-04 | [从朱诺号上观察到的木星风暴 (© NASA/JPL-Caltech/SwRI/MSSS/Gerald Eichstadt/Sean Doran)](https://cn.bing.com/th?id=OHR.JovianCloudscape_EN-AU11726040455_UHD.jpg) 
+2018-10-04 | [从朱诺号上观察到的木星风暴 (© NASA/JPL-Caltech/SwRI/MSSS/Gerald Eichstadt/Sean Doran)](https://cn.bing.com/th?id=OHR.JovianCloudscape_EN-AU11726040455_1920x1080.jpg) 
 
-2018-10-03 | [黑脉金斑蝶大迁徙，墨西哥米却肯州 (© Alejandro Prieto/Minden Pictures)](https://cn.bing.com/th?id=OHR.MonarchSky_EN-AU11810865458_UHD.jpg) 
+2018-10-03 | [黑脉金斑蝶大迁徙，墨西哥米却肯州 (© Alejandro Prieto/Minden Pictures)](https://cn.bing.com/th?id=OHR.MonarchSky_EN-AU11810865458_1920x1080.jpg) 
 
-2018-10-02 | [北瀑布国家公园内的Ouzel湖，美国华盛顿州 (© Ethan Welty)](https://cn.bing.com/th?id=OHR.AlpineLarches_EN-AU10073049083_UHD.jpg) 
+2018-10-02 | [北瀑布国家公园内的Ouzel湖，美国华盛顿州 (© Ethan Welty)](https://cn.bing.com/th?id=OHR.AlpineLarches_EN-AU10073049083_1920x1080.jpg) 
 
 2018-10-01 | [【今日国庆节】放国旗风筝的人，中国上海 (© Qilai Shen/Bloomberg via Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.guoqing_ZH-CN10903461145_1920x1080.jpg) 
 
-2018-09-30 | [戈尔韦港，爱尔兰戈尔韦 (© ClaudineVM/Getty Images)](https://cn.bing.com/th?id=OHR.TheLongWalk_EN-AU11094733779_UHD.jpg) 
+2018-09-30 | [戈尔韦港，爱尔兰戈尔韦 (© ClaudineVM/Getty Images)](https://cn.bing.com/th?id=OHR.TheLongWalk_EN-AU11094733779_1920x1080.jpg) 
 
-2018-09-29 | [“如来大手”托起的金桥，越南岘港 (© REUTERS/Kham TPX)](https://cn.bing.com/th?id=OHR.GoldBridge_EN-AU5579326717_UHD.jpg) 
+2018-09-29 | [“如来大手”托起的金桥，越南岘港 (© REUTERS/Kham TPX)](https://cn.bing.com/th?id=OHR.GoldBridge_EN-AU5579326717_1920x1080.jpg) 
 
-2018-09-28 | [南非海岸附近的南露脊鲸 (© oversnap/E+/Getty Images)](https://cn.bing.com/th?id=OHR.SouthernRightFlukes_EN-AU12069113412_UHD.jpg) 
+2018-09-28 | [南非海岸附近的南露脊鲸 (© oversnap/E+/Getty Images)](https://cn.bing.com/th?id=OHR.SouthernRightFlukes_EN-AU12069113412_1920x1080.jpg) 
 
-2018-09-27 | [夜色下停靠在开普敦港口的轮船，南非开普敦 (© Zero Creatives/Science Photo Library)](https://cn.bing.com/th?id=OHR.Shipyard_EN-AU13311426310_UHD.jpg) 
+2018-09-27 | [夜色下停靠在开普敦港口的轮船，南非开普敦 (© Zero Creatives/Science Photo Library)](https://cn.bing.com/th?id=OHR.Shipyard_EN-AU13311426310_1920x1080.jpg) 
 
-2018-09-26 | [圣科尼利厄斯教堂内的艺术装置'The Eclipse' ，美国纽约市总督岛  (© Timothy Schenck/Jacob Hashimoto Studio)](https://cn.bing.com/th?id=OHR.JacobHashimoto_EN-AU8083666733_UHD.jpg) 
+2018-09-26 | [圣科尼利厄斯教堂内的艺术装置'The Eclipse' ，美国纽约市总督岛  (© Timothy Schenck/Jacob Hashimoto Studio)](https://cn.bing.com/th?id=OHR.JacobHashimoto_EN-AU8083666733_1920x1080.jpg) 
 
-2018-09-25 | [巨杉国家公园内的巨杉，美国加利福尼亚州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantSequoia_EN-AU11110971924_UHD.jpg) 
+2018-09-25 | [巨杉国家公园内的巨杉，美国加利福尼亚州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantSequoia_EN-AU11110971924_1920x1080.jpg) 
 
-2018-09-24 | [【今日中秋节】桨声灯影里的秦淮河，中国南京 (© zyxeos30/Getty Images)](https://cn.bing.com/th?id=OHR.QinhuaiRiver_EN-AU9821103929_UHD.jpg) 
+2018-09-24 | [【今日中秋节】桨声灯影里的秦淮河，中国南京 (© zyxeos30/Getty Images)](https://cn.bing.com/th?id=OHR.QinhuaiRiver_EN-AU9821103929_1920x1080.jpg) 
 
-2018-09-23 | [位于蓝岭山脉的雪兰多国家公园，美国弗吉尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ShenandoahAutumn_EN-AU11784755049_UHD.jpg) 
+2018-09-23 | [位于蓝岭山脉的雪兰多国家公园，美国弗吉尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ShenandoahAutumn_EN-AU11784755049_1920x1080.jpg) 
 
-2018-09-22 | [慕尼黑啤酒节期间反映在法国号喇叭上的游行的人群，德国慕尼黑 (© Joerg Koch/Getty Images)](https://cn.bing.com/th?id=OHR.MunichTuba_EN-AU7797561799_UHD.jpg) 
+2018-09-22 | [慕尼黑啤酒节期间反映在法国号喇叭上的游行的人群，德国慕尼黑 (© Joerg Koch/Getty Images)](https://cn.bing.com/th?id=OHR.MunichTuba_EN-AU7797561799_1920x1080.jpg) 
 
-2018-09-21 | [梦想和平塔，冰岛雷克雅未克 (© Arctic Images/Alamy)](https://cn.bing.com/th?id=OHR.ImaginePeace_EN-AU12572046001_UHD.jpg) 
+2018-09-21 | [梦想和平塔，冰岛雷克雅未克 (© Arctic Images/Alamy)](https://cn.bing.com/th?id=OHR.ImaginePeace_EN-AU12572046001_1920x1080.jpg) 
 
-2018-09-20 | [布莱克浦塔内的舞厅，英国兰开夏郡 (© Dosfotos/Getty Images)](https://cn.bing.com/th?id=OHR.BlackpoolTowerBallroom_EN-AU8455917047_UHD.jpg) 
+2018-09-20 | [布莱克浦塔内的舞厅，英国兰开夏郡 (© Dosfotos/Getty Images)](https://cn.bing.com/th?id=OHR.BlackpoolTowerBallroom_EN-AU8455917047_1920x1080.jpg) 
 
-2018-09-19 | [新布莱顿海滩的浮木海盗船，英国沃勒西 (© Phil Noble/Reuters)](https://cn.bing.com/th?id=OHR.DriftwoodPirate_EN-AU11949090819_UHD.jpg) 
+2018-09-19 | [新布莱顿海滩的浮木海盗船，英国沃勒西 (© Phil Noble/Reuters)](https://cn.bing.com/th?id=OHR.DriftwoodPirate_EN-AU11949090819_1920x1080.jpg) 
 
-2018-09-18 | [在设得兰群岛觅食的红腹滨鹬，苏格兰 (© Andrew Parkinson/Minden Pictures)](https://cn.bing.com/th?id=OHR.CalidrisCanutus_EN-AU8947402764_UHD.jpg) 
+2018-09-18 | [在设得兰群岛觅食的红腹滨鹬，苏格兰 (© Andrew Parkinson/Minden Pictures)](https://cn.bing.com/th?id=OHR.CalidrisCanutus_EN-AU8947402764_1920x1080.jpg) 
 
-2018-09-17 | [彩色池里的红色枫叶，加拿大魁北克省 (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.RedMapleQue_EN-AU8415499769_UHD.jpg) 
+2018-09-17 | [彩色池里的红色枫叶，加拿大魁北克省 (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.RedMapleQue_EN-AU8415499769_1920x1080.jpg) 
 
-2018-09-16 | [革命纪念碑，墨西哥墨西哥城 (© Reinier Snijders/Getty Images)](https://cn.bing.com/th?id=OHR.MonumentFountain_EN-AU10536043652_UHD.jpg) 
+2018-09-16 | [革命纪念碑，墨西哥墨西哥城 (© Reinier Snijders/Getty Images)](https://cn.bing.com/th?id=OHR.MonumentFountain_EN-AU10536043652_1920x1080.jpg) 
 
-2018-09-15 | [俯瞰苏格兰的斯凯岛 (© Swen_Stroop/Getty Images)](https://cn.bing.com/th?id=OHR.BlackCuillin_EN-AU10456249435_UHD.jpg) 
+2018-09-15 | [俯瞰苏格兰的斯凯岛 (© Swen_Stroop/Getty Images)](https://cn.bing.com/th?id=OHR.BlackCuillin_EN-AU10456249435_1920x1080.jpg) 
 
-2018-09-14 | [光之工坊数字化艺术中心内古斯塔夫·克里姆特的展览 (© Thierry Chesnot/Getty Images)](https://cn.bing.com/th?id=OHR.GustavKlimt_EN-AU9730106413_UHD.jpg) 
+2018-09-14 | [光之工坊数字化艺术中心内古斯塔夫·克里姆特的展览 (© Thierry Chesnot/Getty Images)](https://cn.bing.com/th?id=OHR.GustavKlimt_EN-AU9730106413_1920x1080.jpg) 
 
-2018-09-13 | [法国勃艮第的葡萄园 (© Hans Strand/plainpicture)](https://cn.bing.com/th?id=OHR.BurgundyVineyards_EN-AU11440624167_UHD.jpg) 
+2018-09-13 | [法国勃艮第的葡萄园 (© Hans Strand/plainpicture)](https://cn.bing.com/th?id=OHR.BurgundyVineyards_EN-AU11440624167_1920x1080.jpg) 
 
-2018-09-12 | [回到福克兰群岛的黑眉信天翁 (© Cultura RM/Alamy)](https://cn.bing.com/th?id=OHR.BlackBrowed_EN-AU10938591456_UHD.jpg) 
+2018-09-12 | [回到福克兰群岛的黑眉信天翁 (© Cultura RM/Alamy)](https://cn.bing.com/th?id=OHR.BlackBrowed_EN-AU10938591456_1920x1080.jpg) 
 
-2018-09-11 | [管物菊，日本东京都新宿区 (© I love Photo and Apple./Getty images)](https://cn.bing.com/th?id=OHR.ShinjukuKiku_EN-AU9146476128_UHD.jpg) 
+2018-09-11 | [管物菊，日本东京都新宿区 (© I love Photo and Apple./Getty images)](https://cn.bing.com/th?id=OHR.ShinjukuKiku_EN-AU9146476128_1920x1080.jpg) 
 
 2018-09-10 | [蜂巢 (© Heidi and Hans-Juergen Koch/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.Honeycomb_ZH-CN7204448210_1920x1080.jpg) 
 
-2018-09-09 | [皇家安大略博物馆，加拿大多伦多 (© Ken Straiton/Aurora Photos)](https://cn.bing.com/th?id=OHR.RoyalOntarioMuseum_ZH-CN10362892998_UHD.jpg) 
+2018-09-09 | [皇家安大略博物馆，加拿大多伦多 (© Ken Straiton/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.RoyalOntarioMuseum_ZH-CN10362892998_1920x1080.jpg) 
 
 2018-09-08 | [都柏林三一学院图书馆，爱尔兰 (© Nigel Hicks/Robert Harding/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.TrinityLibrary_ZH-CN10332583093_1920x1080.jpg) 
 
@@ -5983,39 +5983,39 @@
 
 2018-09-05 | [亚当斯河里的红鲑鱼，加拿大不列颠哥伦比亚省 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.SockeyeReturns_ZH-CN9894542410_1920x1080.jpg) 
 
-2018-09-04 | [意大利托斯卡纳的干草垛 (© Chris Ryan/plainpicture)](https://cn.bing.com/th?id=OHR.RoundBales_ZH-CN8377464305_UHD.jpg) 
+2018-09-04 | [意大利托斯卡纳的干草垛 (© Chris Ryan/plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.RoundBales_ZH-CN8377464305_1920x1080.jpg) 
 
 2018-09-03 | [暴风雨下的薰衣草和向日葵花田，法国普罗旺斯 (© beboy/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.SunFlowersStorm_ZH-CN8706728441_1920x1080.jpg) 
 
 2018-09-02 | [威尼斯赛船节 (© Alessandro Bianchi/Reuters)](https://cdn.bimg.cc/bing/2018/OHR.VenetianRowing_ZH-CN6668445308_1920x1080.jpg) 
 
-2018-09-01 | [布雷马集会上的舞者们 (© Jeff J Mitchell/Getty Images)](https://cn.bing.com/th?id=OHR.HighlandDancers_ZH-CN10588013331_UHD.jpg) 
+2018-09-01 | [布雷马集会上的舞者们 (© Jeff J Mitchell/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.HighlandDancers_ZH-CN10588013331_1920x1080.jpg) 
 
 2018-08-31 | [草地滚球运动的特写镜头 (© Graham Turner/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.LawnBowling_ZH-CN10492037230_1920x1080.jpg) 
 
 2018-08-30 | [弗兰肯斯坦城堡，德国达姆施塔特 (© Boris Stroujko/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.CastleFrankenstein_ZH-CN8604017330_1920x1080.jpg) 
 
-2018-08-29 | [马赛马拉一年一度的斑纹角马大迁徙，肯尼亚 (© Theo Allofs/Minden Pictures)](https://cn.bing.com/th?id=OHR.MasaiWildebeest_ZH-CN9807199192_UHD.jpg) 
+2018-08-29 | [马赛马拉一年一度的斑纹角马大迁徙，肯尼亚 (© Theo Allofs/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.MasaiWildebeest_ZH-CN9807199192_1920x1080.jpg) 
 
-2018-08-28 | [Musgrave铅笔公司生产的黄色铅笔，美国田纳西州谢尔比维尔市 (© Luke Sharrett/Getty Images)](https://cn.bing.com/th?id=OHR.Number2_ZH-CN12009255937_UHD.jpg) 
+2018-08-28 | [Musgrave铅笔公司生产的黄色铅笔，美国田纳西州谢尔比维尔市 (© Luke Sharrett/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.Number2_ZH-CN12009255937_1920x1080.jpg) 
 
 2018-08-27 | [法拉盛草原可乐娜公园内的地球仪，美国纽约市皇后区 (© Carlo Allegri/Reuters)](https://cdn.bimg.cc/bing/2018/OHR.Unisphere_ZH-CN7027287379_1920x1080.jpg) 
 
-2018-08-26 | [吉恩拉菲特国家历史公园和保护区内的巴拉塔里亚小路，美国路易斯安那州 (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.JeanLafitte_ZH-CN11969195990_UHD.jpg) 
+2018-08-26 | [吉恩拉菲特国家历史公园和保护区内的巴拉塔里亚小路，美国路易斯安那州 (© Karine Aigner/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.JeanLafitte_ZH-CN11969195990_1920x1080.jpg) 
 
 2018-08-25 | [【今日中元节】桂林中元节万盏河灯漂放活动，中国广西 （© VCG/Getty Images）](https://cdn.bimg.cc/bing/2018/OHR.ZHONGYUAN_ZH-CN11622221601_1920x1080.jpg) 
 
-2018-08-24 | [法国芒通 (© Timo Christ/Alamy)](https://cn.bing.com/th?id=OHR.FranceMenton_ZH-CN8996032014_UHD.jpg) 
+2018-08-24 | [法国芒通 (© Timo Christ/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.FranceMenton_ZH-CN8996032014_1920x1080.jpg) 
 
 2018-08-23 | [滑行在坦纳根海湾涌浪中的桨板冲浪运动，阿拉斯加州库克湾 (© Scott Dickerson/Tandem Motion + Stills)](https://cdn.bimg.cc/bing/2018/OHR.AKSUP_ZH-CN14506867124_1920x1080.jpg) 
 
 2018-08-22 | [巴西皮奥伊州的鬃狼 (© Sean Crane/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.ManedWolf_ZH-CN10924002958_1920x1080.jpg) 
 
-2018-08-21 | [加利福尼亚州的圣莫尼卡码头 (© Chris Fabregas)](https://cn.bing.com/th?id=OHR.ChrisFabregas_ZH-CN11030716797_UHD.jpg) 
+2018-08-21 | [加利福尼亚州的圣莫尼卡码头 (© Chris Fabregas)](https://cdn.bimg.cc/bing/2018/OHR.ChrisFabregas_ZH-CN11030716797_1920x1080.jpg) 
 
 2018-08-20 | [凯恩戈姆山国家公园里的一只松貂，苏格兰 (© SCOTLAND: The Big Picture/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.PineMartenScotland_ZH-CN10077017107_1920x1080.jpg) 
 
-2018-08-19 | [旧金山国际机场的鸟瞰图 (© Michael H/Getty Images)](https://cn.bing.com/th?id=OHR.SFOTarmac_ZH-CN9823345722_UHD.jpg) 
+2018-08-19 | [旧金山国际机场的鸟瞰图 (© Michael H/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.SFOTarmac_ZH-CN9823345722_1920x1080.jpg) 
 
 2018-08-18 | [彭比纳谷的蜂箱，加拿大马尼托巴省 (© Ken Gillespie Photography/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.CanolaBeehives_ZH-CN9545312261_1920x1080.jpg) 
 
@@ -6027,7 +6027,7 @@
 
 2018-08-14 | [一只濒临灭绝的细纹斑马的特写镜头 (© Edwin Giesbers/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.GrevysZebra_ZH-CN8656523429_1920x1080.jpg) 
 
-2018-08-13 | [锡内莫雷茨村上空的英仙座流星雨，保加利亚 (© jk78/Getty Images)](https://cn.bing.com/th?id=OHR.BulgariaPerseids_ZH-CN11638911564_UHD.jpg) 
+2018-08-13 | [锡内莫雷茨村上空的英仙座流星雨，保加利亚 (© jk78/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.BulgariaPerseids_ZH-CN11638911564_1920x1080.jpg) 
 
 2018-08-12 | [【今日世界大象日】克鲁格国家公园内的大象，南非 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.ElephantParade_ZH-CN13084036095_1920x1080.jpg) 
 
@@ -6037,15 +6037,15 @@
 
 2018-08-09 | [瓦伊纳皮克丘山周围的云雾，秘鲁 (© Enrique Castro-Mendivil/Reuters)](https://cdn.bimg.cc/bing/2018/OHR.HuaynaPicchu_ZH-CN9938663347_1920x1080.jpg) 
 
-2018-08-08 | [凯恩戈姆山国家公园内的苏格兰野猫，苏格兰 (© Pete Cairns/Minden Pictures)](https://cn.bing.com/th?id=OHR.HighlandTige_ZH-CN11284423315_UHD.jpg) 
+2018-08-08 | [凯恩戈姆山国家公园内的苏格兰野猫，苏格兰 (© Pete Cairns/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.HighlandTige_ZH-CN11284423315_1920x1080.jpg) 
 
 2018-08-07 | [【今日立秋】美泉宫花园的秋日景色， 奥地利维也纳 (© badahos/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.SchonnbrunnPark_ZH-CN8641092561_1920x1080.jpg) 
 
-2018-08-06 | [安东尼奥港的景色，牙买加 (© Masterfile)](https://cn.bing.com/th?id=OHR.PortAntonio_ZH-CN10325538004_UHD.jpg) 
+2018-08-06 | [安东尼奥港的景色，牙买加 (© Masterfile)](https://cdn.bimg.cc/bing/2018/OHR.PortAntonio_ZH-CN10325538004_1920x1080.jpg) 
 
-2018-08-05 | [费城爱心公园内的罗伯特·印第安纳的雕塑‘Love' (© Franz Marc Frei/Getty Images)](https://cn.bing.com/th?id=OHR.LovePark_ZH-CN10739395628_UHD.jpg) 
+2018-08-05 | [费城爱心公园内的罗伯特·印第安纳的雕塑‘Love' (© Franz Marc Frei/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.LovePark_ZH-CN10739395628_1920x1080.jpg) 
 
-2018-08-04 | [节日期间爱丁堡城堡上空的烟花 (© Kevin Carr/Getty Images)](https://cn.bing.com/th?id=OHR.FringeFireworks_ZH-CN10750567003_UHD.jpg) 
+2018-08-04 | [节日期间爱丁堡城堡上空的烟花 (© Kevin Carr/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.FringeFireworks_ZH-CN10750567003_1920x1080.jpg) 
 
 2018-08-03 | [在恶地国家公园骑行的飞车党，美国南达科他州 (© David Zimmerman/Masterfile)](https://cdn.bimg.cc/bing/2018/BadlandsCycle_ZH-CN11688990875_1920x1080.jpg) 
 
@@ -6059,35 +6059,35 @@
 
 2018-07-29 | [伦滕波尔国家公园中一只名叫‘Krishna'或者‘T19’的孟加拉虎，印度 (© Andy Rouse/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.T19Krishna_ZH-CN12651112147_1920x1080.jpg) 
 
-2018-07-28 | [嘉年华期间乘坐旋转秋千的乘客们 (© Peter Burian/Aurora Photos)](https://cn.bing.com/th?id=OHR.FairSeason_ZH-CN8821036782_UHD.jpg) 
+2018-07-28 | [嘉年华期间乘坐旋转秋千的乘客们 (© Peter Burian/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.FairSeason_ZH-CN8821036782_1920x1080.jpg) 
 
 2018-07-27 | [2018年1月31日的月食的合成图像，日本东京 (© Kazuhiro Nogi/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.SuperBlueBloodMoon_ZH-CN11881086623_1920x1080.jpg) 
 
 2018-07-26 | [莱奇沃思州立公园的中瀑布，美国纽约州 (© Posnov/Moment/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.LetchworthSP_ZH-CN14963443838_1920x1080.jpg) 
 
-2018-07-25 | [波士顿美术馆收藏的画家温斯洛·霍默的水彩画'Rocky Shore' (© Alamy)](https://cn.bing.com/th?id=OHR.HomerWatercolor_ZH-CN11392693224_UHD.jpg) 
+2018-07-25 | [波士顿美术馆收藏的画家温斯洛·霍默的水彩画'Rocky Shore' (© Alamy)](https://cdn.bimg.cc/bing/2018/OHR.HomerWatercolor_ZH-CN11392693224_1920x1080.jpg) 
 
 2018-07-24 | [生物圈保护区里的美洲红鹳宝宝们，墨西哥尤卡坦半岛 (© Claudio Contreras/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.FlamingoCousins_ZH-CN12160048336_1920x1080.jpg) 
 
 2018-07-23 | [森大厦数字艺术博物馆内的吊灯，日本东京 (© Behrouz Mehri/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.MoriBuilding_ZH-CN5143587469_1920x1080.jpg) 
 
-2018-07-22 | [恒河上的河灯，印度瓦拉纳西 (© Mint Images/Aurora Photos)](https://cn.bing.com/th?id=OHR.VaranasiCandles_ZH-CN12521748769_UHD.jpg) 
+2018-07-22 | [恒河上的河灯，印度瓦拉纳西 (© Mint Images/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.VaranasiCandles_ZH-CN12521748769_1920x1080.jpg) 
 
-2018-07-21 | [拉努马法纳国家公园的彗星飞蛾，马达加斯加 (© Robin Hoskyns/Minden Pictures)](https://cn.bing.com/th?id=OHR.CometMoth_ZH-CN8038549923_UHD.jpg) 
+2018-07-21 | [拉努马法纳国家公园的彗星飞蛾，马达加斯加 (© Robin Hoskyns/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.CometMoth_ZH-CN8038549923_1920x1080.jpg) 
 
 2018-07-20 | [1971年阿波罗15号执行任务时的合成照片 (© NASA)](https://cdn.bimg.cc/bing/2018/OHR.Apollo15Composite_ZH-CN11514263746_1920x1080.jpg) 
 
 2018-07-19 | [参加2014年度圣迭戈国际漫画展的漫迷们 (© Sandy Huffaker/Reuters)](https://cdn.bimg.cc/bing/2018/OHR.ComicFans_ZH-CN10352835982_1920x1080.jpg) 
 
-2018-07-18 | [艺术家马可·契亚法奈利设计的纳尔逊·曼德拉纪念雕塑，南非豪伊克 (© Andy Trevaskis/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.MandelaMonument_ZH-CN8903823453_UHD.jpg) 
+2018-07-18 | [艺术家马可·契亚法奈利设计的纳尔逊·曼德拉纪念雕塑，南非豪伊克 (© Andy Trevaskis/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2018/OHR.MandelaMonument_ZH-CN8903823453_1920x1080.jpg) 
 
-2018-07-17 | [叶子上的臭虫的卵，马达加斯加 (© Paul Bertner/Minden Pictures)](https://cn.bing.com/th?id=OHR.StinkBugSmiley_ZH-CN7410309995_UHD.jpg) 
+2018-07-17 | [叶子上的臭虫的卵，马达加斯加 (© Paul Bertner/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.StinkBugSmiley_ZH-CN7410309995_1920x1080.jpg) 
 
-2018-07-16 | [位于洛杉矶艺术博物馆的克里斯·伯登的雕像“城市之光”，加利福尼亚州洛杉矶 (© Victor Decolongon/Getty Images)](https://cn.bing.com/th?id=OHR.UrbanLight_ZH-CN6248743710_UHD.jpg) 
+2018-07-16 | [位于洛杉矶艺术博物馆的克里斯·伯登的雕像“城市之光”，加利福尼亚州洛杉矶 (© Victor Decolongon/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.UrbanLight_ZH-CN6248743710_1920x1080.jpg) 
 
 2018-07-15 | [一群男孩儿在日落时分的沙滩上踢足球， 巴西福塔雷萨 (© National Geographic/Offset/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.BeachSoccerBoys_ZH-CN12914801215_1920x1080.jpg) 
 
-2018-07-14 | [爱尔兰科克附近的大青鲨 (© Cultura/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.BlueShark_ZH-CN12265881842_UHD.jpg) 
+2018-07-14 | [爱尔兰科克附近的大青鲨 (© Cultura/REX/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.BlueShark_ZH-CN12265881842_1920x1080.jpg) 
 
 2018-07-13 | [正在检查地洞的北极海鹦，威尔士斯科莫岛 (© Danny Green/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.PuffinWales_ZH-CN12110916089_1920x1080.jpg) 
 
@@ -6097,11 +6097,11 @@
 
 2018-07-10 | [坐落于布里杰-蒂顿国家森林里的弗里蒙特峰的景色，美国怀俄明州 (© Don Paulson/Danita Delimont)](https://cdn.bimg.cc/bing/2018/OHR.FremontPeak_ZH-CN8041302763_1920x1080.jpg) 
 
-2018-07-09 | [在圣安东尼奥·德阿雷科小镇举办的高乔民俗节，阿根廷布宜诺斯艾利斯省 (© Eliseo Miciu)](https://cn.bing.com/th?id=OHR.Gauchos_ZH-CN9437338004_UHD.jpg) 
+2018-07-09 | [在圣安东尼奥·德阿雷科小镇举办的高乔民俗节，阿根廷布宜诺斯艾利斯省 (© Eliseo Miciu)](https://cdn.bimg.cc/bing/2018/OHR.Gauchos_ZH-CN9437338004_1920x1080.jpg) 
 
 2018-07-08 | [弗拉门戈舞蹈表演，西班牙安达卢西亚 (© Michelle Chaplow/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.Flamenco_ZH-CN12275634178_1920x1080.jpg) 
 
-2018-07-07 | [2016年环法自行车赛中骑在绿树成荫的道路上的选手 (© Michael Steele/Getty Images Sport)](https://cn.bing.com/th?id=OHR.Peloton_ZH-CN7472605035_UHD.jpg) 
+2018-07-07 | [2016年环法自行车赛中骑在绿树成荫的道路上的选手 (© Michael Steele/Getty Images Sport)](https://cdn.bimg.cc/bing/2018/OHR.Peloton_ZH-CN7472605035_1920x1080.jpg) 
 
 2018-07-06 | [【今日国际接吻节】两只大熊猫宝宝，中国 (© Mitsuaki Iwago/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.KissingPandas_ZH-CN8379279685_1920x1080.jpg) 
 
@@ -6109,7 +6109,7 @@
 
 2018-07-04 | [湖区的巴特米尔湖，英国西北英格兰 (© Robert Harding/Markus Lange/plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.ButtermereLake_ZH-CN8185859566_1920x1080.jpg) 
 
-2018-07-03 | [黄昏时浮出水面的绿海龟，印度洋马约特 (© Gabriel Barathieu/Biosphoto/Minden Pictures)](https://cn.bing.com/th?id=OHR.TurtleIndianOcean_ZH-CN9256087399_UHD.jpg) 
+2018-07-03 | [黄昏时浮出水面的绿海龟，印度洋马约特 (© Gabriel Barathieu/Biosphoto/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.TurtleIndianOcean_ZH-CN9256087399_1920x1080.jpg) 
 
 2018-07-02 | [魔鬼塔国家纪念区上空的宝瓶座流星雨，美国怀俄明州 (© Jason Hatfield/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.EtaAquarids_ZH-CN10323549621_1920x1080.jpg) 
 
@@ -6123,23 +6123,23 @@
 
 2018-06-27 | [66号历史公路上的混凝土恐龙及其附近40号州际公路上的卡车 (© Gary Warnimont/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.ConcreteDinosaurs_ZH-CN9038296644_1920x1080.jpg) 
 
-2018-06-26 | [猴面包树大道上的猴面包树在积水中的倒影，马达加斯加梅纳贝区 (© Gabrielle Therin-Weise/Getty Images)](https://cn.bing.com/th?id=OHR.MorondavaBaobab_ZH-CN11131924506_UHD.jpg) 
+2018-06-26 | [猴面包树大道上的猴面包树在积水中的倒影，马达加斯加梅纳贝区 (© Gabrielle Therin-Weise/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.MorondavaBaobab_ZH-CN11131924506_1920x1080.jpg) 
 
-2018-06-25 | [太平洋上空纵横交错的船舶轨迹 (© NASA)](https://cn.bing.com/th?id=OHR.MODIS_ZH-CN14242381223_UHD.jpg) 
+2018-06-25 | [太平洋上空纵横交错的船舶轨迹 (© NASA)](https://cdn.bimg.cc/bing/2018/OHR.MODIS_ZH-CN14242381223_1920x1080.jpg) 
 
-2018-06-24 | [赖兴瑙岛上的圣玛丽圣马古斯教堂，德国巴登-符腾堡州 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.ReichenauSommer_ZH-CN10985992170_UHD.jpg) 
+2018-06-24 | [赖兴瑙岛上的圣玛丽圣马古斯教堂，德国巴登-符腾堡州 (© Westend61/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.ReichenauSommer_ZH-CN10985992170_1920x1080.jpg) 
 
-2018-06-23 | [航行在佩诺拉海峡的欧罗巴帆船，南极洲南极半岛 (© Colin Monteath/Minden Pictures)](https://cn.bing.com/th?id=OHR.Europa_ZH-CN11806353149_UHD.jpg) 
+2018-06-23 | [航行在佩诺拉海峡的欧罗巴帆船，南极洲南极半岛 (© Colin Monteath/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.Europa_ZH-CN11806353149_1920x1080.jpg) 
 
 2018-06-22 | [带着你的狗狗一起去上班 (© Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.DogWork_ZH-CN10032511594_1920x1080.jpg) 
 
-2018-06-21 | [【今日夏至】夏至到，荷花开（© Adam Jones/DanitaDelimont.com -- All rights reserved）](https://cn.bing.com/th?id=OHR.lotus_ZH-CN12081917194_UHD.jpg) 
+2018-06-21 | [【今日夏至】夏至到，荷花开（© Adam Jones/DanitaDelimont.com -- All rights reserved）](https://cdn.bimg.cc/bing/2018/OHR.lotus_ZH-CN12081917194_1920x1080.jpg) 
 
 2018-06-20 | [2000年到2016年间全球难民的流动情况 (© Map visualization: Records from UNHCR/EarthTime visualization by Carnegie Mellon CREATE Lab)](https://cdn.bimg.cc/bing/2018/OHR.WorldRefugeeDay_ZH-CN5421237644_1920x1080.jpg) 
 
 2018-06-19 | [栖息在树枝上的山鸺鹠，加拿大不列颠哥伦比亚省赛普拉斯山 (© Connor Stefanison/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.CypressPygmyOwl_ZH-CN12382299143_1920x1080.jpg) 
 
-2018-06-18 | [【今日端午节】参加襄阳龙舟大赛的12只龙舟，中国湖北省襄阳市（© VCG/Getty Images）](https://cn.bing.com/th?id=OHR.DUAN_ZH-CN9451316695_UHD.jpg) 
+2018-06-18 | [【今日端午节】参加襄阳龙舟大赛的12只龙舟，中国湖北省襄阳市（© VCG/Getty Images）](https://cdn.bimg.cc/bing/2018/OHR.DUAN_ZH-CN9451316695_1920x1080.jpg) 
 
 2018-06-17 | [【今日父亲节】野外旅行的鸵鸟爸爸与孩子们，南非西开普省 (© Richard Du Toit/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.OstrichDad_ZH-CN8968242630_1920x1080.jpg) 
 
@@ -6161,15 +6161,15 @@
 
 2018-06-08 | [毛伊岛上的绿海龟，美国夏威夷州 (© David Fleetham/Visuals Unlimited, Inc.)](https://cdn.bimg.cc/bing/2018/OHR.WorldOceanDay_EN-AU8399727104_1920x1080.jpg) 
 
-2018-06-07 | [阿拉斯加州内线航道林恩运河中的座头鲸，美国 (© John Hyde/plainpicture)](https://cn.bing.com/th?id=OHR.WhalePod_EN-AU8062526731_UHD.jpg) 
+2018-06-07 | [阿拉斯加州内线航道林恩运河中的座头鲸，美国 (© John Hyde/plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.WhalePod_EN-AU8062526731_1920x1080.jpg) 
 
-2018-06-06 | [抵达沃尔镇Fly-in Drive-in剧场的观众，美国新泽西州 (© Martha Holmes/Time Life Pictures/Getty Images)](https://cn.bing.com/th?id=OHR.FlyinDrivein_EN-AU11097970692_UHD.jpg) 
+2018-06-06 | [抵达沃尔镇Fly-in Drive-in剧场的观众，美国新泽西州 (© Martha Holmes/Time Life Pictures/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.FlyinDrivein_EN-AU11097970692_1920x1080.jpg) 
 
 2018-06-05 | [奥本上方的热气球，美国华盛顿州 (© Taliesin Black-Brown and Ben Cowan/Nimia)](https://cdn.bimg.cc/bing/2018/OHR.AuburnBalloons_EN-AU8649124966_1920x1080.jpg) 
 
-2018-06-04 | [塔龙加动物园内的'PJ the Port Jackson Shark'光影雕塑，澳大利亚悉尼 (© Wendell Teodoro/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.PJ_EN-AU10859560585_UHD.jpg) 
+2018-06-04 | [塔龙加动物园内的'PJ the Port Jackson Shark'光影雕塑，澳大利亚悉尼 (© Wendell Teodoro/REX/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.PJ_EN-AU10859560585_1920x1080.jpg) 
 
-2018-06-03 | [从默西河上看利物浦，英格兰 (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.Liverpool_EN-AU13569067979_UHD.jpg) 
+2018-06-03 | [从默西河上看利物浦，英格兰 (© Alan Novelli/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.Liverpool_EN-AU13569067979_1920x1080.jpg) 
 
 2018-06-02 | [大峡谷国家公园南凯巴布步道的赛跑者，美国亚利桑那州 (© Jason J. Hatfield/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.R2R2R_EN-AU10372399721_1920x1080.jpg) 
 
@@ -6181,9 +6181,9 @@
 
 2018-05-29 | [珠穆朗玛峰南基地营，尼泊尔 (© David Noyes/Danita Delimont)](https://cdn.bimg.cc/bing/2018/OHR.KhumbuTents_EN-AU5075782050_1920x1080.jpg) 
 
-2018-05-28 | [吉姆·科比特国家公园里的亚洲象，印度 (© Yashpal Rathore/Minden Pictures)](https://cn.bing.com/th?id=OHR.AsiaticElephant_EN-AU14096716327_UHD.jpg) 
+2018-05-28 | [吉姆·科比特国家公园里的亚洲象，印度 (© Yashpal Rathore/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.AsiaticElephant_EN-AU14096716327_1920x1080.jpg) 
 
-2018-05-27 | [金门大桥，美国旧金山 (© RICOWde/Getty Images)](https://cn.bing.com/th?id=OHR.TSSSF_EN-AU11485959337_UHD.jpg) 
+2018-05-27 | [金门大桥，美国旧金山 (© RICOWde/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.TSSSF_EN-AU11485959337_1920x1080.jpg) 
 
 2018-05-26 | [位于国际空间站的Sally Ride EarthKAM由中学生编写程序后拍摄了撒哈拉沙漠的部分图像，非洲 (© NASA)](https://cdn.bimg.cc/bing/2018/OHR.SallyRideEarthKAM_EN-AU12501145178_1920x1080.jpg) 
 
@@ -6191,7 +6191,7 @@
 
 2018-05-24 | [1883年在建设中的布鲁克林大桥，美国纽约 (© World History Archive/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.BklynBrdge_EN-AU13217737928_1920x1080.jpg) 
 
-2018-05-23 | [亚苏尼国家公园里的黄头侧颈龟，厄瓜多尔 (© Pete Oxford/Minden Pictures)](https://cn.bing.com/th?id=OHR.TurtleTears_EN-AU7942276596_UHD.jpg) 
+2018-05-23 | [亚苏尼国家公园里的黄头侧颈龟，厄瓜多尔 (© Pete Oxford/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.TurtleTears_EN-AU7942276596_1920x1080.jpg) 
 
 2018-05-22 | [火山口湖国家公园上方的乌云，美国俄勒冈州 (© Joseph Giacalone/SuperStock)](https://cdn.bimg.cc/bing/2018/OHR.StormyCrater_EN-AU7574784479_1920x1080.jpg) 
 
@@ -6201,7 +6201,7 @@
 
 2018-05-19 | [吉维尼小镇莫奈花园的春天，法国 (© Danita Delimont/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.SpringtimeinGiverny_EN-AU6804745113_1920x1080.jpg) 
 
-2018-05-18 | [在栏杆上行走的游隼，美国芝加哥 (© Luke Massey/Minden Pictures)](https://cn.bing.com/th?id=OHR.FalcoPeregrinus_EN-AU12306031452_UHD.jpg) 
+2018-05-18 | [在栏杆上行走的游隼，美国芝加哥 (© Luke Massey/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.FalcoPeregrinus_EN-AU12306031452_1920x1080.jpg) 
 
 2018-05-17 | [历史悠久的捕鱼仓库，挪威特隆赫姆 (© Oscar Dominguez/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.FishingWarehouses_EN-AU11622673825_1920x1080.jpg) 
 
@@ -6209,21 +6209,21 @@
 
 2018-05-15 | [马拉北部保护区的黄斑岩蹄兔，肯尼亚 (© Jonathan & Angela Scott/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.BushHyrax_EN-AU8373682343_1920x1080.jpg) 
 
-2018-05-14 | [多洛米蒂自行车马拉松比赛，意大利 (© Aurora Photos/Alamy)](https://cn.bing.com/th?id=OHR.DolomitesBikeRace_EN-AU10922620742_UHD.jpg) 
+2018-05-14 | [多洛米蒂自行车马拉松比赛，意大利 (© Aurora Photos/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.DolomitesBikeRace_EN-AU10922620742_1920x1080.jpg) 
 
-2018-05-13 | [三姐妹泉中的西印度海牛妈妈和它的宝宝，美国佛罗里达州 (© James R.D. Scott/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeMom_EN-AU9983570199_UHD.jpg) 
+2018-05-13 | [三姐妹泉中的西印度海牛妈妈和它的宝宝，美国佛罗里达州 (© James R.D. Scott/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.ManateeMom_EN-AU9983570199_1920x1080.jpg) 
 
-2018-05-12 | [蒙特苏马国家野生动物保护区里的雪雁，美国纽约州 (© Gerrit Vyn/Minden Pictures)](https://cn.bing.com/th?id=OHR.MontezumaSnowGeese_EN-AU9497504365_UHD.jpg) 
+2018-05-12 | [蒙特苏马国家野生动物保护区里的雪雁，美国纽约州 (© Gerrit Vyn/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.MontezumaSnowGeese_EN-AU9497504365_1920x1080.jpg) 
 
-2018-05-11 | [苏必利尔湖的北岸，美国明尼苏达州 (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.HollowRock_EN-AU10983730949_UHD.jpg) 
+2018-05-11 | [苏必利尔湖的北岸，美国明尼苏达州 (© Matt Anderson Photography/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.HollowRock_EN-AU10983730949_1920x1080.jpg) 
 
-2018-05-10 | [布鲁克林大桥公园展出的汤姆·弗鲁因的‘Kolonihavehus, 2010'作品，纽约布鲁克林区 (© Daniel Haug/Getty Images)](https://cn.bing.com/th?id=OHR.Kolonihavehus_EN-AU6388656996_UHD.jpg) 
+2018-05-10 | [布鲁克林大桥公园展出的汤姆·弗鲁因的‘Kolonihavehus, 2010'作品，纽约布鲁克林区 (© Daniel Haug/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.Kolonihavehus_EN-AU6388656996_1920x1080.jpg) 
 
 2018-05-09 | [利特弗雷自然保护区内的雄性长尾巧织雀，南非 (© Richard Du Toit/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.LongtailedWidowbird_EN-AU9220859418_1920x1080.jpg) 
 
-2018-05-08 | [侏罗纪海岸的拉尔沃思湾，英格兰多塞特郡 (© Brian Jannsen/Danita Delimont)](https://cn.bing.com/th?id=OHR.LulworthCoveDorset_EN-AU6971167153_UHD.jpg) 
+2018-05-08 | [侏罗纪海岸的拉尔沃思湾，英格兰多塞特郡 (© Brian Jannsen/Danita Delimont)](https://cdn.bimg.cc/bing/2018/OHR.LulworthCoveDorset_EN-AU6971167153_1920x1080.jpg) 
 
-2018-05-07 | [西曼兰省的一片湿地，瑞典 (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.Knuthojdsmossen_EN-CA12064544039_UHD.jpg) 
+2018-05-07 | [西曼兰省的一片湿地，瑞典 (© Hans Strand/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.Knuthojdsmossen_EN-CA12064544039_1920x1080.jpg) 
 
 2018-05-06 | [新奥尔良法国区的杰克逊广场，路易斯安那州 (© Edwin Remsberg/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.NOTricentennial_EN-AU9747938022_1920x1080.jpg) 
 
@@ -6233,37 +6233,37 @@
 
 2018-05-03 | [格雷梅国家公园里挂在树上装饰的邪眼护身符，土耳其卡帕多西亚 (© taratata/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.Nazars_EN-AU13539612789_1920x1080.jpg) 
 
-2018-05-02 | [福米加什群岛沿岸环绕竹荚鱼组成的饵球的欧洲魣和蓝鱼，亚速尔群岛 (© Jordi Chias/Minden Pictures)](https://cn.bing.com/th?id=OHR.EuropeanBarracuda_EN-AU14372678414_UHD.jpg) 
+2018-05-02 | [福米加什群岛沿岸环绕竹荚鱼组成的饵球的欧洲魣和蓝鱼，亚速尔群岛 (© Jordi Chias/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.EuropeanBarracuda_EN-AU14372678414_1920x1080.jpg) 
 
 2018-05-01 | [2014年威尼斯建筑双年展展出的艺术家亨氏·麦克的“天在九柱之上”作品 (© Cahir Davitt/plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.SONC_EN-AU9822965309_1920x1080.jpg) 
 
 2018-04-30 | [1943年在纽约举行的爵士即兴演出中爵士乐钢琴家玛丽·卢·威廉斯的手部特写 (© Gjon Mili/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.MaryLouWilliams_EN-AU11937645356_1920x1080.jpg) 
 
-2018-04-29 | [奥林匹克国家公园的红宝石海滩， 美国华盛顿州 (© Jason Savage/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RubyBeach_EN-AU10077444396_UHD.jpg) 
+2018-04-29 | [奥林匹克国家公园的红宝石海滩， 美国华盛顿州 (© Jason Savage/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.RubyBeach_EN-AU10077444396_1920x1080.jpg) 
 
 2018-04-28 | [峡谷地国家公园马蹄峡谷中艺术画廊的岩画，美国犹他州 (© Austin Cronnelly/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.GreatGhost_EN-CA8900139658_1920x1080.jpg) 
 
-2018-04-27 | [优胜美地国家公园，美国加利福尼亚州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.YosemiteFog_EN-AU8423699903_UHD.jpg) 
+2018-04-27 | [优胜美地国家公园，美国加利福尼亚州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.YosemiteFog_EN-AU8423699903_1920x1080.jpg) 
 
-2018-04-26 | [瓜达洛普山国家公园的红葡萄酒杯仙人掌，美国德克萨斯州 (© Clint Farlinger/Alamy)](https://cn.bing.com/th?id=OHR.ClaretCup_EN-AU11621919077_UHD.jpg) 
+2018-04-26 | [瓜达洛普山国家公园的红葡萄酒杯仙人掌，美国德克萨斯州 (© Clint Farlinger/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.ClaretCup_EN-AU11621919077_1920x1080.jpg) 
 
-2018-04-25 | [风穴国家公园的美洲野牛，美国南达科他州 (© Newman Mark/SuperStock)](https://cn.bing.com/th?id=OHR.WindCaveBison_EN-AU7790107398_UHD.jpg) 
+2018-04-25 | [风穴国家公园的美洲野牛，美国南达科他州 (© Newman Mark/SuperStock)](https://cdn.bimg.cc/bing/2018/OHR.WindCaveBison_EN-AU7790107398_1920x1080.jpg) 
 
 2018-04-24 | [大沼泽地国家公园的卫星视图，佛罗里达州 (© Satellite Earth Art/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.SatelliteGlades_ZH-CN11389308210_1920x1080.jpg) 
 
-2018-04-23 | [海勒卡拉国家公园的哈莱亚卡拉火山顶端的游客，美国夏威夷州 (© Alex Messenger/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HNPVisitors_EN-AU11559392254_UHD.jpg) 
+2018-04-23 | [海勒卡拉国家公园的哈莱亚卡拉火山顶端的游客，美国夏威夷州 (© Alex Messenger/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.HNPVisitors_EN-AU11559392254_1920x1080.jpg) 
 
 2018-04-22 | [卡特迈国家公园和自然保护区里午睡的灰熊幼崽，阿拉斯加州 (© Suzi Eszterhas/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.TreeHugger_EN-AU10029857809_1920x1080.jpg) 
 
 2018-04-21 | [黄石国家公园内的大棱镜温泉，美国 (© Media Drum World/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.GrandPrismatic_EN-AU10311241592_1920x1080.jpg) 
 
-2018-04-20 | [【今日谷雨】平安村种植节期间龙胜梯田的忙碌景象（© gary76973/Getty Images）](https://cn.bing.com/th?id=OHR.Grainrain_ZH-CN12722742960_UHD.jpg) 
+2018-04-20 | [【今日谷雨】平安村种植节期间龙胜梯田的忙碌景象（© gary76973/Getty Images）](https://cdn.bimg.cc/bing/2018/OHR.Grainrain_ZH-CN12722742960_1920x1080.jpg) 
 
 2018-04-19 | [艾兰山谷的Craig Goch大坝，威尔士 (© Stephen Taylor/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.TopDam_EN-AU10363924314_1920x1080.jpg) 
 
 2018-04-18 | [冕鹧鸪 (© Sue Demetriou/Offset)](https://cdn.bimg.cc/bing/2018/OHR.WoodPartridge_EN-AU11041638655_1920x1080.jpg) 
 
-2018-04-17 | [在雷克雅未克哈帕音乐厅举办的儿童文化节，冰岛 (© Arctic-Images/Corbis Documentary/Getty Images)](https://cn.bing.com/th?id=OHR.ChildrenHarpa_EN-AU9564284589_UHD.jpg) 
+2018-04-17 | [在雷克雅未克哈帕音乐厅举办的儿童文化节，冰岛 (© Arctic-Images/Corbis Documentary/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.ChildrenHarpa_EN-AU9564284589_1920x1080.jpg) 
 
 2018-04-16 | [巴扎鲁托群岛，莫桑比克 (© Jody MacDonald/Offset)](https://cdn.bimg.cc/bing/2018/OHR.MozambiqueSandbar_EN-AU11463522567_1920x1080.jpg) 
 
@@ -6275,11 +6275,11 @@
 
 2018-04-12 | [悉尼海港大桥，澳大利亚 (© Grant Faint/Offset)](https://cdn.bimg.cc/bing/2018/OHR.SydneyClimbers_EN-AU8903928142_1920x1080.jpg) 
 
-2018-04-11 | [张家界国家森林公园，中国湖南省 (© aphotostory/Shutterstock)](https://cn.bing.com/th?id=OHR.ZhangjiajieLandscape_EN-AU12445284069_UHD.jpg) 
+2018-04-11 | [张家界国家森林公园，中国湖南省 (© aphotostory/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.ZhangjiajieLandscape_EN-AU12445284069_1920x1080.jpg) 
 
 2018-04-10 | [安波塞利国家公园内的一只成年大象和它的幼崽，肯尼亚 (© Tom Stahl/Offset)](https://cdn.bimg.cc/bing/2018/OHR.ElephantSibs_EN-AU13884552392_1920x1080.jpg) 
 
-2018-04-09 | [位于西伯利亚的勒拿河三角洲野生动物保护区，俄罗斯 (© USGS EROS Data Center/NASA)](https://cn.bing.com/th?id=OHR.LenaDelta_EN-AU7215744309_UHD.jpg) 
+2018-04-09 | [位于西伯利亚的勒拿河三角洲野生动物保护区，俄罗斯 (© USGS EROS Data Center/NASA)](https://cdn.bimg.cc/bing/2018/OHR.LenaDelta_EN-AU7215744309_1920x1080.jpg) 
 
 2018-04-08 | [雄性凤尾绿咬鹃，哥斯达黎加 (© mallardg500/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.ResplendentQuetzal_EN-AU9863376005_1920x1080.jpg) 
 
@@ -6287,11 +6287,11 @@
 
 2018-04-06 | [斯诺希尔岛上的皇帝企鹅，南极洲 (© David Tipling Photo Library/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.WalkingEmperor_EN-AU11032000017_1920x1080.jpg) 
 
-2018-04-05 | [【今日清明节】“京剧脸谱风筝”，中国潍坊（© Li Yangang / TAO Images Limited / Alamy Stock Photo）](https://cn.bing.com/th?id=OHR.QingmingpeakingKite_ZH-CN11010837191_UHD.jpg) 
+2018-04-05 | [【今日清明节】“京剧脸谱风筝”，中国潍坊（© Li Yangang / TAO Images Limited / Alamy Stock Photo）](https://cdn.bimg.cc/bing/2018/OHR.QingmingpeakingKite_ZH-CN11010837191_1920x1080.jpg) 
 
 2018-04-04 | [武伦柱 (© Ed Reardon/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.CardonCactus_EN-AU9317815400_1920x1080.jpg) 
 
-2018-04-03 | [在 Piano Grande平原上的卡斯特卢乔小镇，意大利翁布里亚大区 (© beppeverge/Getty Images)](https://cn.bing.com/th?id=OHR.UmbriaCastelluccio_EN-AU8834990889_UHD.jpg) 
+2018-04-03 | [在 Piano Grande平原上的卡斯特卢乔小镇，意大利翁布里亚大区 (© beppeverge/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.UmbriaCastelluccio_EN-AU8834990889_1920x1080.jpg) 
 
 2018-04-02 | [琼干湖旁的七魔山装置艺术，美国内华达州 (© Renz Alfonso Dela Pena)](https://cdn.bimg.cc/bing/2018/OHR.SevenMagicMountains_EN-AU9207394593_1920x1080.jpg) 
 
@@ -6301,7 +6301,7 @@
 
 2018-03-30 | [戴克里先宫的前庭，克罗地亚斯普利特 (© Dreamer4787/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.SplitVestibule_EN-AU13382955266_1920x1080.jpg) 
 
-2018-03-29 | [风之宫，印度斋浦尔 (© Olena Tur/Shutterstock)](https://cn.bing.com/th?id=OHR.HawaMahal_EN-AU6822334956_UHD.jpg) 
+2018-03-29 | [风之宫，印度斋浦尔 (© Olena Tur/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.HawaMahal_EN-AU6822334956_1920x1080.jpg) 
 
 2018-03-28 | [大盐湖肖尔兰兹自然保护区，美国犹他州 (© Austin Cronnelly/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.NCGSLShorelands_EN-AU12239696326_1920x1080.jpg) 
 
@@ -6315,9 +6315,9 @@
 
 2018-03-23 | [【今日世界气象日】秘鲁太平洋沿岸Yauca和Acarí河上空的云层 (© Joshua Stevens/NASA)](https://cdn.bimg.cc/bing/2018/OHR.PeruCanyonClouds_EN-AU11073245814_1920x1080.jpg) 
 
-2018-03-22 | [萨尔茨堡附近的阿尔卑斯山内的Eibensee湖，奥地利  (© Christoph Oberschneider/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WorldWaterDay_EN-AU11747740536_UHD.jpg) 
+2018-03-22 | [萨尔茨堡附近的阿尔卑斯山内的Eibensee湖，奥地利  (© Christoph Oberschneider/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.WorldWaterDay_EN-AU11747740536_1920x1080.jpg) 
 
-2018-03-21 | [【今日春分】梅里雪山国家公园内一只以桃花为食的蓝喉太阳鸟，中国云南省 (© Dong Lei/Minden Pictures)](https://cn.bing.com/th?id=OHR.Sunbird1_ZH-CN12058461588_UHD.jpg) 
+2018-03-21 | [【今日春分】梅里雪山国家公园内一只以桃花为食的蓝喉太阳鸟，中国云南省 (© Dong Lei/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.Sunbird1_ZH-CN12058461588_1920x1080.jpg) 
 
 2018-03-20 | [赫罗洛村附近的郁金香，荷兰德伦特省 (© plainpicture/Buiten-Beeld/Karin Broekhuijsen)](https://cdn.bimg.cc/bing/2018/OHR.TulipsEquinox_EN-AU11642351862_1920x1080.jpg) 
 
@@ -6327,7 +6327,7 @@
 
 2018-03-17 | [Ross Errilly Friary，爱尔兰戈尔韦郡 (© plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.RossErrilly_EN-AU10742524527_1920x1080.jpg) 
 
-2018-03-16 | [卧龙国家级自然保护区的大熊猫，中国四川 (© Lynn M. Stone/Minden Pictures)](https://cn.bing.com/th?id=OHR.WolongPanda_EN-AU10387402321_UHD.jpg) 
+2018-03-16 | [卧龙国家级自然保护区的大熊猫，中国四川 (© Lynn M. Stone/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.WolongPanda_EN-AU10387402321_1920x1080.jpg) 
 
 2018-03-15 | [罗马斗兽场，意大利 (© Paperboyo/PrincessCruises/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.PaperboyoOctopus_EN-AU9384087611_1920x1080.jpg) 
 
@@ -6337,15 +6337,15 @@
 
 2018-03-12 | [泰尔斯海灵岛上熟睡中的三趾鹬，荷兰 (© Inge van der Wulp/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.Sanderlings_EN-AU8499525582_1920x1080.jpg) 
 
-2018-03-11 | [奥洛穆茨上城广场天文时钟中映出的建筑物图像，捷克 (© scubabartek/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.OlomoucClock_EN-AU15652323383_UHD.jpg) 
+2018-03-11 | [奥洛穆茨上城广场天文时钟中映出的建筑物图像，捷克 (© scubabartek/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2018/OHR.OlomoucClock_EN-AU15652323383_1920x1080.jpg) 
 
-2018-03-10 | [班夫国家公园内的约翰斯顿峡谷，加拿大艾伯塔省 (© Radius Images/Offset)](https://cn.bing.com/th?id=OHR.JohnstonCanyon_EN-AU13753864901_UHD.jpg) 
+2018-03-10 | [班夫国家公园内的约翰斯顿峡谷，加拿大艾伯塔省 (© Radius Images/Offset)](https://cdn.bimg.cc/bing/2018/OHR.JohnstonCanyon_EN-AU13753864901_1920x1080.jpg) 
 
 2018-03-09 | [多尔县沿海公路，美国威斯康星州 (© Krzysztof Hanusiak/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.DCCB_EN-AU11982634575_1920x1080.jpg) 
 
 2018-03-08 | [【今日国际劳动妇女节】克里斯汀·维斯巴尔创作的《无畏女孩》雕像，美国纽约 (© Jeenah Moon/Bloomberg via Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.FearlessGirl_EN-AU8770808173_1920x1080.jpg) 
 
-2018-03-07 | [黄昏时分，厚重的冰块紧贴着新斯科舍省的大西洋海岸，加拿大 (© shaunl/Getty Images)](https://cn.bing.com/th?id=OHR.NovaScotiaIce_EN-AU10982646880_UHD.jpg) 
+2018-03-07 | [黄昏时分，厚重的冰块紧贴着新斯科舍省的大西洋海岸，加拿大 (© shaunl/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.NovaScotiaIce_EN-AU10982646880_1920x1080.jpg) 
 
 2018-03-06 | [巴哈马的沙滩和海藻卫星图 (© Serge Andrefouet/University of South Florida/NASA)](https://cdn.bimg.cc/bing/2018/OHR.Landsat7Bahamas_ZH-CN8824105008_1920x1080.jpg) 
 
@@ -6357,7 +6357,7 @@
 
 2018-03-02 | [【今日元宵节】乐圣岭天后宫悬挂的红灯笼，马来西亚吉隆坡 (© Black Cat Imaging/AlamyStock Photo）](https://cdn.bimg.cc/bing/2018/OHR.LanternFestial_ZH-CN13235289391_1920x1080.jpg) 
 
-2018-03-01 | [莫斯塔尔古桥，波斯尼亚和黑塞哥维那 (© Gavin Hellier/Minden Pictures)](https://cn.bing.com/th?id=OHR.NewOldBridge_EN-AU12192409966_UHD.jpg) 
+2018-03-01 | [莫斯塔尔古桥，波斯尼亚和黑塞哥维那 (© Gavin Hellier/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.NewOldBridge_EN-AU12192409966_1920x1080.jpg) 
 
 2018-02-28 | [丘吉尔小镇附近的北极熊，加拿大马尼托巴省 (© Alberto Ghizzi Panizza/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.ChurchillPB_EN-GB9374200792_1920x1080.jpg) 
 
@@ -6365,9 +6365,9 @@
 
 2018-02-26 | [羊毛湾附近海域的叶形海龙，澳大利亚 (© Alex Mustard/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.WoolBaySeadragon_EN-AU12559454946_1920x1080.jpg) 
 
-2018-02-25 | [布莱斯峡谷国家公园的雾中石林，美国犹他州 (© Eleanor Scriven/plainpicture)](https://cn.bing.com/th?id=OHR.PinnaclesHoodoos_EN-AU12765255990_UHD.jpg) 
+2018-02-25 | [布莱斯峡谷国家公园的雾中石林，美国犹他州 (© Eleanor Scriven/plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.PinnaclesHoodoos_EN-AU12765255990_1920x1080.jpg) 
 
-2018-02-24 | [侏罗山脉一侧的一只赤狐，瑞士 (© Laurent Geslin/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.SwissFoxSnow_EN-AU12956141356_UHD.jpg) 
+2018-02-24 | [侏罗山脉一侧的一只赤狐，瑞士 (© Laurent Geslin/NPL/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.SwissFoxSnow_EN-AU12956141356_1920x1080.jpg) 
 
 2018-02-23 | [科罗拉多河三角洲鸟瞰图，墨西哥 (© Peter McBride/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.CORiverDelta_EN-AU10256713484_1920x1080.jpg) 
 
@@ -6375,7 +6375,7 @@
 
 2018-02-21 | [Ålvundeidet村附近的Innerdalsvatna湖，挪威 (© Anders Graham/Turbin Films/Nimia)](https://cdn.bimg.cc/bing/2018/OHR.InnerdalsvatnaVideo_EN-AU11002526366_1920x1080.jpg) 
 
-2018-02-20 | [阿瑜陀耶城内的“树中佛像”，泰国 (© Garret Suhrie/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AyuttayaBuddha_EN-AU8837500887_UHD.jpg) 
+2018-02-20 | [阿瑜陀耶城内的“树中佛像”，泰国 (© Garret Suhrie/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.AyuttayaBuddha_EN-AU8837500887_1920x1080.jpg) 
 
 2018-02-19 | [雄性灰颈鹭鸨，肯尼亚马赛马拉国家保护区 (© Christina Krutz/Masterfile)](https://cdn.bimg.cc/bing/2018/OHR.KoriBustard_ZH-CN9730794842_1920x1080.jpg) 
 
@@ -6383,49 +6383,49 @@
 
 2018-02-17 | [勒塞尔火山国家公园内的一只小苏门答腊猩猩，印度尼西亚 (© Cyril Ruoso/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.OrangutanBaby_EN-AU10532835014_1920x1080.jpg) 
 
-2018-02-16 | [【今日春节】写春联庆新春 (© yurouguan/GettyImages)](https://cn.bing.com/th?id=OHR.WriteCouplets_ZH-CN11009087353_UHD.jpg) 
+2018-02-16 | [【今日春节】写春联庆新春 (© yurouguan/GettyImages)](https://cdn.bimg.cc/bing/2018/OHR.WriteCouplets_ZH-CN11009087353_1920x1080.jpg) 
 
-2018-02-15 | [【今日除夕】璀璨烟花迎新年，中国香港 (©Thanapol Kuptanisakorn/ Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.HongKongFireworks_ZH-CN13422096721_UHD.jpg) 
+2018-02-15 | [【今日除夕】璀璨烟花迎新年，中国香港 (©Thanapol Kuptanisakorn/ Alamy Stock Photo)](https://cdn.bimg.cc/bing/2018/OHR.HongKongFireworks_ZH-CN13422096721_1920x1080.jpg) 
 
 2018-02-14 | [【今日情人节】心形田野，德国特里陶 (© imageBROKER/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.AgricultureHeart_EN-AU11072776280_1920x1080.jpg) 
 
 2018-02-13 | [路易斯安那州新奥尔良的典藏厅，美国 (© Cosmo Condina/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.PreservationHallStage_EN-AU8992559975_1920x1080.jpg) 
 
-2018-02-12 | [雍布拉康，中国西藏自治区 (© Yumian Deng)](https://cn.bing.com/th?id=OHR.YungbulakangPalace_EN-AU7734824363_UHD.jpg) 
+2018-02-12 | [雍布拉康，中国西藏自治区 (© Yumian Deng)](https://cdn.bimg.cc/bing/2018/OHR.YungbulakangPalace_EN-AU7734824363_1920x1080.jpg) 
 
-2018-02-11 | [新普利茅斯附近的特雷瓦雷瓦桥，新西兰 (© Matthew Williams-Ellis/Aurora Photos)](https://cn.bing.com/th?id=OHR.TeRewaRewa_EN-AU9716852261_UHD.jpg) 
+2018-02-11 | [新普利茅斯附近的特雷瓦雷瓦桥，新西兰 (© Matthew Williams-Ellis/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.TeRewaRewa_EN-AU9716852261_1920x1080.jpg) 
 
 2018-02-10 | [科西嘉岛上的博尼法乔城，法国 (© Hemis/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.BonifacioCorsica_EN-AU12600195218_1920x1080.jpg) 
 
-2018-02-09 | [莫斯科动物园内的一只孟加拉白虎，俄罗斯 (© andamanec/Shutterstock)](https://cn.bing.com/th?id=OHR.WhiteTiger_JA-JP10951891008_UHD.jpg) 
+2018-02-09 | [莫斯科动物园内的一只孟加拉白虎，俄罗斯 (© andamanec/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.WhiteTiger_JA-JP10951891008_1920x1080.jpg) 
 
-2018-02-08 | [多梅科山脉的岩盐山麓，智利 (© Sergio Ballivian/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SaltMountains_EN-AU13132607165_UHD.jpg) 
+2018-02-08 | [多梅科山脉的岩盐山麓，智利 (© Sergio Ballivian/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.SaltMountains_EN-AU13132607165_1920x1080.jpg) 
 
-2018-02-07 | [螺旋公园内的铠魄巨马雕像，苏格兰福尔柯克 (© Best Shot Factory/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.KelpiesFalkirk_EN-AU8885510040_UHD.jpg) 
+2018-02-07 | [螺旋公园内的铠魄巨马雕像，苏格兰福尔柯克 (© Best Shot Factory/REX/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.KelpiesFalkirk_EN-AU8885510040_1920x1080.jpg) 
 
 2018-02-06 | [坎伯兰岛的海岸森林，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2018/OHR.CumberlandIsland_EN-AU10182990410_1920x1080.jpg) 
 
 2018-02-05 | [南极洲的浮动冰山 (© Ray Hems/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.StormySeas_EN-AU9331975024_1920x1080.jpg) 
 
-2018-02-04 | [【今日立春】周至自然保护区内一只以樱花为食的金丝猴，中国陕西秦岭 (© Florian Möllers/Minden Pictures)](https://cn.bing.com/th?id=OHR.MonkeyGolden1_ZH-CN12125769581_UHD.jpg) 
+2018-02-04 | [【今日立春】周至自然保护区内一只以樱花为食的金丝猴，中国陕西秦岭 (© Florian Möllers/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.MonkeyGolden1_ZH-CN12125769581_1920x1080.jpg) 
 
 2018-02-03 | [城墙环绕之城乌尔比诺的屋顶，意大利 (© Andrea Pucci/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.UrbinoRooftops_EN-GB10329807146_1920x1080.jpg) 
 
 2018-02-02 | [高地陶恩国家公园内的阿尔卑斯旱獭，奥地利 (© blickwinkel/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.AustrianAlpineMarmots_EN-AU9655226026_1920x1080.jpg) 
 
-2018-02-01 | [施图本阿尔贝格，奥地利 (© 500px/Aurora Photos)](https://cn.bing.com/th?id=OHR.StubenamAlberg_EN-AU7684816211_UHD.jpg) 
+2018-02-01 | [施图本阿尔贝格，奥地利 (© 500px/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.StubenamAlberg_EN-AU7684816211_1920x1080.jpg) 
 
-2018-01-31 | [横跨塔尔图县的阳光，爱沙尼亚 (© Sven Zacek/Minden Pictures)](https://cn.bing.com/th?id=OHR.TartumaaEstonia_EN-AU13836445539_UHD.jpg) 
+2018-01-31 | [横跨塔尔图县的阳光，爱沙尼亚 (© Sven Zacek/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.TartumaaEstonia_EN-AU13836445539_1920x1080.jpg) 
 
 2018-01-30 | [花岗岩峡谷中的沃森湖，美国亚利桑那州 (© Tim Fitzharris/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.GraniteDells_EN-AU10224185236_1920x1080.jpg) 
 
 2018-01-29 | [美国宇航局格伦研究中心的真空室，美国俄亥俄州克利夫兰 (© NASA)](https://cdn.bimg.cc/bing/2018/OHR.VF5NASA_EN-AU11160261487_1920x1080.jpg) 
 
-2018-01-28 | [库赫莫附近的冬日美景，芬兰 (© Ville Heikkinen/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KuhmoLapland_EN-AU8543807282_UHD.jpg) 
+2018-01-28 | [库赫莫附近的冬日美景，芬兰 (© Ville Heikkinen/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2018/OHR.KuhmoLapland_EN-AU8543807282_1920x1080.jpg) 
 
 2018-01-27 | [Trwyn杜灯塔附近的发光浮游生物，威尔士安格尔西岛 (© REX/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.BluePlankton_EN-AU9721339029_1920x1080.jpg) 
 
-2018-01-26 | [可西欧斯可国家公园内的东部灰袋鼠，澳大利亚 (© Jochen Schlenker/Masterfile)](https://cn.bing.com/th?id=OHR.EasternGrey_EN-AU11765734343_UHD.jpg) 
+2018-01-26 | [可西欧斯可国家公园内的东部灰袋鼠，澳大利亚 (© Jochen Schlenker/Masterfile)](https://cdn.bimg.cc/bing/2018/OHR.EasternGrey_EN-AU11765734343_1920x1080.jpg) 
 
 2018-01-25 | [萨米帐篷的结构，挪威芬马克 (© Céleste Manet/plainpicture)](https://cdn.bimg.cc/bing/2018/OHR.SamiLavvu_EN-AU10473316482_1920x1080.jpg) 
 
@@ -6435,7 +6435,7 @@
 
 2018-01-22 | [旧金山金门大桥鸟瞰图，美国加利福尼亚州 (© Alex Menendez/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.BirdseyeGGB_PT-BR12998518634_1920x1080.jpg) 
 
-2018-01-21 | [凯恩戈姆山国家公园的欧亚红松鼠，苏格兰 (© SCOTLAND: The Big Picture/Minden Pictures)](https://cn.bing.com/th?id=OHR.ScotlandSquirrel_EN-AU9009066153_UHD.jpg) 
+2018-01-21 | [凯恩戈姆山国家公园的欧亚红松鼠，苏格兰 (© SCOTLAND: The Big Picture/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.ScotlandSquirrel_EN-AU9009066153_1920x1080.jpg) 
 
 2018-01-20 | [【今日大寒】一列穿越三岛村附近只见川的火车，日本 (© Nuttapoom Amornpashara/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.TadamiTrain_ZH-CN13495442975_1920x1080.jpg) 
 
@@ -6443,25 +6443,25 @@
 
 2018-01-18 | [马希纳普阿湖上的霍氏粉褶菌，新西兰 (© Thysje Arthur/Offset)](https://cdn.bimg.cc/bing/2018/OHR.BlueMushroom_EN-AU9252668987_1920x1080.jpg) 
 
-2018-01-17 | [从缅因州巴港附近的海岸看到的银河 (© Adam Woodworth/Aurora Photos)](https://cn.bing.com/th?id=OHR.BarHarborCave_EN-AU8598700153_UHD.jpg) 
+2018-01-17 | [从缅因州巴港附近的海岸看到的银河 (© Adam Woodworth/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.BarHarborCave_EN-AU8598700153_1920x1080.jpg) 
 
-2018-01-16 | [印度尼西亚海岸附近的狮子鱼 (© David Fleetham/Visuals Unlimited, Inc.)](https://cn.bing.com/th?id=OHR.LionFish_EN-AU6148271680_UHD.jpg) 
+2018-01-16 | [印度尼西亚海岸附近的狮子鱼 (© David Fleetham/Visuals Unlimited, Inc.)](https://cdn.bimg.cc/bing/2018/OHR.LionFish_EN-AU6148271680_1920x1080.jpg) 
 
 2018-01-15 | [冬天的高地牛群 (© René van den Berg/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.HighlandCattle_EN-AU7703511621_1920x1080.jpg) 
 
-2018-01-14 | [桑迪岛和北海，苏格兰 (© Jim Richardson/Getty Images)](https://cn.bing.com/th?id=OHR.OrkneyIslands_EN-AU7244174382_UHD.jpg) 
+2018-01-14 | [桑迪岛和北海，苏格兰 (© Jim Richardson/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.OrkneyIslands_EN-AU7244174382_1920x1080.jpg) 
 
 2018-01-13 | [沃尔夫克里克山口附近被火灾破坏的森林，美国科罗拉多州 (© Peter Essick/Aurora Photos)](https://cdn.bimg.cc/bing/2018/OHR.EnglemannSpruceForest_EN-AU10888336160_1920x1080.jpg) 
 
 2018-01-12 | [卡兹尼神殿，约旦佩特拉 (© Felix Lipov/Shutterstock)](https://cdn.bimg.cc/bing/2018/OHR.TreasuryCandles_PT-BR9414027460_1920x1080.jpg) 
 
-2018-01-11 | [中央公园的弓桥，美国纽约市 (© Ultima Gaina/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.BowSnow_EN-AU9208049425_UHD.jpg) 
+2018-01-11 | [中央公园的弓桥，美国纽约市 (© Ultima Gaina/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2018/OHR.BowSnow_EN-AU9208049425_1920x1080.jpg) 
 
 2018-01-10 | [桑布鲁国家自然保护区金合欢树上悬挂的织布鸟鸟巢，肯尼亚 (© Bernd Rohrschneider/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.SamburuNests_EN-AU12596720341_1920x1080.jpg) 
 
-2018-01-09 | [大喷泉间歇泉，美国怀俄明州黄石国家公园 (© lightpix/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.GreatFountainGeyer_EN-AU10674250728_UHD.jpg) 
+2018-01-09 | [大喷泉间歇泉，美国怀俄明州黄石国家公园 (© lightpix/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2018/OHR.GreatFountainGeyer_EN-AU10674250728_1920x1080.jpg) 
 
-2018-01-08 | [滨海湾花园，新加坡 (© Hemis/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CloudForest_EN-AU9578926154_UHD.jpg) 
+2018-01-08 | [滨海湾花园，新加坡 (© Hemis/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2018/OHR.CloudForest_EN-AU9578926154_1920x1080.jpg) 
 
 2018-01-07 | [奥特拉峰的斯泰尔维奥山口，意大利 (© Sandro Bisaro/Getty Images)](https://cdn.bimg.cc/bing/2018/OHR.StelvioPass_EN-AU13513583896_1920x1080.jpg) 
 
@@ -6473,7 +6473,7 @@
 
 2018-01-03 | [多洛米蒂山脉Lagazuoi山上的桑拿屋，意大利 (© Spotcatch/Westend61/Offset)](https://cdn.bimg.cc/bing/2018/OHR.SaunaDolomites_EN-AU9608449389_1920x1080.jpg) 
 
-2018-01-02 | [织布机上的花呢格纹布，苏格兰爱丁堡 (© AA World Travel Library/Alamy)](https://cn.bing.com/th?id=OHR.TartanWeaving_EN-AU9638927946_UHD.jpg) 
+2018-01-02 | [织布机上的花呢格纹布，苏格兰爱丁堡 (© AA World Travel Library/Alamy)](https://cdn.bimg.cc/bing/2018/OHR.TartanWeaving_EN-AU9638927946_1920x1080.jpg) 
 
 2018-01-01 | [【今日元旦】一只栖息在玫瑰果树枝上的知更鸟，英国诺福克 (© Ernie Janes/Minden Pictures)](https://cdn.bimg.cc/bing/2018/OHR.RosehipRobin_ZH-CN10943133314_1920x1080.jpg) 
 
@@ -6497,7 +6497,7 @@
 
 2017-12-22 | [【今日冬至】湖中的天鹅，中国新疆伊犁州 (© SinoImages/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.Wintersolstice1222_ZH-CN10807868228_1920x1080.jpg) 
 
-2017-12-21 | [一只从洞中偷窥的东部灰松鼠 (© Darlyne A. Murawski/Getty Images)](https://cn.bing.com/th?id=OHR.SolsticeSquirrel_PT-BR6551849968_UHD.jpg) 
+2017-12-21 | [一只从洞中偷窥的东部灰松鼠 (© Darlyne A. Murawski/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.SolsticeSquirrel_PT-BR6551849968_1920x1080.jpg) 
 
 2017-12-20 | [威尔士中部的波厄斯郡 (© Graham Lawrence/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.PowysCounty_ZH-CN11115693548_1920x1080.jpg) 
 
@@ -6511,7 +6511,7 @@
 
 2017-12-15 | [塞舌尔群岛附近软珊瑚树中的一颗薄荷海星，塞舌尔 (© Norbert Wu/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.SeychellesCCSS_EN-AU10430664838_1920x1080.jpg) 
 
-2017-12-14 | [冥王星的北极 (© J Marshall/Alamy)](https://cn.bing.com/th?id=OHR.PlutoNorthPole_ZH-CN12213356975_UHD.jpg) 
+2017-12-14 | [冥王星的北极 (© J Marshall/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.PlutoNorthPole_ZH-CN12213356975_1920x1080.jpg) 
 
 2017-12-13 | [弗罗伊登贝格镇，德国 (© Iain Masterton/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.Freudenberg_EN-AU11714819408_1920x1080.jpg) 
 
@@ -6519,13 +6519,13 @@
 
 2017-12-11 | [卓木拉日峰上的古老宗堡，不丹 (© Alex Treadway/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.Jangothang_EN-AU12673032792_1920x1080.jpg) 
 
-2017-12-10 | [普托拉纳高原上的北噪鸦，俄罗斯西伯利亚 (© Sergey Gorshkov/Minden Pictures)](https://cn.bing.com/th?id=OHR.SiberianJay_EN-AU7327037586_UHD.jpg) 
+2017-12-10 | [普托拉纳高原上的北噪鸦，俄罗斯西伯利亚 (© Sergey Gorshkov/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.SiberianJay_EN-AU7327037586_1920x1080.jpg) 
 
-2017-12-09 | [老桥，意大利佛罗伦萨 (© Michele Castellani/Alamy)](https://cn.bing.com/th?id=OHR.FlightFest_EN-AU9045713592_UHD.jpg) 
+2017-12-09 | [老桥，意大利佛罗伦萨 (© Michele Castellani/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.FlightFest_EN-AU9045713592_1920x1080.jpg) 
 
-2017-12-08 | [西贝柳斯纪念碑，芬兰赫尔辛基 (© Ville Heino/500px)](https://cn.bing.com/th?id=OHR.SibeliusMonument_JA-JP8903164725_UHD.jpg) 
+2017-12-08 | [西贝柳斯纪念碑，芬兰赫尔辛基 (© Ville Heino/500px)](https://cdn.bimg.cc/bing/2017/OHR.SibeliusMonument_JA-JP8903164725_1920x1080.jpg) 
 
-2017-12-07 | [【今日大雪】暴风雪中两只在树干上攀爬的大熊猫，中国四川 (© Juan Carlos Munoz/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.Snow_ZH-CN11178898651_UHD.jpg) 
+2017-12-07 | [【今日大雪】暴风雪中两只在树干上攀爬的大熊猫，中国四川 (© Juan Carlos Munoz/NPL/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.Snow_ZH-CN11178898651_1920x1080.jpg) 
 
 2017-12-06 | [南极洲的马图谢维奇冰川 (© NASA)](https://cdn.bimg.cc/bing/2017/OHR.MatusevichGlacier_EN-AU13620113504_1920x1080.jpg) 
 
@@ -6533,15 +6533,15 @@
 
 2017-12-04 | [计算机主板细节图 (© Antonio Romero/Science Photo Library)](https://cdn.bimg.cc/bing/2017/OHR.Motherboard_EN-AU12641512843_1920x1080.jpg) 
 
-2017-12-03 | [施韦青根城堡花园鸟瞰图，德国巴登-符腾堡州 (© aerial-photos.com/Alamy)](https://cn.bing.com/th?id=OHR.SchwetzingenAerial_ZH-CN11628382780_UHD.jpg) 
+2017-12-03 | [施韦青根城堡花园鸟瞰图，德国巴登-符腾堡州 (© aerial-photos.com/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.SchwetzingenAerial_ZH-CN11628382780_1920x1080.jpg) 
 
-2017-12-02 | [摩押附近的沙漠中的钾蒸发池，美国犹他州 (© Jassen Todorov/Solent News/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.PotashPonds_EN-AU13213047688_UHD.jpg) 
+2017-12-02 | [摩押附近的沙漠中的钾蒸发池，美国犹他州 (© Jassen Todorov/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.PotashPonds_EN-AU13213047688_1920x1080.jpg) 
 
 2017-12-01 | [索菲亚王后艺术歌剧院的内部，西班牙巴伦西亚 (© AWL Images/Masterfile)](https://cdn.bimg.cc/bing/2017/OHR.SpiralSpain_EN-AU12059815472_1920x1080.jpg) 
 
 2017-11-30 | [塞拉多生态区内的希氏石脂鲤，巴西 (© Luciano Candisani/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.Piraputanga_EN-AU15054048303_1920x1080.jpg) 
 
-2017-11-29 | [洛杉矶的联合车站，美国加利福尼亚州 (© Ted Vancleave/Gallery Stock)](https://cn.bing.com/th?id=OHR.LAUnionStation_EN-AU9199909903_UHD.jpg) 
+2017-11-29 | [洛杉矶的联合车站，美国加利福尼亚州 (© Ted Vancleave/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.LAUnionStation_EN-AU9199909903_1920x1080.jpg) 
 
 2017-11-28 | [灯光装点的水稻梯田，日本轮岛 (© Sean Pavone/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.RiceLights_EN-AU9205510065_1920x1080.jpg) 
 
@@ -6559,7 +6559,7 @@
 
 2017-11-21 | [圣地亚哥岛上的加拉帕戈斯群岛海狮幼崽们，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.PupsPlayGalapagos_EN-AU8850145565_1920x1080.jpg) 
 
-2017-11-20 | [地球上的孩子纪念碑，挪威北角 (© Cultura/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.ChildrenofEarth_EN-AU11097669458_UHD.jpg) 
+2017-11-20 | [地球上的孩子纪念碑，挪威北角 (© Cultura/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.ChildrenofEarth_EN-AU11097669458_1920x1080.jpg) 
 
 2017-11-19 | [威斯康星州的水源荒野地 (© Ian Shive/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.HeadwatersWilderness_EN-AU9635954803_1920x1080.jpg) 
 
@@ -6577,17 +6577,17 @@
 
 2017-11-12 | [一只蛇鹫在南非利特弗雷自然保护区内寻找食物 (© Richard du Toit/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.SecretaryHunt_PT-BR11569265072_1920x1080.jpg) 
 
-2017-11-11 | [瓦尔内明德的灯塔，德国梅克伦堡-前波美拉尼亚州罗斯托克市 (© Sandra Kreuzinger/Moment Open/Getty Images)](https://cn.bing.com/th?id=OHR.LeuchtturmWarnemuende_EN-AU8137822331_UHD.jpg) 
+2017-11-11 | [瓦尔内明德的灯塔，德国梅克伦堡-前波美拉尼亚州罗斯托克市 (© Sandra Kreuzinger/Moment Open/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.LeuchtturmWarnemuende_EN-AU8137822331_1920x1080.jpg) 
 
-2017-11-10 | [恶地国家公园内的城堡步道，美国南达科他州 (© Kirkendall-Spring Photographers/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.MudstoneBadlands_EN-AU8474724583_UHD.jpg) 
+2017-11-10 | [恶地国家公园内的城堡步道，美国南达科他州 (© Kirkendall-Spring Photographers/NPL/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.MudstoneBadlands_EN-AU8474724583_1920x1080.jpg) 
 
-2017-11-09 | [避开鲨鱼追击的鱼群，澳大利亚赫伦岛 (© Scott Carr/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.HeronIslandShark_EN-AU12565902939_UHD.jpg) 
+2017-11-09 | [避开鲨鱼追击的鱼群，澳大利亚赫伦岛 (© Scott Carr/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.HeronIslandShark_EN-AU12565902939_1920x1080.jpg) 
 
 2017-11-08 | [波因特阿里纳灯塔，美国加利福尼亚州 (© plainpicture/Westend61/Spotcatch)](https://cdn.bimg.cc/bing/2017/OHR.PointArenaLH_EN-AU10512756450_1920x1080.jpg) 
 
-2017-11-07 | [黄龙风景名胜区，中国四川 (© Sergey Orlov/Design Pics/plainpicture)](https://cn.bing.com/th?id=OHR.CRGFerns_ZH-CN13613783251_UHD.jpg) 
+2017-11-07 | [黄龙风景名胜区，中国四川 (© Sergey Orlov/Design Pics/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.CRGFerns_ZH-CN13613783251_1920x1080.jpg) 
 
-2017-11-06 | [从匈牙利布达佩斯的盖勒特山看到的布达城堡 (© Ionut David/Alamy)](https://cn.bing.com/th?id=OHR.BudaCastle_PT-BR8485958447_UHD.jpg) 
+2017-11-06 | [从匈牙利布达佩斯的盖勒特山看到的布达城堡 (© Ionut David/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.BudaCastle_PT-BR8485958447_1920x1080.jpg) 
 
 2017-11-05 | [格里菲斯天文台内的傅科摆装置，美国洛杉矶 (© GIPhotoStock/Science Photo Library)](https://cdn.bimg.cc/bing/2017/OHR.FoucaultPendulum_EN-AU9807228543_1920x1080.jpg) 
 
@@ -6605,7 +6605,7 @@
 
 2017-10-29 | [天山的雪豹，吉尔吉斯斯坦 (© Sebastian Kennerknecht/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.KyrgyzstanCat_EN-AU10859527245_1920x1080.jpg) 
 
-2017-10-28 | [【今日重阳节】栒子属植物秋色的叶子 (© Steve Terrill/Danita Delimont)](https://cn.bing.com/th?id=OHR.Cotoneaster_ZH-CN13904488642_UHD.jpg) 
+2017-10-28 | [【今日重阳节】栒子属植物秋色的叶子 (© Steve Terrill/Danita Delimont)](https://cdn.bimg.cc/bing/2017/OHR.Cotoneaster_ZH-CN13904488642_1920x1080.jpg) 
 
 2017-10-27 | [凯迈里国家公园，拉脱维亚 (© Sven Zacek/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.KemeriBog_EN-AU9749876935_1920x1080.jpg) 
 
@@ -6615,7 +6615,7 @@
 
 2017-10-24 | [越南吉婆岛上的小船 (© Garret Suhrie/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.CatBaBoats_EN-AU10871859347_1920x1080.jpg) 
 
-2017-10-23 | [【今日霜降】林芝市的云雾森林，西藏高原 (© Media Drum World/Aurora Photos)](https://cn.bing.com/th?id=OHR.Forest_ZH-CN16430313748_UHD.jpg) 
+2017-10-23 | [【今日霜降】林芝市的云雾森林，西藏高原 (© Media Drum World/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.Forest_ZH-CN16430313748_1920x1080.jpg) 
 
 2017-10-22 | [阿马尔菲主教座堂，意大利阿马尔菲 (© Inge Johnsson/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.AmalfiCathedral_EN-AU8035963050_1920x1080.jpg) 
 
@@ -6623,15 +6623,15 @@
 
 2017-10-20 | [由艺术家荷梅·潘萨设计的流浪者雕像的内部细节，法国昂蒂布 (© travelstock44/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.LaGrandeNomade_EN-AU10098798714_1920x1080.jpg) 
 
-2017-10-19 | [大盐湖的太阳能蒸发池，美国犹他州 (© Robert L. Potts/Offset)](https://cn.bing.com/th?id=OHR.GreatSaltLake_EN-AU12905752705_UHD.jpg) 
+2017-10-19 | [大盐湖的太阳能蒸发池，美国犹他州 (© Robert L. Potts/Offset)](https://cdn.bimg.cc/bing/2017/OHR.GreatSaltLake_EN-AU12905752705_1920x1080.jpg) 
 
 2017-10-18 | [孔苏埃格拉小镇内的风车，西班牙卡斯蒂利亚-拉曼恰托莱多省 (© Juan José Pascual/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.Consuegra_EN-AU11480319929_1920x1080.jpg) 
 
 2017-10-17 | [东库特尼的埃尔克河，加拿大不列颠哥伦比亚省 (© Carson Ganci/First Light/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.ElkValleyVideo_EN-AU7645555683_1920x1080.jpg) 
 
-2017-10-16 | [埃托沙国家公园内的伊兰羚羊和长颈鹿，纳米比亚 (© David Schultz/Mint Images/SuperStock)](https://cn.bing.com/th?id=OHR.ElandAntelope_EN-AU15189764045_UHD.jpg) 
+2017-10-16 | [埃托沙国家公园内的伊兰羚羊和长颈鹿，纳米比亚 (© David Schultz/Mint Images/SuperStock)](https://cdn.bimg.cc/bing/2017/OHR.ElandAntelope_EN-AU15189764045_1920x1080.jpg) 
 
-2017-10-15 | [德文特水库，英国德比郡 (© R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.DerwentDam_PT-BR7618148878_UHD.jpg) 
+2017-10-15 | [德文特水库，英国德比郡 (© R A Kearton/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.DerwentDam_PT-BR7618148878_1920x1080.jpg) 
 
 2017-10-14 | [奥克弗诺基国家野生动物保护区内的东美角鸮，美国佐治亚州 (© Media Drum World/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.ScreechOwl_ZH-CN8838787484_1920x1080.jpg) 
 
@@ -6641,11 +6641,11 @@
 
 2017-10-11 | [萨勒克国家公园内的拉帕谷，瑞典 (© Hans Strand/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.Rapadalen_EN-AU11885358150_1920x1080.jpg) 
 
-2017-10-10 | [联盟号航天器下降模块返回地球 (© Bill Ingalls/NASA)](https://cn.bing.com/th?id=OHR.SoyuzReturn_EN-AU8775853306_UHD.jpg) 
+2017-10-10 | [联盟号航天器下降模块返回地球 (© Bill Ingalls/NASA)](https://cdn.bimg.cc/bing/2017/OHR.SoyuzReturn_EN-AU8775853306_1920x1080.jpg) 
 
-2017-10-09 | [从神鹰I号望远镜拍摄到的猎户座大星云的红外图像 (© NASA)](https://cn.bing.com/th?id=OHR.OrionNebula_EN-AU10620917199_UHD.jpg) 
+2017-10-09 | [从神鹰I号望远镜拍摄到的猎户座大星云的红外图像 (© NASA)](https://cdn.bimg.cc/bing/2017/OHR.OrionNebula_EN-AU10620917199_1920x1080.jpg) 
 
-2017-10-08 | [【今日寒露】枫叶上的露滴，中国四川华蓥 (© Jerry Tan/age Fotostock)](https://cn.bing.com/th?id=OHR.Mapleleaf_ZH-CN9491310356_UHD.jpg) 
+2017-10-08 | [【今日寒露】枫叶上的露滴，中国四川华蓥 (© Jerry Tan/age Fotostock)](https://cdn.bimg.cc/bing/2017/OHR.Mapleleaf_ZH-CN9491310356_1920x1080.jpg) 
 
 2017-10-07 | [火星上的峡谷系统-水手号峡谷地区上的小行星 (© Detlev van Ravenswaay/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.VallesMarineris_ZH-CN10598461085_1920x1080.jpg) 
 
@@ -6657,15 +6657,15 @@
 
 2017-10-03 | [Timiderte Kasbah，摩洛哥德拉河  (© Mauricio Abreu/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.TimiderteKasbah_EN-AU12300996987_1920x1080.jpg) 
 
-2017-10-02 | [秋季格兰德河畔两岸的三角叶杨树，美国新墨西哥州 (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.RioGrandeCottonwood_PT-BR10685052962_UHD.jpg) 
+2017-10-02 | [秋季格兰德河畔两岸的三角叶杨树，美国新墨西哥州 (© Tim Fitzharris/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.RioGrandeCottonwood_PT-BR10685052962_1920x1080.jpg) 
 
-2017-10-01 | [国庆节期间街道上飘扬的五星红旗，中国深圳 (© Bartlomiej Magierowski/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.RedFlag_ZH-CN7582013591_UHD.jpg) 
+2017-10-01 | [国庆节期间街道上飘扬的五星红旗，中国深圳 (© Bartlomiej Magierowski/Alamy Stock Photo)](https://cdn.bimg.cc/bing/2017/OHR.RedFlag_ZH-CN7582013591_1920x1080.jpg) 
 
 2017-09-30 | [Ghoradeshwar山的反身蜥，印度马哈拉施特拉邦浦那市 (© Abhishek Bawkar/500px)](https://cdn.bimg.cc/bing/2017/OHR.SitanaPonticeriana_EN-AU10921478705_1920x1080.jpg) 
 
 2017-09-29 | [伊吹山车道上的秋景，日本滋贺县米原市 (© The Asahi Shimbun/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.MtIbukiyama_EN-US6882861958_1920x1080.jpg) 
 
-2017-09-28 | [奔跑中的柯尼克马，荷兰东法尔德斯普拉森自然保护区 (© Jim Brandenburg/Minden Pictures)](https://cn.bing.com/th?id=OHR.KonikHorses_EN-AU10997581740_UHD.jpg) 
+2017-09-28 | [奔跑中的柯尼克马，荷兰东法尔德斯普拉森自然保护区 (© Jim Brandenburg/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.KonikHorses_EN-AU10997581740_1920x1080.jpg) 
 
 2017-09-27 | [普卡基湖，新西兰南岛 (© Martin Heck/Nimia)](https://cdn.bimg.cc/bing/2017/OHR.LakePukaki_EN-AU9412206565_1920x1080.jpg) 
 
@@ -6675,21 +6675,21 @@
 
 2017-09-24 | [慕尼黑啤酒节期间的摩天轮以及埃尔福特大教堂和圣西弗勒斯教堂的景象 (© Hans P. Szyszka/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.ErfurtOktoberfest_EN-AU12154451896_1920x1080.jpg) 
 
-2017-09-23 | [【今日秋分】清晨以风筝为伴晨跑中的人，中国上海 (© Kiszon Pascal/Getty Images)](https://cn.bing.com/th?id=OHR.Shanghai_ZH-CN10665657954_UHD.jpg) 
+2017-09-23 | [【今日秋分】清晨以风筝为伴晨跑中的人，中国上海 (© Kiszon Pascal/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.Shanghai_ZH-CN10665657954_1920x1080.jpg) 
 
-2017-09-22 | [多利草地荒野内熊岩保护区的秋景，美国西弗吉尼亚州 (© Anthony Heflin/500px)](https://cn.bing.com/th?id=OHR.DollySods_EN-AU9021857432_UHD.jpg) 
+2017-09-22 | [多利草地荒野内熊岩保护区的秋景，美国西弗吉尼亚州 (© Anthony Heflin/500px)](https://cdn.bimg.cc/bing/2017/OHR.DollySods_EN-AU9021857432_1920x1080.jpg) 
 
 2017-09-21 | [普罗奇达岛，意大利那不勒斯湾 (© Frank Chmura/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.CorricellaMarina_EN-AU12546365116_1920x1080.jpg) 
 
-2017-09-20 | [罗滕伯格园内的葡萄园，德国巴登-符腾堡州 (© Werner Dieterich/plainpicture)](https://cn.bing.com/th?id=OHR.RotenbergVineyards_EN-AU11270850012_UHD.jpg) 
+2017-09-20 | [罗滕伯格园内的葡萄园，德国巴登-符腾堡州 (© Werner Dieterich/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.RotenbergVineyards_EN-AU11270850012_1920x1080.jpg) 
 
-2017-09-19 | [柯库布里的雀鹰，苏格兰 (© Ray Cooper/Solent News/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.Sparrowhawk_EN-AU9288842659_UHD.jpg) 
+2017-09-19 | [柯库布里的雀鹰，苏格兰 (© Ray Cooper/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.Sparrowhawk_EN-AU9288842659_1920x1080.jpg) 
 
 2017-09-18 | [瓜伊哈纳斯国家公园保留地和海达文物古迹内的一条森林溪流，加拿大不列颠哥伦比亚省 (© Robert Postma/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.AlgaeRocks_EN-AU13964069883_1920x1080.jpg) 
 
 2017-09-17 | [戈尔代，法国普罗旺斯-阿尔卑斯-蓝色海岸大区沃克吕兹省 (© Therry/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.GordesVillage_EN-AU12355056555_1920x1080.jpg) 
 
-2017-09-16 | [沃特顿湖国家公园内的卡梅伦瀑布，加拿大艾伯塔省 (© Anna Gorin/Getty Images)](https://cn.bing.com/th?id=OHR.CameronFalls_EN-AU10194107229_UHD.jpg) 
+2017-09-16 | [沃特顿湖国家公园内的卡梅伦瀑布，加拿大艾伯塔省 (© Anna Gorin/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.CameronFalls_EN-AU10194107229_1920x1080.jpg) 
 
 2017-09-15 | [泰晤士河河口和伦敦阵列风力发电厂，英格兰 (© NASA)](https://cdn.bimg.cc/bing/2017/OHR.ThamesEstuaryNASA_EN-AU14188404911_1920x1080.jpg) 
 
@@ -6697,29 +6697,29 @@
 
 2017-09-13 | [邦贾加拉的多贡村，马里共和国 (© Quick Shot/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.BandiagaraDogon_EN-AU11747337209_1920x1080.jpg) 
 
-2017-09-12 | [卡斯尔波因特村附近的城堡角灯塔，新西兰北岛  (© Matteo Colombo/Digital Vision/Getty Images)](https://cn.bing.com/th?id=OHR.CastlePointLH_EN-AU13433910394_UHD.jpg) 
+2017-09-12 | [卡斯尔波因特村附近的城堡角灯塔，新西兰北岛  (© Matteo Colombo/Digital Vision/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.CastlePointLH_EN-AU13433910394_1920x1080.jpg) 
 
 2017-09-11 | [拉安斯欧克斯梅多国家历史遗址，纽芬兰岛圣吕奈尔-格里克特 (© Yves Marcoux/Age Fotostock)](https://cdn.bimg.cc/bing/2017/OHR.LanseMeadows_EN-AU9737922442_1920x1080.jpg) 
 
-2017-09-10 | [海鬣蜥，厄瓜多尔加拉帕戈斯群岛 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.PuntaEspinosa_EN-AU12660083085_UHD.jpg) 
+2017-09-10 | [海鬣蜥，厄瓜多尔加拉帕戈斯群岛 (© Tui De Roy/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.PuntaEspinosa_EN-AU12660083085_1920x1080.jpg) 
 
-2017-09-09 | [弗格拉什山脉的波耶纳里城堡，罗马尼亚  (© Susanna Patras/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PoenariCastle_EN-AU8257480014_UHD.jpg) 
+2017-09-09 | [弗格拉什山脉的波耶纳里城堡，罗马尼亚  (© Susanna Patras/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.PoenariCastle_EN-AU8257480014_1920x1080.jpg) 
 
-2017-09-08 | [乔治皮博迪图书馆，美国马里兰州巴尔的摩市 (© Matthew Petroff/500px)](https://cn.bing.com/th?id=OHR.PeabodyLibrary_EN-AU9475175779_UHD.jpg) 
+2017-09-08 | [乔治皮博迪图书馆，美国马里兰州巴尔的摩市 (© Matthew Petroff/500px)](https://cdn.bimg.cc/bing/2017/OHR.PeabodyLibrary_EN-AU9475175779_1920x1080.jpg) 
 
 2017-09-07 | [【今日白露】盛开着粉红色花的三叶草 (© Sam Bloomberg-Rissman/Moment/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.CrailHarbour_EN-AU9191394748_1920x1080.jpg) 
 
-2017-09-06 | [从科罗拉多州的达拉斯分水岭看到的斯奈弗的景色 (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SneffelsRange_EN-AU9227240987_UHD.jpg) 
+2017-09-06 | [从科罗拉多州的达拉斯分水岭看到的斯奈弗的景色 (© Rachid Dahnoun/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.SneffelsRange_EN-AU9227240987_1920x1080.jpg) 
 
-2017-09-05 | [从Dos Ojos灰岩洞水中仰视的景色，墨西哥 (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DosOjos_EN-AU11313156087_UHD.jpg) 
+2017-09-05 | [从Dos Ojos灰岩洞水中仰视的景色，墨西哥 (© Christian Vizl/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.DosOjos_EN-AU11313156087_1920x1080.jpg) 
 
-2017-09-04 | [北弗里西亚群岛中的弗尔岛，德国 (© Alexander Gabrysch/Getty Images)](https://cn.bing.com/th?id=OHR.FoehrAerial_EN-AU11365731144_UHD.jpg) 
+2017-09-04 | [北弗里西亚群岛中的弗尔岛，德国 (© Alexander Gabrysch/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.FoehrAerial_EN-AU11365731144_1920x1080.jpg) 
 
 2017-09-03 | [上海环球金融中心，中国 (© Danny Hu/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.SWFC_EN-AU8629361490_1920x1080.jpg) 
 
-2017-09-02 | [通过陆地卫星8号拍摄到的澳大利亚西部的剑桥湾河口 (© World History Archive/Alamy)](https://cn.bing.com/th?id=OHR.WestAU_EN-AU11766903144_UHD.jpg) 
+2017-09-02 | [通过陆地卫星8号拍摄到的澳大利亚西部的剑桥湾河口 (© World History Archive/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.WestAU_EN-AU11766903144_1920x1080.jpg) 
 
-2017-09-01 | [一只白鹳和幼鸟在阿连特茹西南部和维森蒂娜海岸自然公园内筑巢，葡萄牙 (© Marco Bustos/Solent News/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.StorkCliffs_EN-AU11006532238_UHD.jpg) 
+2017-09-01 | [一只白鹳和幼鸟在阿连特茹西南部和维森蒂娜海岸自然公园内筑巢，葡萄牙 (© Marco Bustos/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.StorkCliffs_EN-AU11006532238_1920x1080.jpg) 
 
 2017-08-31 | [法国霞慕尼山谷上空的云海 (© Masterfile)](https://cdn.bimg.cc/bing/2017/OHR.ChamonixClouds_EN-AU7806783297_1920x1080.jpg) 
 
@@ -6727,19 +6727,19 @@
 
 2017-08-29 | [俄勒冈州内的“彩绘山丘”，美国 (© David Henderson/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.OregonPainted_EN-AU8368800151_1920x1080.jpg) 
 
-2017-08-28 | [康沃尔郡内的巴特莱克矿场， 英国 (© Robert Harding/Masterfile)](https://cn.bing.com/th?id=OHR.BotallackCornwall_EN-AU10690493068_UHD.jpg) 
+2017-08-28 | [康沃尔郡内的巴特莱克矿场， 英国 (© Robert Harding/Masterfile)](https://cdn.bimg.cc/bing/2017/OHR.BotallackCornwall_EN-AU10690493068_1920x1080.jpg) 
 
 2017-08-27 | [青藏高原中常见的杉叶藻，中国 (© Dong Lei/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.BasongcuoNP_EN-AU8976373153_1920x1080.jpg) 
 
-2017-08-26 | [卡格拉格帝跨境公园内的两只大耳狐，博茨瓦纳 (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.BatEaredFox_EN-AU12936466242_UHD.jpg) 
+2017-08-26 | [卡格拉格帝跨境公园内的两只大耳狐，博茨瓦纳 (© Richard Du Toit/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.BatEaredFox_EN-AU12936466242_1920x1080.jpg) 
 
 2017-08-25 | [斯德哥尔摩王宫内的古斯塔夫三世文物馆，瑞典 (© Johnér/Offset)](https://cdn.bimg.cc/bing/2017/OHR.GustavAntiquities_ZH-CN9624291648_1920x1080.jpg) 
 
-2017-08-24 | [管海葵之缩时摄影 (© Coral Morphologic)](https://cn.bing.com/th?id=OHR.TubeAnemone_EN-AU8077113499_UHD.jpg) 
+2017-08-24 | [管海葵之缩时摄影 (© Coral Morphologic)](https://cdn.bimg.cc/bing/2017/OHR.TubeAnemone_EN-AU8077113499_1920x1080.jpg) 
 
-2017-08-23 | [【今日处暑】美国10号州际公路上的阿查法拉亚盆地桥，美国路易斯安那州 (© Brian Sytnyk/Masterfile)](https://cn.bing.com/th?id=OHR.AtchafalayaBasin_ZH-CN11978071492_UHD.jpg) 
+2017-08-23 | [【今日处暑】美国10号州际公路上的阿查法拉亚盆地桥，美国路易斯安那州 (© Brian Sytnyk/Masterfile)](https://cdn.bimg.cc/bing/2017/OHR.AtchafalayaBasin_ZH-CN11978071492_1920x1080.jpg) 
 
-2017-08-22 | [洛夫琴山国家公园内的Njegoš纪念碑，黑山 (© joci03/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.MausoleumLovcen_EN-AU10939848150_UHD.jpg) 
+2017-08-22 | [洛夫琴山国家公园内的Njegoš纪念碑，黑山 (© joci03/iStock/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.MausoleumLovcen_EN-AU10939848150_1920x1080.jpg) 
 
 2017-08-21 | [简塔·曼塔天文台建筑群的一部分，印度新德里 (© Uniquely India/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.JantarJaipur_EN-AU14077542192_1920x1080.jpg) 
 
@@ -6751,7 +6751,7 @@
 
 2017-08-17 | [布拉奇岛上的尖角海滩，克罗地亚 (© mbbirdy/E+/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.GoldenHorn_EN-AU12930138012_1920x1080.jpg) 
 
-2017-08-16 | [冰川国家公园内的雪崩溪，美国蒙大拿州 (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AvalancheCreek_EN-AU9065774002_UHD.jpg) 
+2017-08-16 | [冰川国家公园内的雪崩溪，美国蒙大拿州 (© Ian Shive/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.AvalancheCreek_EN-AU9065774002_1920x1080.jpg) 
 
 2017-08-15 | [吉纳森国家森林内的颤杨，美国科罗拉多州 (© Tim Fitzharris/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.QuakingAspens_EN-AU10051786378_1920x1080.jpg) 
 
@@ -6759,33 +6759,33 @@
 
 2017-08-13 | [多重曝光的风筝冲浪世界杯，德国 (© plainpicture/Rudi Sebastian)](https://cdn.bimg.cc/bing/2017/OHR.Kitesurfing_EN-AU12853179282_1920x1080.jpg) 
 
-2017-08-12 | [马纳波尔斯国家公园内的非洲草原象，津巴布韦 (© David Fettes/Offset)](https://cn.bing.com/th?id=OHR.LoxodontaAfricana_EN-AU11003709032_UHD.jpg) 
+2017-08-12 | [马纳波尔斯国家公园内的非洲草原象，津巴布韦 (© David Fettes/Offset)](https://cdn.bimg.cc/bing/2017/OHR.LoxodontaAfricana_EN-AU11003709032_1920x1080.jpg) 
 
 2017-08-11 | [瓦隆蓬达尔克的蓬达尔克洞穴，法国 (© Christian Handl/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.CavernduPontdArc_EN-AU9994344414_1920x1080.jpg) 
 
 2017-08-10 | [瓦卡奇纳绿洲，秘鲁伊卡大区 (© Matthew Williams-Ellis/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.Huacachina_EN-AU10013158599_1920x1080.jpg) 
 
-2017-08-09 | [迈阿卡河州立公园内的沼泽生态区，美国佛罗里达州 (© Paul Marcellini/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HydricHammock_EN-AU7397123310_UHD.jpg) 
+2017-08-09 | [迈阿卡河州立公园内的沼泽生态区，美国佛罗里达州 (© Paul Marcellini/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.HydricHammock_EN-AU7397123310_1920x1080.jpg) 
 
 2017-08-08 | [迪纳利国家公园内的加拿大猞猁，美国阿拉斯加州 (© Design Pics Inc./Alamy)](https://cdn.bimg.cc/bing/2017/OHR.AlaskaLynx_EN-AU9313111559_1920x1080.jpg) 
 
 2017-08-07 | [【今日立秋】内蒙古呼伦贝尔草原，中国 (© Sino Images/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.HulunbuirPrairie_PT-BR10970548280_1920x1080.jpg) 
 
-2017-08-06 | [奥勒松上空的流星，挪威 (© Stian Rekdal/Nimia)](https://cn.bing.com/th?id=OHR.AlesundNorway_ZH-CN9988504070_UHD.jpg) 
+2017-08-06 | [奥勒松上空的流星，挪威 (© Stian Rekdal/Nimia)](https://cdn.bimg.cc/bing/2017/OHR.AlesundNorway_ZH-CN9988504070_1920x1080.jpg) 
 
 2017-08-05 | [卡拉科尔玛雅考古遗址，伯利兹 (© Yann Arthus-Bertrand/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.CaanaTemple_EN-AU9334821320_1920x1080.jpg) 
 
 2017-08-04 | [北卡罗来纳州外滩群岛上的鲍迪岛灯塔 (© Anthony Heflin/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.BodieLighthouse_EN-AU10541981640_1920x1080.jpg) 
 
-2017-08-03 | [瓦朗索勒薰衣草田，法国普罗旺斯 (© Frank Krahmer/Panorama Stock)](https://cn.bing.com/th?id=OHR.LavenderProvence_EN-AU9659437083_UHD.jpg) 
+2017-08-03 | [瓦朗索勒薰衣草田，法国普罗旺斯 (© Frank Krahmer/Panorama Stock)](https://cdn.bimg.cc/bing/2017/OHR.LavenderProvence_EN-AU9659437083_1920x1080.jpg) 
 
 2017-08-02 | [印度尼西亚海岸的螺旋鞭珊瑚 (© WaterFrame/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.WhipCoral_EN-AU11006030844_1920x1080.jpg) 
 
-2017-08-01 | [克鲁格国家公园内的雌性安氏林羚，南非 (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.Nyala_EN-AU11787993086_UHD.jpg) 
+2017-08-01 | [克鲁格国家公园内的雌性安氏林羚，南非 (© Richard Du Toit/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.Nyala_EN-AU11787993086_1920x1080.jpg) 
 
-2017-07-31 | [梅利哈俯视视图，马耳他 (© Zoltan Gabor/Alamy)](https://cn.bing.com/th?id=OHR.Mellieha_EN-AU9931288836_UHD.jpg) 
+2017-07-31 | [梅利哈俯视视图，马耳他 (© Zoltan Gabor/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.Mellieha_EN-AU9931288836_1920x1080.jpg) 
 
-2017-07-30 | [画岩湖滨，美国密歇根州 (© Steve Gettle/Minden Pictures)](https://cn.bing.com/th?id=OHR.MineralCliffs_EN-AU10636449444_UHD.jpg) 
+2017-07-30 | [画岩湖滨，美国密歇根州 (© Steve Gettle/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.MineralCliffs_EN-AU10636449444_1920x1080.jpg) 
 
 2017-07-29 | [华盛顿广场公园鸟瞰图，美国纽约 (© New York on Air/Offset)](https://cdn.bimg.cc/bing/2017/OHR.WaSqPk_EN-AU9813692413_1920x1080.jpg) 
 
@@ -6793,21 +6793,21 @@
 
 2017-07-27 | [黄山，中国安徽省 (© Oktay Ortakcioglu/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.HuangshanClouds_EN-AU10777890471_1920x1080.jpg) 
 
-2017-07-26 | [从鬼城Alta看到的威尔逊峰，美国科罗拉多州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WilsonPeakWindow_EN-AU10136791556_UHD.jpg) 
+2017-07-26 | [从鬼城Alta看到的威尔逊峰，美国科罗拉多州 (© Grant Ordelheide/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.WilsonPeakWindow_EN-AU10136791556_1920x1080.jpg) 
 
-2017-07-25 | [莫斯克内斯岛雷讷村雷纳布林根山岭的景观，挪威 (© David Varga/Shutterstock)](https://cn.bing.com/th?id=OHR.ReinebringenRidge_EN-AU10023256564_UHD.jpg) 
+2017-07-25 | [莫斯克内斯岛雷讷村雷纳布林根山岭的景观，挪威 (© David Varga/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.ReinebringenRidge_EN-AU10023256564_1920x1080.jpg) 
 
-2017-07-24 | [虹彩吸蜜鹦鹉，澳大利亚威勒比  (© Roger Powell/Minden Pictures)](https://cn.bing.com/th?id=OHR.RainbowLorikeets_EN-AU9196763566_UHD.jpg) 
+2017-07-24 | [虹彩吸蜜鹦鹉，澳大利亚威勒比  (© Roger Powell/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.RainbowLorikeets_EN-AU9196763566_1920x1080.jpg) 
 
 2017-07-23 | [洛斯莫内格罗斯附近的洛斯莫内格罗斯沙漠农业区，西班牙 (© Juan Carlos Muñoz/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.LosMonegros_EN-AU13545190344_1920x1080.jpg) 
 
 2017-07-22 | [【今日大暑】Econlockhatchee 河上的吊床露营，美国佛罗里达州 (© Mac Stone/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.Econlockhatchee_EN-AU9702194142_1920x1080.jpg) 
 
-2017-07-21 | [Guy Fawkes River国家公园内的埃博瀑布，澳大利亚 (© Ingo Oeland/Alamy)](https://cn.bing.com/th?id=OHR.EborFallsVideo_EN-AU8428374700_UHD.jpg) 
+2017-07-21 | [Guy Fawkes River国家公园内的埃博瀑布，澳大利亚 (© Ingo Oeland/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.EborFallsVideo_EN-AU8428374700_1920x1080.jpg) 
 
 2017-07-20 | [格拉斯顿伯里高冈上方升起的月亮，英国 (© Matt Cardy/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.GlastonburyMoon_EN-AU10251307154_1920x1080.jpg) 
 
-2017-07-19 | [印度洋上的阿尔达布拉群岛 (© Wil Meinderts/Minden Pictures)](https://cn.bing.com/th?id=OHR.Aldabra_EN-AU10067035056_UHD.jpg) 
+2017-07-19 | [印度洋上的阿尔达布拉群岛 (© Wil Meinderts/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.Aldabra_EN-AU10067035056_1920x1080.jpg) 
 
 2017-07-18 | [塞米恩国家公园内的狮尾狒， 埃塞俄比亚 (© Thomas Marent/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.GeladaSimien_EN-AU7386132793_1920x1080.jpg) 
 
@@ -6821,13 +6821,13 @@
 
 2017-07-13 | [从科尔蒂纳丹佩佐市附近的Lagazuoi山观看佩尔莫山，意大利 (© Olimpio Fantuz/Offset)](https://cdn.bimg.cc/bing/2017/OHR.LagazuoiRefuge_EN-AU12120955316_1920x1080.jpg) 
 
-2017-07-12 | [大西洋鬼蟹 (© Luciano Candisani/Minden Pictures)](https://cn.bing.com/th?id=OHR.GhostCrab_EN-AU12586461381_UHD.jpg) 
+2017-07-12 | [大西洋鬼蟹 (© Luciano Candisani/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.GhostCrab_EN-AU12586461381_1920x1080.jpg) 
 
 2017-07-11 | [印尼马塔普拉河上的Lok Baintan水上市场 (© Fauzan Mauddin/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.MartapuraMarket_EN-AU9502204987_1920x1080.jpg) 
 
 2017-07-10 | [峰区国家公园内的绵羊，英国德比郡 (© James Mills/500px)](https://cdn.bimg.cc/bing/2017/OHR.DerbyshireSheep_EN-AU8298134447_1920x1080.jpg) 
 
-2017-07-09 | [马其顿当代艺术博物馆外乔治·宗古鲁普罗斯设计的“雨伞”雕塑，希腊塞萨洛尼基 (© SIAATH/Shutterstock)](https://cn.bing.com/th?id=OHR.Umbrellas_EN-AU8739718706_UHD.jpg) 
+2017-07-09 | [马其顿当代艺术博物馆外乔治·宗古鲁普罗斯设计的“雨伞”雕塑，希腊塞萨洛尼基 (© SIAATH/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.Umbrellas_EN-AU8739718706_1920x1080.jpg) 
 
 2017-07-08 | [耶罗岛上的洞穴，西班牙加那利群岛 (© Huber/Sime/eStock Photo)](https://cdn.bimg.cc/bing/2017/OHR.CharcoAzul_EN-AU9947089589_1920x1080.jpg) 
 
@@ -6837,7 +6837,7 @@
 
 2017-07-05 | [白沙国家纪念碑，美国新墨西哥州 (© Peter Burgstaller/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.RestArea_EN-AU12659313216_1920x1080.jpg) 
 
-2017-07-04 | [一只大黄蜂在菲希塔市附近的巴伐利亚森林中的向日葵上，德国巴伐利亚 (© Rüdiger Hess/geo-select FotoArt)](https://cn.bing.com/th?id=OHR.SonnenblumeHummel_EN-AU13411467664_UHD.jpg) 
+2017-07-04 | [一只大黄蜂在菲希塔市附近的巴伐利亚森林中的向日葵上，德国巴伐利亚 (© Rüdiger Hess/geo-select FotoArt)](https://cdn.bimg.cc/bing/2017/OHR.SonnenblumeHummel_EN-AU13411467664_1920x1080.jpg) 
 
 2017-07-03 | [银喉长尾山雀，德国埃尔丁 (© H. Schmidbauer/Offset)](https://cdn.bimg.cc/bing/2017/OHR.LongTailedBushtits_EN-AU9123255134_1920x1080.jpg) 
 
@@ -6857,15 +6857,15 @@
 
 2017-06-25 | [圣老楞佐圆形堂，意大利曼托瓦 (© geo-select FotoArt)](https://cdn.bimg.cc/bing/2017/OHR.SanLorenzo_ZH-CN7625061136_1920x1080.jpg) 
 
-2017-06-24 | [2016年铁人三项世界锦标赛中的游泳参赛者们，夏威夷凯卢阿 (© Tom Pennington/Getty Images)](https://cn.bing.com/th?id=OHR.HawaiiSwim_ZH-CN7233619332_UHD.jpg) 
+2017-06-24 | [2016年铁人三项世界锦标赛中的游泳参赛者们，夏威夷凯卢阿 (© Tom Pennington/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.HawaiiSwim_ZH-CN7233619332_1920x1080.jpg) 
 
 2017-06-23 | [哈瓦苏峡谷内的穆尼瀑布，美国亚利桑那州 (© Brendan van Son/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.MooneyFalls_ZH-CN11568488094_1920x1080.jpg) 
 
-2017-06-22 | [德纳利国家公园和自然保护区内的一只赤狐，美国阿拉斯加州 (© Michael DeYoung/Design Pics/Getty Images)](https://cn.bing.com/th?id=OHR.AKFox_ZH-CN8586782340_UHD.jpg) 
+2017-06-22 | [德纳利国家公园和自然保护区内的一只赤狐，美国阿拉斯加州 (© Michael DeYoung/Design Pics/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.AKFox_ZH-CN8586782340_1920x1080.jpg) 
 
-2017-06-21 | [【今日夏至】丘比国家公园内的非洲水雉小鸡，博茨瓦纳 (© Brendon Cremer/Minden Pictures)](https://cn.bing.com/th?id=OHR.ChobeChick_ZH-CN9997116812_UHD.jpg) 
+2017-06-21 | [【今日夏至】丘比国家公园内的非洲水雉小鸡，博茨瓦纳 (© Brendon Cremer/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.ChobeChick_ZH-CN9997116812_1920x1080.jpg) 
 
-2017-06-20 | [帕拉卡斯国家保护区内的红海滩，秘鲁 (© Istvan Kadar Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PlayaRoja_ZH-CN11120265765_UHD.jpg) 
+2017-06-20 | [帕拉卡斯国家保护区内的红海滩，秘鲁 (© Istvan Kadar Photography/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.PlayaRoja_ZH-CN11120265765_1920x1080.jpg) 
 
 2017-06-19 | [莲花掌属叶子的细节 (© Tim Gainey/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.AeoniumLeaf_ZH-CN7490448951_1920x1080.jpg) 
 
@@ -6877,9 +6877,9 @@
 
 2017-06-15 | [美国Dairyland自行车巡回赛的参赛手，威斯康星州丰迪拉克县附近 (© Jeffrey Phelps/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.TOAD_ZH-CN7336795473_1920x1080.jpg) 
 
-2017-06-14 | [西澳大利亚霍尔斯克里克附近的陨石撞击坑 (© Randy Olson/National Geographic Creative/Getty Images)](https://cn.bing.com/th?id=OHR.WolfeCreekCrater_ZH-CN10953577427_UHD.jpg) 
+2017-06-14 | [西澳大利亚霍尔斯克里克附近的陨石撞击坑 (© Randy Olson/National Geographic Creative/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.WolfeCreekCrater_ZH-CN10953577427_1920x1080.jpg) 
 
-2017-06-13 | [奥斯卡·尼迈耶国际文化中心，西班牙阿维莱斯 (© Paula Sierra/Getty Images)](https://cn.bing.com/th?id=OHR.NiemeyerCenter_ZH-CN8964518609_UHD.jpg) 
+2017-06-13 | [奥斯卡·尼迈耶国际文化中心，西班牙阿维莱斯 (© Paula Sierra/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.NiemeyerCenter_ZH-CN8964518609_1920x1080.jpg) 
 
 2017-06-12 | [省立恐龙公园的日落景象，加拿大艾伯塔省 (© Chris Greenwood/500px)](https://cdn.bimg.cc/bing/2017/OHR.DinosaurPP_ZH-CN14544073422_1920x1080.jpg) 
 
@@ -6891,7 +6891,7 @@
 
 2017-06-08 | [卫星图像展现出的美洲海洋流 (© Karsten Schneider/Science Photo Library)](https://cdn.bimg.cc/bing/2017/OHR.OceanCurrents_ZH-CN13704695457_1920x1080.jpg) 
 
-2017-06-07 | [文庙内的祈祷牌，中国云南建水 (© Katie Garrod/Getty Images/AWL Images RM)](https://cn.bing.com/th?id=OHR.Prayercard_ZH-CN13472871640_UHD.jpg) 
+2017-06-07 | [文庙内的祈祷牌，中国云南建水 (© Katie Garrod/Getty Images/AWL Images RM)](https://cdn.bimg.cc/bing/2017/OHR.Prayercard_ZH-CN13472871640_1920x1080.jpg) 
 
 2017-06-06 | [埃特勒塔小镇，法国诺曼底 (© Olha Rohulya/500px)](https://cdn.bimg.cc/bing/2017/OHR.EtretatSunrise_ZH-CN10891175350_1920x1080.jpg) 
 
@@ -6935,43 +6935,43 @@
 
 2017-05-17 | [一群站在Tower Fall露营地上的犹因它地鼠，美国黄石国家公园 (© Shin Yoshino/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.SpermophilusArmatus_ZH-CN11634149121_1920x1080.jpg) 
 
-2017-05-16 | [珀瑟敏斯特沙滩和圣艾夫斯海滨城市，英国康沃尔郡 (© Adam Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.PorthminsterBeach_ZH-CN10275083647_UHD.jpg) 
+2017-05-16 | [珀瑟敏斯特沙滩和圣艾夫斯海滨城市，英国康沃尔郡 (© Adam Burton/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.PorthminsterBeach_ZH-CN10275083647_1920x1080.jpg) 
 
-2017-05-15 | [江门市新会区制香厂，中国广东省 (© Wallace Cheah/500px)](https://cn.bing.com/th?id=OHR.IncenseFactory_ZH-CN12321813125_UHD.jpg) 
+2017-05-15 | [江门市新会区制香厂，中国广东省 (© Wallace Cheah/500px)](https://cdn.bimg.cc/bing/2017/OHR.IncenseFactory_ZH-CN12321813125_1920x1080.jpg) 
 
 2017-05-14 | [马赛马拉国家野生动物保护区内的一只雌性猎豹和她一周大的幼崽，肯尼亚 (© Suzi Eszterhas/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.CheetahMom_ZH-CN9990146737_1920x1080.jpg) 
 
 2017-05-13 | [成千上万只沙丘鹤在阿拉斯加山脉附近的麦田上空翩翩起舞，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.DeltaJunction_ZH-CN9901755694_1920x1080.jpg) 
 
-2017-05-12 | [优胜美地国家公园内的春天瀑布，美国加利福尼亚州 (© Framepool)](https://cn.bing.com/th?id=OHR.VernalFall_ZH-CN10631212377_UHD.jpg) 
+2017-05-12 | [优胜美地国家公园内的春天瀑布，美国加利福尼亚州 (© Framepool)](https://cdn.bimg.cc/bing/2017/OHR.VernalFall_ZH-CN10631212377_1920x1080.jpg) 
 
 2017-05-11 | [冰川国家公园内的一只高山山羊， 美国蒙大拿州 (© Sumio Harada/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.SpringGoat_ZH-CN7669482496_1920x1080.jpg) 
 
 2017-05-10 | [沃德炭窑州立公园，美国内华达州 (© Royce's Nightscapes/500px)](https://cdn.bimg.cc/bing/2017/OHR.WardCharcoalOvens_ZH-CN15946806125_1920x1080.jpg) 
 
-2017-05-09 | [阿拉帕霍县的一只雌性鸭子和一群小鸭子，美国科罗拉多州 (© Robert Harding/Alamy)](https://cn.bing.com/th?id=OHR.WoodDucks_ZH-CN11650397660_UHD.jpg) 
+2017-05-09 | [阿拉帕霍县的一只雌性鸭子和一群小鸭子，美国科罗拉多州 (© Robert Harding/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.WoodDucks_ZH-CN11650397660_1920x1080.jpg) 
 
 2017-05-08 | [太行山郭亮隧道，中国河南 (© View Stock/Offset)](https://cdn.bimg.cc/bing/2017/OHR.TaihangMountains_ZH-CN6309298791_1920x1080.jpg) 
 
 2017-05-07 | [尤卡坦半岛上的龙舌兰，墨西哥 (© Brian Overcast/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.HenequenCactus_ZH-CN11794616839_1920x1080.jpg) 
 
-2017-05-06 | [通往Morskie Oko的林间小路，波兰塔特拉国家公园 (© Blake Parker/Tandem Still + Motion)](https://cn.bing.com/th?id=OHR.MorskieOko_ZH-CN8809175725_UHD.jpg) 
+2017-05-06 | [通往Morskie Oko的林间小路，波兰塔特拉国家公园 (© Blake Parker/Tandem Still + Motion)](https://cdn.bimg.cc/bing/2017/OHR.MorskieOko_ZH-CN8809175725_1920x1080.jpg) 
 
-2017-05-05 | [【今日立夏】武侯祠内的红墙绿竹林，中国成都 (© Eastimages/Getty Images)](https://cn.bing.com/th?id=OHR.Mythicalwildanimal_ZH-CN10176872488_UHD.jpg) 
+2017-05-05 | [【今日立夏】武侯祠内的红墙绿竹林，中国成都 (© Eastimages/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.Mythicalwildanimal_ZH-CN10176872488_1920x1080.jpg) 
 
 2017-05-04 | [肯尼迪航天中心展出的亚特兰蒂斯号航天飞机的特写镜头，美国佛罗里达州 (© Matthew Kuhns/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.SSAtlantis_ZH-CN10429588926_1920x1080.jpg) 
 
-2017-05-03 | [希腊扎金索斯的沉船湾 (© Maciej Tomków/Nimia)](https://cn.bing.com/th?id=OHR.NavagioBeach_ZH-CN8854639142_UHD.jpg) 
+2017-05-03 | [希腊扎金索斯的沉船湾 (© Maciej Tomków/Nimia)](https://cdn.bimg.cc/bing/2017/OHR.NavagioBeach_ZH-CN8854639142_1920x1080.jpg) 
 
 2017-05-02 | [格拉斯哥女王公园玻璃温室内的景象，英国 (© Allan Baxter/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.QueensParkGlasshouse_ZH-CN11893975642_1920x1080.jpg) 
 
 2017-05-01 | [在洛杉矶县自然历史博物馆清洗大象模型，加利福尼亚州 (© Brian Doben/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.NHMElephants_ZH-CN9810396474_1920x1080.jpg) 
 
-2017-04-30 | [基约夫附近的南摩拉维亚风景，捷克共和国  (© Tomas Vocelka/500px)](https://cn.bing.com/th?id=OHR.SouthMoravian_ZH-CN13384331455_UHD.jpg) 
+2017-04-30 | [基约夫附近的南摩拉维亚风景，捷克共和国  (© Tomas Vocelka/500px)](https://cdn.bimg.cc/bing/2017/OHR.SouthMoravian_ZH-CN13384331455_1920x1080.jpg) 
 
 2017-04-29 | [2016年于悉尼火车制造厂展出的艺术家尼克·凯夫的系列作品“Soundsuits”，澳大利亚 (© Don Arnold/WireImage/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.SoundSuits_ZH-CN11561095548_1920x1080.jpg) 
 
-2017-04-28 | [一棵刚萌芽的橡树苗 (© plusphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SproutVideo_ZH-CN11890393462_UHD.jpg) 
+2017-04-28 | [一棵刚萌芽的橡树苗 (© plusphoto/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.SproutVideo_ZH-CN11890393462_1920x1080.jpg) 
 
 2017-04-27 | [萨罗尼克湾上方的云隙光，希腊 (© Stian Rekdal/Nimia)](https://cdn.bimg.cc/bing/2017/OHR.SaronicGulf_ZH-CN8379891695_1920x1080.jpg) 
 
@@ -6985,17 +6985,17 @@
 
 2017-04-22 | [从太空中拍摄到的地球 (© NOAA)](https://cdn.bimg.cc/bing/2017/OHR.ZoomOut_ZH-CN4471982075_1920x1080.jpg) 
 
-2017-04-21 | [托诺帕附近的新月沙丘太阳能项目，美国内华达州 (© Jassen Todorov/Solent News/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.SolarFarm_ZH-CN4853771923_UHD.jpg) 
+2017-04-21 | [托诺帕附近的新月沙丘太阳能项目，美国内华达州 (© Jassen Todorov/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.SolarFarm_ZH-CN4853771923_1920x1080.jpg) 
 
 2017-04-20 | [【今日谷雨】插秧的妇女，中国云南省大理市 (© Ingo Oeland/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.Farmers_ZH-CN10322126112_1920x1080.jpg) 
 
-2017-04-19 | [阿尔卑斯国家公园内的华莱士小屋和雪胶树，澳大利亚维多利亚州 (© Ingo Oeland/Alamy)](https://cn.bing.com/th?id=OHR.WallaceHut_ZH-CN12470084939_UHD.jpg) 
+2017-04-19 | [阿尔卑斯国家公园内的华莱士小屋和雪胶树，澳大利亚维多利亚州 (© Ingo Oeland/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.WallaceHut_ZH-CN12470084939_1920x1080.jpg) 
 
 2017-04-18 | [美国冰川湾国家公园内的兰普卢冰川 (© Michael Melford/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.GlacierBay_ZH-CN14440689690_1920x1080.jpg) 
 
 2017-04-17 | [一对寒暄中的欧洲灰兔，法国 (© Remy Courseaux/Biosphoto/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.EuropeanRabbitGreeting_ZH-CN10625718769_1920x1080.jpg) 
 
-2017-04-16 | [北极国家野生动物保护区内地面上的巢穴，美国阿拉斯加州 (© Mint Images/Offset)](https://cn.bing.com/th?id=OHR.GroundNest_ZH-CN8953105132_UHD.jpg) 
+2017-04-16 | [北极国家野生动物保护区内地面上的巢穴，美国阿拉斯加州 (© Mint Images/Offset)](https://cdn.bimg.cc/bing/2017/OHR.GroundNest_ZH-CN8953105132_1920x1080.jpg) 
 
 2017-04-15 | [黄石国家公园内的一只灰狼，美国怀俄明州 (© Meril Darees & Manon Moulis/Biosphoto/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.GrayWolf_ZH-CN9733727662_1920x1080.jpg) 
 
@@ -7021,7 +7021,7 @@
 
 2017-04-04 | [黄山，中国安徽省 (© BJI/Blue Jean Images/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.QingMingHuangShan_ZH-CN12993895964_1920x1080.jpg) 
 
-2017-04-03 | [德国塞林码头的潜水吊船 (© Huber/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.DivingGondola_ZH-CN12331702472_UHD.jpg) 
+2017-04-03 | [德国塞林码头的潜水吊船 (© Huber/Sime/eStock Photo)](https://cdn.bimg.cc/bing/2017/OHR.DivingGondola_ZH-CN12331702472_1920x1080.jpg) 
 
 2017-04-02 | [熔岩床国家纪念碑中熔岩管里的冰，加利福尼亚州 (© Floris van Breugel/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.LavaTubeIce_ZH-CN12266785340_1920x1080.jpg) 
 
@@ -7031,15 +7031,15 @@
 
 2017-03-30 | [摇篮山-圣克莱尔湖国家公园中的林间步道，澳大利亚塔斯马尼亚州 (© Sean Crane/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.CMLSCNP_ZH-CN12089840072_1920x1080.jpg) 
 
-2017-03-29 | [墨西哥城国家美术馆，墨西哥 (© Torresigner/Getty Images)](https://cn.bing.com/th?id=OHR.BellasArtes_ZH-CN9573521567_UHD.jpg) 
+2017-03-29 | [墨西哥城国家美术馆，墨西哥 (© Torresigner/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.BellasArtes_ZH-CN9573521567_1920x1080.jpg) 
 
 2017-03-28 | [一只常见的雄性朱雀 (© Arterra Picture Library/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.CommonRosefinch_ZH-CN10986839201_1920x1080.jpg) 
 
-2017-03-27 | [惠拉维德利温泉，Kjölur 高原，冰岛 (© Mliberra/Getty Images)](https://cn.bing.com/th?id=OHR.Hveravellir_ZH-CN12673758963_UHD.jpg) 
+2017-03-27 | [惠拉维德利温泉，Kjölur 高原，冰岛 (© Mliberra/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.Hveravellir_ZH-CN12673758963_1920x1080.jpg) 
 
-2017-03-26 | [被烧焦的石南花中一颗刚萌芽的松树苗，Strabrechtse Heide，荷兰 (© Heike Odermatt/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildfireSapling_ZH-CN10766255059_UHD.jpg) 
+2017-03-26 | [被烧焦的石南花中一颗刚萌芽的松树苗，Strabrechtse Heide，荷兰 (© Heike Odermatt/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.WildfireSapling_ZH-CN10766255059_1920x1080.jpg) 
 
-2017-03-25 | [沐浴在春光中的AÃnsa-Sobrarbe村庄，西班牙 (© Hans Kruse/500px)](https://cn.bing.com/th?id=OHR.SpainSpring_ZH-CN9613370360_UHD.jpg) 
+2017-03-25 | [沐浴在春光中的AÃnsa-Sobrarbe村庄，西班牙 (© Hans Kruse/500px)](https://cdn.bimg.cc/bing/2017/OHR.SpainSpring_ZH-CN9613370360_1920x1080.jpg) 
 
 2017-03-24 | [猪湾海滩和两兄弟岩层，费尔南多-迪诺罗尼亚，巴西 (© Alex Saberi/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.NoronhaTwoBrothers_ZH-CN10642407566_1920x1080.jpg) 
 
@@ -7049,21 +7049,21 @@
 
 2017-03-21 | [一只在Tongass国家森林公园的成年黑熊，阿拉斯加州 (© Mark Kelley/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.DrizzlyBear_ZH-CN8074606058_1920x1080.jpg) 
 
-2017-03-20 | [一只在樱花树上嬉戏的绿绣眼（© Reece Cheng/500px）](https://cn.bing.com/th?id=OHR.TingSakura_ZH-CN14945610051_UHD.jpg) 
+2017-03-20 | [一只在樱花树上嬉戏的绿绣眼（© Reece Cheng/500px）](https://cdn.bimg.cc/bing/2017/OHR.TingSakura_ZH-CN14945610051_1920x1080.jpg) 
 
 2017-03-19 | [马他奴思卡冰川里的冰隧道，阿拉斯加州 (© Lynn Wegener/Offset)](https://cdn.bimg.cc/bing/2017/OHR.MatunuskaGlacier_ZH-CN11670641539_1920x1080.jpg) 
 
-2017-03-18 | [沐浴在春光中的索尔克生物研究所，圣地亚哥，美国加利福尼亚州 (© Sameer Mundkur/500px)](https://cn.bing.com/th?id=OHR.RiverofLife_ZH-CN8454523790_UHD.jpg) 
+2017-03-18 | [沐浴在春光中的索尔克生物研究所，圣地亚哥，美国加利福尼亚州 (© Sameer Mundkur/500px)](https://cdn.bimg.cc/bing/2017/OHR.RiverofLife_ZH-CN8454523790_1920x1080.jpg) 
 
 2017-03-17 | [马林角附近的五指绞线，爱尔兰 (© Cahir Davitt/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.FiveFingersStrand_ZH-CN9284198785_1920x1080.jpg) 
 
-2017-03-16 | [穆萨岛Mousa Broch的内部，苏格兰  (© National Geographic Creative/Alamy)](https://cn.bing.com/th?id=OHR.MousaBroch_ZH-CN11732543982_UHD.jpg) 
+2017-03-16 | [穆萨岛Mousa Broch的内部，苏格兰  (© National Geographic Creative/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.MousaBroch_ZH-CN11732543982_1920x1080.jpg) 
 
 2017-03-15 | [旧金山的兰兹角，加利福尼亚州 (© Toby Harriman/Nimia)](https://cdn.bimg.cc/bing/2017/OHR.SutroBaths_ZH-CN10530101768_1920x1080.jpg) 
 
 2017-03-14 | [松树杆的截面增强图像 (© Garry DeLong/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.EnhancedPinus_ZH-CN11908142325_1920x1080.jpg) 
 
-2017-03-13 | [慕尼黑色彩节庆祝活动期间抛洒的彩色粉末，德国 (© Geo Messmer/500px)](https://cn.bing.com/th?id=OHR.HoliMunich_ZH-CN12353152381_UHD.jpg) 
+2017-03-13 | [慕尼黑色彩节庆祝活动期间抛洒的彩色粉末，德国 (© Geo Messmer/500px)](https://cdn.bimg.cc/bing/2017/OHR.HoliMunich_ZH-CN12353152381_1920x1080.jpg) 
 
 2017-03-12 | [一只在圣克里斯托巴尔岛潜水的蓝脚鲣鸟，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.PlungeDiving_ZH-CN11143756334_1920x1080.jpg) 
 
@@ -7077,11 +7077,11 @@
 
 2017-03-07 | [沙漠观景塔，亚利桑那州大峡谷国家公园 (© Babak Tafreshi/National Geographic/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.WatchtowerSky_ZH-CN8532519791_1920x1080.jpg) 
 
-2017-03-06 | [瓦莱黑鼻羊，瑞士瓦莱州 (© Alessandra Meniconzi/Solent News/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.SteepSheep_ZH-CN8716398488_UHD.jpg) 
+2017-03-06 | [瓦莱黑鼻羊，瑞士瓦莱州 (© Alessandra Meniconzi/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.SteepSheep_ZH-CN8716398488_1920x1080.jpg) 
 
 2017-03-05 | [【今日惊蛰】一只栖息在叶子上的透翅蝶 (© Corianna Heise/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.ButterflyWorld_ZH-CN11273971874_1920x1080.jpg) 
 
-2017-03-04 | [新西兰南岛的塔斯曼湖 (© UpdogDesigns/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.Aoraki_ZH-CN7776353328_UHD.jpg) 
+2017-03-04 | [新西兰南岛的塔斯曼湖 (© UpdogDesigns/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2017/OHR.Aoraki_ZH-CN7776353328_1920x1080.jpg) 
 
 2017-03-03 | [在南非卡拉哈里沙漠地区的一群雄性跳羚(© Minden Pictures/Masterfile)](https://cdn.bimg.cc/bing/2017/OHR.SpringbokHerd_ZH-CN11603112082_1920x1080.jpg) 
 
@@ -7089,11 +7089,11 @@
 
 2017-03-01 | [索姆河河口，法国 (© Philippe Frutier/plainpicture)](https://cdn.bimg.cc/bing/2017/OHR.SommeBay_ZH-CN11043403486_1920x1080.jpg) 
 
-2017-02-28 | [一位铜管乐队成员正在为国王嘉年华活动吹奏小号，新奥尔良 (© Gerald Herbert/AP Photo)](https://cn.bing.com/th?id=OHR.BrassBandTrumpet_ZH-CN8703910231_UHD.jpg) 
+2017-02-28 | [一位铜管乐队成员正在为国王嘉年华活动吹奏小号，新奥尔良 (© Gerald Herbert/AP Photo)](https://cdn.bimg.cc/bing/2017/OHR.BrassBandTrumpet_ZH-CN8703910231_1920x1080.jpg) 
 
 2017-02-27 | [黄石国家公园内的北美水獭，美国怀俄明州 (© mlharing/istock/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.RiverOtters_ZH-CN9287285757_1920x1080.jpg) 
 
-2017-02-26 | [加利福尼亚州洛杉矶格里菲斯天文台，美国 (© Walter Bibikow/Getty Images)](https://cn.bing.com/th?id=OHR.GriffithPark_ZH-CN9871772537_UHD.jpg) 
+2017-02-26 | [加利福尼亚州洛杉矶格里菲斯天文台，美国 (© Walter Bibikow/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.GriffithPark_ZH-CN9871772537_1920x1080.jpg) 
 
 2017-02-25 | [两只麝雉栖息枝头，巴西 (© Morten Ross/500px)](https://cdn.bimg.cc/bing/2017/OHR.Hoatzin_ZH-CN6642664963_1920x1080.jpg) 
 
@@ -7101,9 +7101,9 @@
 
 2017-02-23 | [维也纳国家歌剧院内的舞会，奥地利 (© APA-PictureDesk GmbH/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.ViennaOperaBall_ZH-CN10790748867_1920x1080.jpg) 
 
-2017-02-22 | [科托尔的防御工事，黑山 (© Slavica Stajić/500px)](https://cn.bing.com/th?id=OHR.VenetianFortifications_ZH-CN11140565989_UHD.jpg) 
+2017-02-22 | [科托尔的防御工事，黑山 (© Slavica Stajić/500px)](https://cdn.bimg.cc/bing/2017/OHR.VenetianFortifications_ZH-CN11140565989_1920x1080.jpg) 
 
-2017-02-21 | [北方大平原的火星陨石坑内结的冰 (© VUZE/NASA/Alamy)](https://cn.bing.com/th?id=OHR.MartianCrater_ZH-CN9867068013_UHD.jpg) 
+2017-02-21 | [北方大平原的火星陨石坑内结的冰 (© VUZE/NASA/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.MartianCrater_ZH-CN9867068013_1920x1080.jpg) 
 
 2017-02-20 | [冬日约克郡溪谷的阳光和晨霜，英国 (© Andrew Bret Wallis/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.YorkshireWinter_ZH-CN9258658675_1920x1080.jpg) 
 
@@ -7113,15 +7113,15 @@
 
 2017-02-17 | [普托拉纳高原大峡谷里的瀑布，俄罗斯 (© Sergey Gorshkov/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.PutoranaPlateau_ZH-CN11394761356_1920x1080.jpg) 
 
-2017-02-16 | [艺术家詹姆斯 · 特瑞尔的“Twilight Epiphany”雕塑装置在莱斯大学展出，休斯顿，德克萨斯州 (© Alex Fradkin/Gallery Stock)](https://cn.bing.com/th?id=OHR.TwilightEpiphany_ZH-CN11612238738_UHD.jpg) 
+2017-02-16 | [艺术家詹姆斯 · 特瑞尔的“Twilight Epiphany”雕塑装置在莱斯大学展出，休斯顿，德克萨斯州 (© Alex Fradkin/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.TwilightEpiphany_ZH-CN11612238738_1920x1080.jpg) 
 
-2017-02-15 | [穿越卢安瓜河的象群，赞比亚 (© Frans Lanting/Gallery Stock)](https://cn.bing.com/th?id=OHR.ElephantsWalking_ZH-CN8959341729_UHD.jpg) 
+2017-02-15 | [穿越卢安瓜河的象群，赞比亚 (© Frans Lanting/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.ElephantsWalking_ZH-CN8959341729_1920x1080.jpg) 
 
-2017-02-14 | [一片叶子上的热带爪哇麻雀 (© CREATISTA/Getty Images)](https://cn.bing.com/th?id=OHR.JavaSparrow_ZH-CN10576911084_UHD.jpg) 
+2017-02-14 | [一片叶子上的热带爪哇麻雀 (© CREATISTA/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.JavaSparrow_ZH-CN10576911084_1920x1080.jpg) 
 
 2017-02-13 | [阿德温山谷的Hallwylfjellet山峰，挪威 (© Ethan Welty/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.HallwylfjelletSunset_ZH-CN9300910376_1920x1080.jpg) 
 
-2017-02-12 | [加泰罗尼亚音乐厅，西班牙巴塞罗那 (© Luis Davilla/age fotostock)](https://cn.bing.com/th?id=OHR.PalaudelaMusica_ZH-CN12110358984_UHD.jpg) 
+2017-02-12 | [加泰罗尼亚音乐厅，西班牙巴塞罗那 (© Luis Davilla/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.PalaudelaMusica_ZH-CN12110358984_1920x1080.jpg) 
 
 2017-02-11 | [北京潘家园集市上琳琅满目的花灯 (© Adrienne Bresnahan/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.LanternSale_ZH-CN13256517653_1920x1080.jpg) 
 
@@ -7129,15 +7129,15 @@
 
 2017-02-09 | [萨加玛塔国家公园里的一只雄性棕尾虹雉，尼泊尔 (© Patricio Robles Gil/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.LophophorusImpejanus_ZH-CN10675050048_1920x1080.jpg) 
 
-2017-02-08 | [萨尔瓦多的Itapuã 灯塔，巴西巴伊亚州 (© Uiler Costa/Offset)](https://cn.bing.com/th?id=OHR.ItapuaLighthouse_ZH-CN10867280946_UHD.jpg) 
+2017-02-08 | [萨尔瓦多的Itapuã 灯塔，巴西巴伊亚州 (© Uiler Costa/Offset)](https://cdn.bimg.cc/bing/2017/OHR.ItapuaLighthouse_ZH-CN10867280946_1920x1080.jpg) 
 
-2017-02-07 | [普罗沃附近的犹他湖的日出，美国犹他州 (© Nimia)](https://cn.bing.com/th?id=OHR.UtahLakeSunrise_ZH-CN7904195051_UHD.jpg) 
+2017-02-07 | [普罗沃附近的犹他湖的日出，美国犹他州 (© Nimia)](https://cdn.bimg.cc/bing/2017/OHR.UtahLakeSunrise_ZH-CN7904195051_1920x1080.jpg) 
 
 2017-02-06 | [纽约大学哲学系大楼的楼梯，美国纽约 (© Alex Fradkin/Gallery Stock)](https://cdn.bimg.cc/bing/2017/OHR.TowerofLight_ZH-CN11745498179_1920x1080.jpg) 
 
 2017-02-05 | [福克兰群岛的王企鹅 (© Luciano Candisani/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.VolunteerPoint_ZH-CN7941283677_1920x1080.jpg) 
 
-2017-02-04 | [德比郡帕德利峡谷的林间小径 ，英国 (© James Mills/500px)](https://cn.bing.com/th?id=OHR.PadleyGorge_ZH-CN7693050245_UHD.jpg) 
+2017-02-04 | [德比郡帕德利峡谷的林间小径 ，英国 (© James Mills/500px)](https://cdn.bimg.cc/bing/2017/OHR.PadleyGorge_ZH-CN7693050245_1920x1080.jpg) 
 
 2017-02-03 | [【今日立春】长尾山雀，日本 (© Gouichi Wada/Nature Production/MINDEN PICTURES INC)](https://cdn.bimg.cc/bing/2017/OHR.Shimaenaga_ZH-CN14747993510_1920x1080.jpg) 
 
@@ -7145,7 +7145,7 @@
 
 2017-02-01 | [从国际空间站拍摄的大堡礁 (© NASA)](https://cdn.bimg.cc/bing/2017/OHR.GBRISS_ZH-CN10195808313_1920x1080.jpg) 
 
-2017-01-31 | [火焰大厦和它的轮廓线，阿塞拜疆巴库 (© railelectropower/Getty Images)](https://cn.bing.com/th?id=OHR.FlameTowers_ZH-CN10904980589_UHD.jpg) 
+2017-01-31 | [火焰大厦和它的轮廓线，阿塞拜疆巴库 (© railelectropower/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.FlameTowers_ZH-CN10904980589_1920x1080.jpg) 
 
 2017-01-30 | [中国传统木门上的对联 (© Keren Su/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.SpringCouplet_ZH-CN16366435588_1920x1080.jpg) 
 
@@ -7157,15 +7157,15 @@
 
 2017-01-26 | [麝香牛和她的宝宝，多弗勒山-松达尔国家公园，挪威 (© Christina Krutz/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.DovrefjellMuskox_ZH-CN14069563613_1920x1080.jpg) 
 
-2017-01-25 | [维莱修道院，比利时 (© Patty Piturlea/500px)](https://cn.bing.com/th?id=OHR.VillersAbbey_ZH-CN10373383330_UHD.jpg) 
+2017-01-25 | [维莱修道院，比利时 (© Patty Piturlea/500px)](https://cdn.bimg.cc/bing/2017/OHR.VillersAbbey_ZH-CN10373383330_1920x1080.jpg) 
 
-2017-01-24 | [被萤火虫照亮的小树林，日本四国岛 (© Hiroya Minakuchi/Minden Pictures)](https://cn.bing.com/th?id=OHR.LuciolaCruciata_ZH-CN9063767400_UHD.jpg) 
+2017-01-24 | [被萤火虫照亮的小树林，日本四国岛 (© Hiroya Minakuchi/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.LuciolaCruciata_ZH-CN9063767400_1920x1080.jpg) 
 
-2017-01-23 | [从萨雷布山视角眺望勃朗峰，法国 (© Niggli/Nimia)](https://cn.bing.com/th?id=OHR.MontBlancVideo_ZH-CN9230432404_UHD.jpg) 
+2017-01-23 | [从萨雷布山视角眺望勃朗峰，法国 (© Niggli/Nimia)](https://cdn.bimg.cc/bing/2017/OHR.MontBlancVideo_ZH-CN9230432404_1920x1080.jpg) 
 
 2017-01-22 | [菲佛大苏尔州立公园里的菲佛海滩，加利福尼亚 (© Jingyu Wu/500px)](https://cdn.bimg.cc/bing/2017/OHR.PfeifferBeach_ZH-CN13868196659_1920x1080.jpg) 
 
-2017-01-21 | [库佛维尔岛的巴布亚企鹅，南极洲 (© Ben Cranke/Minden Pictures)](https://cn.bing.com/th?id=OHR.GentooPenguinVideo_ZH-CN9979103072_UHD.jpg) 
+2017-01-21 | [库佛维尔岛的巴布亚企鹅，南极洲 (© Ben Cranke/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.GentooPenguinVideo_ZH-CN9979103072_1920x1080.jpg) 
 
 2017-01-20 | [【今日大寒】哈尔滨国际冰雪节盛开的烟花，黑龙江哈尔滨 (© Aly Song/REUTERS)](https://cdn.bimg.cc/bing/2017/OHR.IceSculptures_ZH-CN12032666081_1920x1080.jpg) 
 
@@ -7173,35 +7173,35 @@
 
 2017-01-18 | [波拉波拉岛，背风群岛，法属波利尼西亚 (© Frans Lanting/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.MountOTemanu_ZH-CN10516512008_1920x1080.jpg) 
 
-2017-01-17 | [Las Médulas的浓霜，西班牙  (© Juan Carlos Muñoz/age fotostock)](https://cn.bing.com/th?id=OHR.LasMedulasFrost_ZH-CN10300016604_UHD.jpg) 
+2017-01-17 | [Las Médulas的浓霜，西班牙  (© Juan Carlos Muñoz/age fotostock)](https://cdn.bimg.cc/bing/2017/OHR.LasMedulasFrost_ZH-CN10300016604_1920x1080.jpg) 
 
 2017-01-16 | [在冰冻后的瀑布平台上的居住体验，尼亚加拉大瀑布，加拿大安大略省 (© Larissa Sakhnenko/500px)](https://cdn.bimg.cc/bing/2017/OHR.BehindTheFalls_ZH-CN6370841810_1920x1080.jpg) 
 
-2017-01-15 | [大英博物馆大中庭，英国伦敦 (© Aardvark/Alamy)](https://cn.bing.com/th?id=OHR.GreatCourt_ZH-CN11131065922_UHD.jpg) 
+2017-01-15 | [大英博物馆大中庭，英国伦敦 (© Aardvark/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.GreatCourt_ZH-CN11131065922_1920x1080.jpg) 
 
-2017-01-14 | [在南崎巴札小镇上方矗立的Kongde Ri山峰，萨加玛塔国家公园，尼泊尔 (© Andrew Peacock/Aurora Photos)](https://cn.bing.com/th?id=OHR.KongdeRi_ZH-CN11743396085_UHD.jpg) 
+2017-01-14 | [在南崎巴札小镇上方矗立的Kongde Ri山峰，萨加玛塔国家公园，尼泊尔 (© Andrew Peacock/Aurora Photos)](https://cdn.bimg.cc/bing/2017/OHR.KongdeRi_ZH-CN11743396085_1920x1080.jpg) 
 
 2017-01-13 | [张家界附近武陵源旷野里的几只恒河猴，中国 (© Xinhua News Agency/REX/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.MacaquesWulingyuan_ZH-CN8705472129_1920x1080.jpg) 
 
-2017-01-12 | [Valadier寺庙，真加市，意大利 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.TempleOfValadier_ZH-CN13184904528_UHD.jpg) 
+2017-01-12 | [Valadier寺庙，真加市，意大利 (© Westend61/Getty Images)](https://cdn.bimg.cc/bing/2017/OHR.TempleOfValadier_ZH-CN13184904528_1920x1080.jpg) 
 
-2017-01-11 | [埃及南部的灌溉系统 (© NASA Images)](https://cn.bing.com/th?id=OHR.NASAEgypt_ZH-CN10985844646_UHD.jpg) 
+2017-01-11 | [埃及南部的灌溉系统 (© NASA Images)](https://cdn.bimg.cc/bing/2017/OHR.NASAEgypt_ZH-CN10985844646_1920x1080.jpg) 
 
-2017-01-10 | [艾弗尔国家公园，北莱茵-威斯特法伦州，德国 (© Danny Laps/Minden Pictures)](https://cn.bing.com/th?id=OHR.EifelNPBelgium_ZH-CN12131884508_UHD.jpg) 
+2017-01-10 | [艾弗尔国家公园，北莱茵-威斯特法伦州，德国 (© Danny Laps/Minden Pictures)](https://cdn.bimg.cc/bing/2017/OHR.EifelNPBelgium_ZH-CN12131884508_1920x1080.jpg) 
 
-2017-01-09 | [维多利亚宝翠花园的罗斯喷泉，不列颠哥伦比亚省，加拿大 (© Reimar 8/Alamy)](https://cn.bing.com/th?id=OHR.RossFountain_ZH-CN11490955168_UHD.jpg) 
+2017-01-09 | [维多利亚宝翠花园的罗斯喷泉，不列颠哥伦比亚省，加拿大 (© Reimar 8/Alamy)](https://cdn.bimg.cc/bing/2017/OHR.RossFountain_ZH-CN11490955168_1920x1080.jpg) 
 
-2017-01-08 | [特拉凯的特拉凯城堡，立陶宛 (© Conor MacNeill/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TrakaiIslandCastle_ZH-CN14067567252_UHD.jpg) 
+2017-01-08 | [特拉凯的特拉凯城堡，立陶宛 (© Conor MacNeill/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.TrakaiIslandCastle_ZH-CN14067567252_1920x1080.jpg) 
 
-2017-01-07 | [Marymoor国家公园的一匹土狼，雷德蒙德，华盛顿州 (© Joseph Calev)](https://cn.bing.com/th?id=OHR.CalevCoyote_ZH-CN8657167059_UHD.jpg) 
+2017-01-07 | [Marymoor国家公园的一匹土狼，雷德蒙德，华盛顿州 (© Joseph Calev)](https://cdn.bimg.cc/bing/2017/OHR.CalevCoyote_ZH-CN8657167059_1920x1080.jpg) 
 
 2017-01-06 | [大湖上的卡拉威宫驳船，仰光，缅甸 (© Etakundoy/Shutterstock)](https://cdn.bimg.cc/bing/2017/OHR.RoyalBarge_ZH-CN8556739705_1920x1080.jpg) 
 
-2017-01-05 | [蓝黄相间的金刚鹦鹉在亚马逊雨林上空飞行， 巴西 (© Nicky van Veenendaal/500px)](https://cn.bing.com/th?id=OHR.MacawFlight_ZH-CN10427294606_UHD.jpg) 
+2017-01-05 | [蓝黄相间的金刚鹦鹉在亚马逊雨林上空飞行， 巴西 (© Nicky van Veenendaal/500px)](https://cdn.bimg.cc/bing/2017/OHR.MacawFlight_ZH-CN10427294606_1920x1080.jpg) 
 
 2017-01-04 | [皇后镇附近的瓦卡蒂普湖，新西兰 (© Raimondo Restelli/500px)](https://cdn.bimg.cc/bing/2017/OHR.LakeWakapitu_ZH-CN11335950566_1920x1080.jpg) 
 
-2017-01-03 | [图卢姆附近的Aktun Ha 水井的水底视角，金塔纳罗奥，墨西哥 (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CarWash_ZH-CN12705750866_UHD.jpg) 
+2017-01-03 | [图卢姆附近的Aktun Ha 水井的水底视角，金塔纳罗奥，墨西哥 (© Christian Vizl/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.CarWash_ZH-CN12705750866_1920x1080.jpg) 
 
 2017-01-02 | [一位登山爱好者正在征服Cabinet山峰，蒙大拿州 (© Steven Gnam/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2017/OHR.CabinetClimber_ZH-CN8091149480_1920x1080.jpg) 
 
@@ -7215,15 +7215,15 @@
 
 2016-12-28 | [阿寒国立公园的丹顶鹤，日本北海道 (© Vincent Munier/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.GrusJaponensis_ZH-CN8553179454_1920x1080.jpg) 
 
-2016-12-27 | [特罗姆瑟的色彩缤纷的房子，挪威 (© Tomasz Misiukiewicz/500px)](https://cn.bing.com/th?id=OHR.ColorfulTromso_ZH-CN9894938772_UHD.jpg) 
+2016-12-27 | [特罗姆瑟的色彩缤纷的房子，挪威 (© Tomasz Misiukiewicz/500px)](https://cdn.bimg.cc/bing/2016/OHR.ColorfulTromso_ZH-CN9894938772_1920x1080.jpg) 
 
 2016-12-26 | [南安普敦公园，南安普敦，英格兰 (© David Baker/Gallery Stock)](https://cdn.bimg.cc/bing/2016/OHR.SouthamptonCommon_ZH-CN8102690225_1920x1080.jpg) 
 
-2016-12-25 | [特伦蒂诺-上阿迪杰的一个圣诞市集，南蒂罗尔，意大利 (© Carlo Trolese/500px)](https://cn.bing.com/th?id=OHR.SnowGlobeVideo_ZH-CN8461656803_UHD.jpg) 
+2016-12-25 | [特伦蒂诺-上阿迪杰的一个圣诞市集，南蒂罗尔，意大利 (© Carlo Trolese/500px)](https://cdn.bimg.cc/bing/2016/OHR.SnowGlobeVideo_ZH-CN8461656803_1920x1080.jpg) 
 
-2016-12-24 | [雪地里的红鹿 (© Getty Images)](https://cn.bing.com/th?id=OHR.BelarusDeer_ZH-CN10349578779_UHD.jpg) 
+2016-12-24 | [雪地里的红鹿 (© Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.BelarusDeer_ZH-CN10349578779_1920x1080.jpg) 
 
-2016-12-23 | [爱丁堡一家叫做The Dome的夜店，苏格兰 (© Marty McKillop/500px)](https://cn.bing.com/th?id=OHR.TheDomeEdinburgh_ZH-CN11993142817_UHD.jpg) 
+2016-12-23 | [爱丁堡一家叫做The Dome的夜店，苏格兰 (© Marty McKillop/500px)](https://cdn.bimg.cc/bing/2016/OHR.TheDomeEdinburgh_ZH-CN11993142817_1920x1080.jpg) 
 
 2016-12-22 | [曼哈顿海滩码头，加利福尼亚州，美国 (© Mat Rick Photography/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.ManhattanBeach_ZH-CN10916747728_1920x1080.jpg) 
 
@@ -7245,9 +7245,9 @@
 
 2016-12-13 | [马林维尔的Fromme-Birney Round Barn博物馆的内顶，堪萨斯州，美国 (© Garret Suhrie/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2016/OHR.CircularBarn_ZH-CN10350401093_1920x1080.jpg) 
 
-2016-12-12 | [陆地卫星8号的红外照片， 摄于哈萨克斯坦的油田 (© NASA)](https://cn.bing.com/th?id=OHR.KazakhstanNasa_ZH-CN9791985430_UHD.jpg) 
+2016-12-12 | [陆地卫星8号的红外照片， 摄于哈萨克斯坦的油田 (© NASA)](https://cdn.bimg.cc/bing/2016/OHR.KazakhstanNasa_ZH-CN9791985430_1920x1080.jpg) 
 
-2016-12-11 | [巴尔切沃村庄的近郊，奥尔什丁市，波兰 (© jesiotr9/Getty Images)](https://cn.bing.com/th?id=OHR.WarmiaPoland_ZH-CN13324541925_UHD.jpg) 
+2016-12-11 | [巴尔切沃村庄的近郊，奥尔什丁市，波兰 (© jesiotr9/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.WarmiaPoland_ZH-CN13324541925_1920x1080.jpg) 
 
 2016-12-10 | [梅萨维德国家公园的悬崖宫正在进行的圣诞灯节，科罗拉多州，美国 (© Richard Ellis/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.CliffPalaceLuminara_ZH-CN10279459718_1920x1080.jpg) 
 
@@ -7257,7 +7257,7 @@
 
 2016-12-07 | [艾德林根高地上的晨雾，普法芬温克尔，巴伐利亚，德国 (© WestEnd61/REX/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.AidlingerHoehe_ZH-CN11764360351_1920x1080.jpg) 
 
-2016-12-06 | [【今日大雪】黄山风景区，安徽省 (© Adam Wong/Prime/500px)](https://cn.bing.com/th?id=OHR.HuangShanS_ZH-CN13503227356_UHD.jpg) 
+2016-12-06 | [【今日大雪】黄山风景区，安徽省 (© Adam Wong/Prime/500px)](https://cdn.bimg.cc/bing/2016/OHR.HuangShanS_ZH-CN13503227356_1920x1080.jpg) 
 
 2016-12-05 | [用英飞凌技术批量生产的半导体，菲拉赫，奥地利 (© Krisztian Bocsi/Bloomberg/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Semiconductor_ZH-CN9271532081_1920x1080.jpg) 
 
@@ -7265,7 +7265,7 @@
 
 2016-12-03 | [苏格兰高地的红松鸡 (© Mark Sisson/REX/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.RedGrouseScotland_ZH-CN11977270993_1920x1080.jpg) 
 
-2016-12-02 | [在基奈峡湾国家公园的复活湾，阿拉斯加州，美国 (© Ron Niebrugge/Alamy)](https://cn.bing.com/th?id=OHR.ResurrectionBay_ZH-CN10718475653_UHD.jpg) 
+2016-12-02 | [在基奈峡湾国家公园的复活湾，阿拉斯加州，美国 (© Ron Niebrugge/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.ResurrectionBay_ZH-CN10718475653_1920x1080.jpg) 
 
 2016-12-01 | [南极半岛的西尔瓦湾 (© Aurora Photos/Offset)](https://cdn.bimg.cc/bing/2016/OHR.CiervaCove_ZH-CN10404920946_1920x1080.jpg) 
 
@@ -7273,7 +7273,7 @@
 
 2016-11-29 | [旧金山-奥克兰海湾大桥和其背后的旧金山，加利福尼亚州 (© Engel Ching/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.GrizzlyPeakSFVideo_ZH-CN11282703590_1920x1080.jpg) 
 
-2016-11-28 | [英国皇家学会总部展示的古董放射计，伦敦，英国 (© Peter Macdiarmid/Staff/Getty Images)](https://cn.bing.com/th?id=OHR.LondonRadiometers_ZH-CN12114654989_UHD.jpg) 
+2016-11-28 | [英国皇家学会总部展示的古董放射计，伦敦，英国 (© Peter Macdiarmid/Staff/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.LondonRadiometers_ZH-CN12114654989_1920x1080.jpg) 
 
 2016-11-27 | [维多利亚海滩边的灯塔，拉古纳海滩，加利福尼亚州 (© Jon Bilous/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.VictoriaTower_ZH-CN13097406171_1920x1080.jpg) 
 
@@ -7289,17 +7289,17 @@
 
 2016-11-21 | [萨利纳图尔达盐矿，图尔达，罗马尼亚 (© Biris Paul Silviu/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.TurdaSalt_ZH-CN8549125738_1920x1080.jpg) 
 
-2016-11-20 | [乔治城的壁画，槟城，马来西亚 (© JTB Photo/UIG/Getty Images)](https://cn.bing.com/th?id=OHR.WallPaintingChildren_ZH-CN7327764062_UHD.jpg) 
+2016-11-20 | [乔治城的壁画，槟城，马来西亚 (© JTB Photo/UIG/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.WallPaintingChildren_ZH-CN7327764062_1920x1080.jpg) 
 
 2016-11-19 | [锡安国家公园的处女河，犹他州，美国 (© Marc Adamus/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.VirginRiver_ZH-CN13069045342_1920x1080.jpg) 
 
-2016-11-18 | [黑暗沙丘中的蘑菇，登海尔德近郊，荷兰 (© Daniel Laan/500px)](https://cn.bing.com/th?id=OHR.IlluminatedMushrooms_ZH-CN10061659106_UHD.jpg) 
+2016-11-18 | [黑暗沙丘中的蘑菇，登海尔德近郊，荷兰 (© Daniel Laan/500px)](https://cdn.bimg.cc/bing/2016/OHR.IlluminatedMushrooms_ZH-CN10061659106_1920x1080.jpg) 
 
 2016-11-17 | [博热附近的葡萄园，罗讷河谷，法国 (© Richard Semik/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.BeaujolaisNouveau_ZH-CN8322497216_1920x1080.jpg) 
 
 2016-11-16 | [威奇托山野生动物保护区内的斯科特山，俄克拉荷马州，美国 (© Tim Fitzharris/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.MountScott_ZH-CN8412403132_1920x1080.jpg) 
 
-2016-11-15 | [一只苍鹭的剪影 (© Don Mammoser/Shutterstock)](https://cn.bing.com/th?id=OHR.HeronSilhouette_ZH-CN7435340158_UHD.jpg) 
+2016-11-15 | [一只苍鹭的剪影 (© Don Mammoser/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.HeronSilhouette_ZH-CN7435340158_1920x1080.jpg) 
 
 2016-11-14 | [罗德帕克缆车站，因斯布鲁克，奥地利 (© imageBROKER/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.Hungerburgbahn_ZH-CN12632091555_1920x1080.jpg) 
 
@@ -7309,13 +7309,13 @@
 
 2016-11-11 | [“一只”丹顶鹤 (© Bobby Joshi/500px)](https://cdn.bimg.cc/bing/2016/OHR.SingleCrane_ZH-CN11987665683_1920x1080.jpg) 
 
-2016-11-10 | [金塔马尼小镇，巴厘岛，印度尼西亚 (© Bobby Joshi/500px)](https://cn.bing.com/th?id=OHR.PingganVillage_ZH-CN10035092925_UHD.jpg) 
+2016-11-10 | [金塔马尼小镇，巴厘岛，印度尼西亚 (© Bobby Joshi/500px)](https://cdn.bimg.cc/bing/2016/OHR.PingganVillage_ZH-CN10035092925_1920x1080.jpg) 
 
 2016-11-09 | [北极地区Raufarhöfn上空的斑斓极光，冰岛 (© Stian Rekdal/Nimia)](https://cdn.bimg.cc/bing/2016/OHR.ArcticHenge_ZH-CN8197982391_1920x1080.jpg) 
 
 2016-11-08 | [诺图尔恩小镇，Münsterland，北莱茵-威斯特法伦州，德国 (© Hans Blossey/age fotostock)](https://cdn.bimg.cc/bing/2016/OHR.NottulnHerbst_ZH-CN9638949027_1920x1080.jpg) 
 
-2016-11-07 | [【今日立冬】一条被冰冻“定格”了的小溪，九寨沟县，四川省 (© Jin Xing/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.IcyWaterfull_ZH-CN13699207169_UHD.jpg) 
+2016-11-07 | [【今日立冬】一条被冰冻“定格”了的小溪，九寨沟县，四川省 (© Jin Xing/Moment/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.IcyWaterfull_ZH-CN13699207169_1920x1080.jpg) 
 
 2016-11-06 | [多伦多联合车站的大石钟，加拿大 (© Zoran Stanojevic/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.UnionStationToronto_ZH-CN10376164284_1920x1080.jpg) 
 
@@ -7323,7 +7323,7 @@
 
 2016-11-04 | [豪滕，荷兰 (© Herman van den Berge/500px)](https://cdn.bimg.cc/bing/2016/OHR.GoldenHouten_ZH-CN8874322377_1920x1080.jpg) 
 
-2016-11-03 | [马卡雷纳山脉的五色河，哥伦比亚 (© Tom Till/Alamy)](https://cn.bing.com/th?id=OHR.CanoCristales_ZH-CN12281532336_UHD.jpg) 
+2016-11-03 | [马卡雷纳山脉的五色河，哥伦比亚 (© Tom Till/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.CanoCristales_ZH-CN12281532336_1920x1080.jpg) 
 
 2016-11-02 | [Saints Primus教堂和Felician教堂，亚姆尼克小镇， 斯洛文尼亚 (© Ian Middleton/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.JamnikSlovenia_ZH-CN12254942310_1920x1080.jpg) 
 
@@ -7331,7 +7331,7 @@
 
 2016-10-31 | [闹鬼的荒墓 (© Shutterstock/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Halloween2016_ZH-CN7682362704_1920x1080.jpg) 
 
-2016-10-30 | [九寨沟国家公园内的枫树 (© Cornelia Doerr/Getty Images)](https://cn.bing.com/th?id=OHR.RedMaple_ZH-CN13551827423_UHD.jpg) 
+2016-10-30 | [九寨沟国家公园内的枫树 (© Cornelia Doerr/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.RedMaple_ZH-CN13551827423_1920x1080.jpg) 
 
 2016-10-29 | [一只非洲豹出现在伦多洛兹私人野生动物保护区，南非  (© Sergey Gorshkov/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.NightLeopard_ZH-CN12938329877_1920x1080.jpg) 
 
@@ -7341,15 +7341,15 @@
 
 2016-10-26 | [丘比国家公园里的雌性大捻角羚，博茨瓦纳 (© WorldFoto/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.GreaterKudu_ZH-CN8868031087_1920x1080.jpg) 
 
-2016-10-25 | [爆发中的艾雅法拉火山，冰岛 (© moodboard/Cultura/Getty Images)](https://cn.bing.com/th?id=OHR.Eyjafjallajokull_ZH-CN7486636209_UHD.jpg) 
+2016-10-25 | [爆发中的艾雅法拉火山，冰岛 (© moodboard/Cultura/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Eyjafjallajokull_ZH-CN7486636209_1920x1080.jpg) 
 
 2016-10-24 | [温德姆市附近King河的滩涂，澳大利亚 (© Ralph Lee Hopkins/Offset)](https://cdn.bimg.cc/bing/2016/OHR.KingRiver_ZH-CN12008036815_1920x1080.jpg) 
 
-2016-10-23 | [【今日霜降】西藏昌都市然乌湖 (© Yuanping/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.RanwuLake_ZH-CN12859816630_UHD.jpg) 
+2016-10-23 | [【今日霜降】西藏昌都市然乌湖 (© Yuanping/iStock/Getty Images Plus)](https://cdn.bimg.cc/bing/2016/OHR.RanwuLake_ZH-CN12859816630_1920x1080.jpg) 
 
 2016-10-22 | [塔拉韦拉火山，新西兰北岛 (© Look Foto/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.MountTarawera_ZH-CN9325208378_1920x1080.jpg) 
 
-2016-10-21 | [云层中的梅斯纳尔山博物馆，意大利 (© Alberto Simonetti/Getty Images)](https://cn.bing.com/th?id=OHR.MuseumClouds_ZH-CN12976052707_UHD.jpg) 
+2016-10-21 | [云层中的梅斯纳尔山博物馆，意大利 (© Alberto Simonetti/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.MuseumClouds_ZH-CN12976052707_1920x1080.jpg) 
 
 2016-10-20 | [约克林村庄的阿什兰棚桥，美国特拉华州 (© Robert Kirk/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.YorklynCoveredBridge_ZH-CN9725813153_1920x1080.jpg) 
 
@@ -7363,27 +7363,27 @@
 
 2016-10-15 | [Cheserys湖与霞慕尼-勃朗峰，霞慕尼， 法国上萨瓦省 (© David Pattyn/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.LacsdesCheserys_ZH-CN10032851647_1920x1080.jpg) 
 
-2016-10-14 | [哥伦比亚河峡谷国家风景名胜区内的甜樱桃园，美国俄勒冈州 (© Jaynes Gallery/Danita Delimont)](https://cn.bing.com/th?id=OHR.MosierCherryOrchards_ZH-CN5969284234_UHD.jpg) 
+2016-10-14 | [哥伦比亚河峡谷国家风景名胜区内的甜樱桃园，美国俄勒冈州 (© Jaynes Gallery/Danita Delimont)](https://cdn.bimg.cc/bing/2016/OHR.MosierCherryOrchards_ZH-CN5969284234_1920x1080.jpg) 
 
 2016-10-13 | [Zuiderduintjes岛，西弗里西亚群岛，荷兰 (© Pete Leonard/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.WaddenSeaIsland_ZH-CN11536663361_1920x1080.jpg) 
 
-2016-10-12 | [马德拉岛的山间小径，葡萄牙 (© Rusinka/Shutterstock)](https://cn.bing.com/th?id=OHR.MadeiraTrails_ZH-CN11087101725_UHD.jpg) 
+2016-10-12 | [马德拉岛的山间小径，葡萄牙 (© Rusinka/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.MadeiraTrails_ZH-CN11087101725_1920x1080.jpg) 
 
-2016-10-11 | [一只黄额啄木鸟，巴西  (© Rafael Guadeluppe/Getty Images)](https://cn.bing.com/th?id=OHR.YellowFrontedWoodpecker_ZH-CN12671581596_UHD.jpg) 
+2016-10-11 | [一只黄额啄木鸟，巴西  (© Rafael Guadeluppe/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.YellowFrontedWoodpecker_ZH-CN12671581596_1920x1080.jpg) 
 
-2016-10-10 | [詹姆斯·韦伯太空望远镜内的光学拼接镜面 (© NASA)](https://cn.bing.com/th?id=OHR.JamesWebbSpaceTelescope_ZH-CN12268483856_UHD.jpg) 
+2016-10-10 | [詹姆斯·韦伯太空望远镜内的光学拼接镜面 (© NASA)](https://cdn.bimg.cc/bing/2016/OHR.JamesWebbSpaceTelescope_ZH-CN12268483856_1920x1080.jpg) 
 
-2016-10-09 | [西伯利亚东部针叶林的秋天， 俄罗斯 (© Serguei Fomine/500px)](https://cn.bing.com/th?id=OHR.SiberiaFoliage_ZH-CN9019501731_UHD.jpg) 
+2016-10-09 | [西伯利亚东部针叶林的秋天， 俄罗斯 (© Serguei Fomine/500px)](https://cdn.bimg.cc/bing/2016/OHR.SiberiaFoliage_ZH-CN9019501731_1920x1080.jpg) 
 
 2016-10-08 | [在德国灯光节期间，柏林大教堂灯火通明 (© Paul Zinken/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.LightsBerlin_ZH-CN8584269528_1920x1080.jpg) 
 
 2016-10-07 | [艾莱岛附近的一只港海豹，英国 (© Laurie Campbell/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.ScotlandHarbourSeal_ZH-CN14004018027_1920x1080.jpg) 
 
-2016-10-06 | [香港，中国 (© Banana Republic Images/Shutterstock)](https://cn.bing.com/th?id=OHR.HongKongVideo_ZH-CN8807831395_UHD.jpg) 
+2016-10-06 | [香港，中国 (© Banana Republic Images/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.HongKongVideo_ZH-CN8807831395_1920x1080.jpg) 
 
-2016-10-05 | [成年帝企鹅和它的宝宝们，雪山岛，南极洲 (© Mike Hill/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinSchool_ZH-CN12747614562_UHD.jpg) 
+2016-10-05 | [成年帝企鹅和它的宝宝们，雪山岛，南极洲 (© Mike Hill/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.PenguinSchool_ZH-CN12747614562_1920x1080.jpg) 
 
-2016-10-04 | [从国际空间站拍摄到的位于大埃克苏马群岛西侧小岛的珊瑚礁，巴哈马 (© NASA)](https://cn.bing.com/th?id=OHR.NASABahamas_ZH-CN9199428580_UHD.jpg) 
+2016-10-04 | [从国际空间站拍摄到的位于大埃克苏马群岛西侧小岛的珊瑚礁，巴哈马 (© NASA)](https://cdn.bimg.cc/bing/2016/OHR.NASABahamas_ZH-CN9199428580_1920x1080.jpg) 
 
 2016-10-03 | [绮丽峡谷国家遗迹的悬崖屋，美国亚利桑那州 (© Design Pics/Offset)](https://cdn.bimg.cc/bing/2016/OHR.CliffDwelling_ZH-CN11875663989_1920x1080.jpg) 
 
@@ -7391,11 +7391,11 @@
 
 2016-10-01 | [门头沟区永定楼的星夜，北京 (© Viewstock/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.YongdingFloor_ZH-CN13975440516_1920x1080.jpg) 
 
-2016-09-30 | [Kromlau小镇上杜鹃园里的魔鬼桥，德国萨克森州 (© Fotoatelier Berlin/Getty Images)](https://cn.bing.com/th?id=OHR.RakotzBridge_ZH-CN9323170058_UHD.jpg) 
+2016-09-30 | [Kromlau小镇上杜鹃园里的魔鬼桥，德国萨克森州 (© Fotoatelier Berlin/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.RakotzBridge_ZH-CN9323170058_1920x1080.jpg) 
 
 2016-09-29 | [屈斜路湖的大天鹅，日本北海道 (© Ocean/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.WhooperSwans_ZH-CN14237745323_1920x1080.jpg) 
 
-2016-09-28 | [旺图山上空的云雾，法国 (© Drone Under/Nimia)](https://cn.bing.com/th?id=OHR.MontVentoux_ZH-CN13938704019_UHD.jpg) 
+2016-09-28 | [旺图山上空的云雾，法国 (© Drone Under/Nimia)](https://cdn.bimg.cc/bing/2016/OHR.MontVentoux_ZH-CN13938704019_1920x1080.jpg) 
 
 2016-09-27 | [芬顿湖中雨雾缭绕的小岛，苏必利尔湖省立公园，加拿大安大略省 (© Mike Grandmaison/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.FentonLake_ZH-CN12244750610_1920x1080.jpg) 
 
@@ -7405,9 +7405,9 @@
 
 2016-09-24 | [高高草丛里的棕色欧洲野兔  (© Jackie Bale/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.BrownHares_ZH-CN6625339934_1920x1080.jpg) 
 
-2016-09-23 | [大沙丘国家公园，美国科罗拉多州 (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GreatSandDunes_ZH-CN9339214708_UHD.jpg) 
+2016-09-23 | [大沙丘国家公园，美国科罗拉多州 (© Ian Shive/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2016/OHR.GreatSandDunes_ZH-CN9339214708_1920x1080.jpg) 
 
-2016-09-22 | [【今日秋分】大丰收的稻草束，广西龙胜各族自治县 (© Federico Ravassard/500px)](https://cn.bing.com/th?id=OHR.HarvestedRice_ZH-CN13176366387_UHD.jpg) 
+2016-09-22 | [【今日秋分】大丰收的稻草束，广西龙胜各族自治县 (© Federico Ravassard/500px)](https://cdn.bimg.cc/bing/2016/OHR.HarvestedRice_ZH-CN13176366387_1920x1080.jpg) 
 
 2016-09-21 | [柴郡的秋色，英国  (© 2015 Light and Time Productions/Nimia)](https://cdn.bimg.cc/bing/2016/OHR.CheshireAutumn_ZH-CN9485229632_1920x1080.jpg) 
 
@@ -7415,9 +7415,9 @@
 
 2016-09-19 | [卡斯泰尔梅扎诺小镇，意大利 (© Federico Ravassard/500px)](https://cdn.bimg.cc/bing/2016/OHR.Castelmezzano_ZH-CN12653760581_1920x1080.jpg) 
 
-2016-09-18 | [雾气氤氲的索菲亚，保加利亚 (© Ivan Dimitrov/Solent News/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.SofiaBulgaria_ZH-CN11033924029_UHD.jpg) 
+2016-09-18 | [雾气氤氲的索菲亚，保加利亚 (© Ivan Dimitrov/Solent News/REX/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.SofiaBulgaria_ZH-CN11033924029_1920x1080.jpg) 
 
-2016-09-17 | [慕尼黑啤酒节的游乐设施，慕尼黑，德国 (© Wolfilser/Shutterstock)](https://cn.bing.com/th?id=OHR.OktoberfestRide_ZH-CN11055319166_UHD.jpg) 
+2016-09-17 | [慕尼黑啤酒节的游乐设施，慕尼黑，德国 (© Wolfilser/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.OktoberfestRide_ZH-CN11055319166_1920x1080.jpg) 
 
 2016-09-16 | [Webb教堂公园里一个建筑的室内吊顶，达拉斯，德克萨斯州 (© ARCHPHOTO/Gallery Stock)](https://cdn.bimg.cc/bing/2016/OHR.WebbChapelParkPavilion_ZH-CN11684993453_1920x1080.jpg) 
 
@@ -7435,15 +7435,15 @@
 
 2016-09-09 | [苏拉群岛上的苏格兰松树，松恩-菲尤拉讷，挪威 (© Orsolya Haarberg/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.ScotsPine_ZH-CN12887650002_1920x1080.jpg) 
 
-2016-09-08 | [斯德哥尔摩公共图书馆，瑞典斯德哥尔摩 (© Gallery Stock)](https://cn.bing.com/th?id=OHR.Stadsbiblioteket_ZH-CN6055045711_UHD.jpg) 
+2016-09-08 | [斯德哥尔摩公共图书馆，瑞典斯德哥尔摩 (© Gallery Stock)](https://cdn.bimg.cc/bing/2016/OHR.Stadsbiblioteket_ZH-CN6055045711_1920x1080.jpg) 
 
 2016-09-07 | [【今日白露】东江上的一叶扁舟，广东省 (© Li Feng/500px)](https://cdn.bimg.cc/bing/2016/OHR.Dongjiang_ZH-CN10434068279_1920x1080.jpg) 
 
 2016-09-06 | [荔枝山国家公园的瀑布，柬埔寨 (© f9photos/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.PhnomKulenNP_ZH-CN10975081651_1920x1080.jpg) 
 
-2016-09-05 | [一名粉刷工人换上了件新外套 (© Ognian Medarov/500px)](https://cn.bing.com/th?id=OHR.UrbanPainters_ZH-CN8992212566_UHD.jpg) 
+2016-09-05 | [一名粉刷工人换上了件新外套 (© Ognian Medarov/500px)](https://cdn.bimg.cc/bing/2016/OHR.UrbanPainters_ZH-CN8992212566_1920x1080.jpg) 
 
-2016-09-04 | [楚加奇国家森林的波蒂奇湖，阿拉斯加州 (© Ron Niebrugge/Alamy)](https://cn.bing.com/th?id=OHR.PortageValley_ZH-CN9734172700_UHD.jpg) 
+2016-09-04 | [楚加奇国家森林的波蒂奇湖，阿拉斯加州 (© Ron Niebrugge/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.PortageValley_ZH-CN9734172700_1920x1080.jpg) 
 
 2016-09-03 | [莫斯科国际商务中心，俄罗斯 (© Nikolay Rykov/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.MoscowSkyline_ZH-CN10266976296_1920x1080.jpg) 
 
@@ -7451,7 +7451,7 @@
 
 2016-09-01 | [萨尔蒂群岛上的憨鲣鸟，爱尔兰 (© Bart Breet/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.SalteeGannets_ZH-CN12304087974_1920x1080.jpg) 
 
-2016-08-31 | [科西嘉岛上的博尼法乔小城，法国 (© BIOSPHOTO/Alamy)](https://cn.bing.com/th?id=OHR.BonifacioCliffs_ZH-CN10939302737_UHD.jpg) 
+2016-08-31 | [科西嘉岛上的博尼法乔小城，法国 (© BIOSPHOTO/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.BonifacioCliffs_ZH-CN10939302737_1920x1080.jpg) 
 
 2016-08-30 | [马拉什附近的莫雷印加遗址，秘鲁 (© Panoramic Images/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.CircularIncaTerraces_ZH-CN12305945804_1920x1080.jpg) 
 
@@ -7463,21 +7463,21 @@
 
 2016-08-26 | [鹿特丹大型拱廊市场，荷兰  (© Tetra Images/Offset)](https://cdn.bimg.cc/bing/2016/OHR.Markthal_ZH-CN11336253538_1920x1080.jpg) 
 
-2016-08-25 | [尖塔国家公园里的火山斜坡，美国加利福尼亚州 (© Don Smith/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesNP_ZH-CN9665317661_UHD.jpg) 
+2016-08-25 | [尖塔国家公园里的火山斜坡，美国加利福尼亚州 (© Don Smith/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.PinnaclesNP_ZH-CN9665317661_1920x1080.jpg) 
 
 2016-08-24 | [朱庇特神庙和来自庞贝古城的维苏威火山，意大利 (© Design Pics Inc/REX/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.TempleofJupiter_ZH-CN12720734647_1920x1080.jpg) 
 
 2016-08-23 | [【今日处暑】西藏风化地貌 (© aaaaimages/Moment/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Tibetlandform_ZH-CN11243492345_1920x1080.jpg) 
 
-2016-08-22 | [纳斯卡线“绘制”的鸮人 ，秘鲁 (© Laura Fafone/Getty Images)](https://cn.bing.com/th?id=OHR.NazcaLines_ZH-CN10481196093_UHD.jpg) 
+2016-08-22 | [纳斯卡线“绘制”的鸮人 ，秘鲁 (© Laura Fafone/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.NazcaLines_ZH-CN10481196093_1920x1080.jpg) 
 
-2016-08-21 | [从甜面包山眺望里约热内卢，巴西 (© Juan Carlos Ruiz/500px)](https://cn.bing.com/th?id=OHR.SugarLoafTramVideo_ZH-CN8730080670_UHD.jpg) 
+2016-08-21 | [从甜面包山眺望里约热内卢，巴西 (© Juan Carlos Ruiz/500px)](https://cdn.bimg.cc/bing/2016/OHR.SugarLoafTramVideo_ZH-CN8730080670_1920x1080.jpg) 
 
 2016-08-20 | [圣安德烈斯的特雷西塔海滩，加那利群岛的特内里费岛，西班牙 (© Cornelia Doerr/age fotostock)](https://cdn.bimg.cc/bing/2016/OHR.LasTeresitasBeach_ZH-CN13683812698_1920x1080.jpg) 
 
 2016-08-19 | [普通翠鸟在相机镜头上短憩 (© Sijanto/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.KingFisherPhoto_ZH-CN11985479914_1920x1080.jpg) 
 
-2016-08-18 | [干龟岛海龟国家公园的杰斐逊堡，佛罗里达州 (© Miami2you/Shutterstock)](https://cn.bing.com/th?id=OHR.DryTortugas_ZH-CN9392694652_UHD.jpg) 
+2016-08-18 | [干龟岛海龟国家公园的杰斐逊堡，佛罗里达州 (© Miami2you/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.DryTortugas_ZH-CN9392694652_1920x1080.jpg) 
 
 2016-08-17 | [【今日鬼节】从薄雾飘渺的富士山山中湖的第八站台看日出，日本 (© Jeff Matsuya/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.HatsuhinodeOarai_ZH-CN9858647947_1920x1080.jpg) 
 
@@ -7487,53 +7487,53 @@
 
 2016-08-14 | [凯里乔县的茶叶种植园，肯尼亚 (© Yann Arthus-Bertrand/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.KerichoTea_ZH-CN7126476900_1920x1080.jpg) 
 
-2016-08-13 | [Maho 湾的棕榈树，维尔京群岛国家公园 (© Shutterstock)](https://cn.bing.com/th?id=OHR.MahoBayPalms_ZH-CN10739743006_UHD.jpg) 
+2016-08-13 | [Maho 湾的棕榈树，维尔京群岛国家公园 (© Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.MahoBayPalms_ZH-CN10739743006_1920x1080.jpg) 
 
-2016-08-12 | [阿多大象国家公园里的大象，南非 (© Johan Swanepoel/Alamy)](https://cn.bing.com/th?id=OHR.AddoElephants_ZH-CN13744097225_UHD.jpg) 
+2016-08-12 | [阿多大象国家公园里的大象，南非 (© Johan Swanepoel/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.AddoElephants_ZH-CN13744097225_1920x1080.jpg) 
 
-2016-08-11 | [在密歇根湖上的芝加哥港灯塔 (© Tim Klein/Gallery Stock)](https://cn.bing.com/th?id=OHR.ChicagoHarborLH_ZH-CN9974330969_UHD.jpg) 
+2016-08-11 | [在密歇根湖上的芝加哥港灯塔 (© Tim Klein/Gallery Stock)](https://cdn.bimg.cc/bing/2016/OHR.ChicagoHarborLH_ZH-CN9974330969_1920x1080.jpg) 
 
 2016-08-10 | [1904年圣路易斯世博会上，史密森尼博物馆巡回展 (© Bygone Collection/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.LouisianaPurchaseExposition_ZH-CN11859050927_1920x1080.jpg) 
 
 2016-08-09 | [【今日七夕】内蒙古阿尔山国家森林公园的一对天鹅 (© Blue Jean Images/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.WhiteSwan_ZH-CN12970644283_1920x1080.jpg) 
 
-2016-08-08 | [从马萨巴修道院俯瞰汲沦谷，以色列耶路撒冷 (© Roman Pesarenko/500px)](https://cn.bing.com/th?id=OHR.MarSaba_ZH-CN12470933866_UHD.jpg) 
+2016-08-08 | [从马萨巴修道院俯瞰汲沦谷，以色列耶路撒冷 (© Roman Pesarenko/500px)](https://cdn.bimg.cc/bing/2016/OHR.MarSaba_ZH-CN12470933866_1920x1080.jpg) 
 
 2016-08-07 | [篁岭家家户户正在晒辣椒和菊花，江西婺源 (© Xinhua/REX Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.Shaiqiu_ZH-CN11319335057_1920x1080.jpg) 
 
-2016-08-06 | [撒克逊瑞士国家公园，德国 (© Andreas Vogel/500px)](https://cn.bing.com/th?id=OHR.SachsischeSchweiz_ZH-CN10640382929_UHD.jpg) 
+2016-08-06 | [撒克逊瑞士国家公园，德国 (© Andreas Vogel/500px)](https://cdn.bimg.cc/bing/2016/OHR.SachsischeSchweiz_ZH-CN10640382929_1920x1080.jpg) 
 
 2016-08-05 | [马拉卡纳体育场上空绽放的礼花，巴西里约热内卢 (© Buda Mendes/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.MaracanaFireworks_ZH-CN9834580695_1920x1080.jpg) 
 
-2016-08-04 | [阿卡迪亚国家公园里的 Jesup小径，美国缅因州 (© Pat & Chuck Blackley/Alamy)](https://cn.bing.com/th?id=OHR.WildGardens_ZH-CN12707941302_UHD.jpg) 
+2016-08-04 | [阿卡迪亚国家公园里的 Jesup小径，美国缅因州 (© Pat & Chuck Blackley/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.WildGardens_ZH-CN12707941302_1920x1080.jpg) 
 
 2016-08-03 | [达特穆尔国家公园里的夕阳，英格兰德文郡 (© Jonathan Scott/Nimia)](https://cdn.bimg.cc/bing/2016/OHR.SunsetDartmoor_ZH-CN8298298012_1920x1080.jpg) 
 
-2016-08-02 | [哈尔滨歌剧院场馆 (© Hufton and Crow/VIEW Pictures Ltd/Alamy)](https://cn.bing.com/th?id=OHR.HarbinOperaHouse_ZH-CN10126072780_UHD.jpg) 
+2016-08-02 | [哈尔滨歌剧院场馆 (© Hufton and Crow/VIEW Pictures Ltd/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.HarbinOperaHouse_ZH-CN10126072780_1920x1080.jpg) 
 
 2016-08-01 | [马赛马拉国家保护区里的非洲狮，肯尼亚 (© Daniel J Cox/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.GFLions_ZH-CN10964337001_1920x1080.jpg) 
 
-2016-07-31 | [Ko Panyi 村，泰国攀牙湾 (© Yann Arthus-Bertrand/Getty Images)](https://cn.bing.com/th?id=OHR.KohPanyi_ZH-CN12194565147_UHD.jpg) 
+2016-07-31 | [Ko Panyi 村，泰国攀牙湾 (© Yann Arthus-Bertrand/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.KohPanyi_ZH-CN12194565147_1920x1080.jpg) 
 
-2016-07-30 | [一只得意洋洋的蓝胸佛法僧，保加利亚 (© Marion Vollborn/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoraciasGarrulus_ZH-CN8070892801_UHD.jpg) 
+2016-07-30 | [一只得意洋洋的蓝胸佛法僧，保加利亚 (© Marion Vollborn/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.CoraciasGarrulus_ZH-CN8070892801_1920x1080.jpg) 
 
-2016-07-29 | [罗亚尔岛国家公园的一匹西方麋鹿，美国密歇根州 (© Jim Brandenburg/Minden Pictures)](https://cn.bing.com/th?id=OHR.RoyaleNP_ZH-CN7784462387_UHD.jpg) 
+2016-07-29 | [罗亚尔岛国家公园的一匹西方麋鹿，美国密歇根州 (© Jim Brandenburg/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.RoyaleNP_ZH-CN7784462387_1920x1080.jpg) 
 
 2016-07-28 | [卡斯特鲁奇奥小镇，位于蒙蒂锡比利尼国家公园，意大利 (© Brian Jannsen/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.Castelluccio_ZH-CN13949453635_1920x1080.jpg) 
 
-2016-07-27 | [单腿站立的白骨顶鸡 ，英国德比郡 (© Andrew Parkinson/Minden Pictures)](https://cn.bing.com/th?id=OHR.Coot_ZH-CN9795916145_UHD.jpg) 
+2016-07-27 | [单腿站立的白骨顶鸡 ，英国德比郡 (© Andrew Parkinson/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.Coot_ZH-CN9795916145_1920x1080.jpg) 
 
 2016-07-26 | [伦敦塔桥 (© Mapics/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.TowerBridgeVideo_ZH-CN9340207782_1920x1080.jpg) 
 
 2016-07-25 | [疾驶穿梭在恶土国家公园的车灯光线，南达科他州 (© Adam Hester/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.BadlandsHeadlights_ZH-CN11986873693_1920x1080.jpg) 
 
-2016-07-24 | [桑给巴尔红疣猴，坦桑尼亚 (© Thomas Marent/Minden Pictures)](https://cn.bing.com/th?id=OHR.ZanzibarRedColobus_ZH-CN11792109900_UHD.jpg) 
+2016-07-24 | [桑给巴尔红疣猴，坦桑尼亚 (© Thomas Marent/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.ZanzibarRedColobus_ZH-CN11792109900_1920x1080.jpg) 
 
-2016-07-23 | [日本北海道的美瑛蓝池 (© JTB Photo/UIG/Getty Images)](https://cn.bing.com/th?id=OHR.BluePondJapan_ZH-CN9068810300_UHD.jpg) 
+2016-07-23 | [日本北海道的美瑛蓝池 (© JTB Photo/UIG/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.BluePondJapan_ZH-CN9068810300_1920x1080.jpg) 
 
-2016-07-22 | [【今日大暑】苦瓜 (© konmesa/Shutterstock)](https://cn.bing.com/th?id=OHR.Bittermelon_ZH-CN13629728807_UHD.jpg) 
+2016-07-22 | [【今日大暑】苦瓜 (© konmesa/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.Bittermelon_ZH-CN13629728807_1920x1080.jpg) 
 
-2016-07-21 | [湖北省宣恩县的天坑 (© Xinhua News Agency/REX/Shutterstock)](https://cn.bing.com/th?id=OHR.HubeiSinkhole_ZH-CN8831229647_UHD.jpg) 
+2016-07-21 | [湖北省宣恩县的天坑 (© Xinhua News Agency/REX/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.HubeiSinkhole_ZH-CN8831229647_1920x1080.jpg) 
 
 2016-07-20 | [月全食 (© Christopher Collins/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.BloodMoonVideo_ZH-CN9099765312_1920x1080.jpg) 
 
@@ -7543,7 +7543,7 @@
 
 2016-07-17 | [在梅森堡的海滩小屋，南非 (© Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.MuizenbergSA_ZH-CN9407386955_1920x1080.jpg) 
 
-2016-07-16 | [西弗兰德的Yser 河，比利时 (© Wouter Pattyn/Minden Pictures)](https://cn.bing.com/th?id=OHR.ValleyofYzer_ZH-CN8001552912_UHD.jpg) 
+2016-07-16 | [西弗兰德的Yser 河，比利时 (© Wouter Pattyn/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.ValleyofYzer_ZH-CN8001552912_1920x1080.jpg) 
 
 2016-07-15 | [一头一跃而起的驼背鲸，阿拉斯加的基奈峡湾国家公园 (© Ron Niebrugge/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.KenaiFjordsHumpback_ZH-CN10219728807_1920x1080.jpg) 
 
@@ -7559,11 +7559,11 @@
 
 2016-07-09 | [上巴伐利亚的Osterseen水域，德国 (© Florian Werner/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.OsterseenAerial_ZH-CN9999822646_1920x1080.jpg) 
 
-2016-07-08 | [飓风岭山脊上的哥伦比亚百合，美国华盛顿州奥林匹克国家公园 (© Dennis Frates/Alamy)](https://cn.bing.com/th?id=OHR.HurricaneRidgeTiger_ZH-CN11087235010_UHD.jpg) 
+2016-07-08 | [飓风岭山脊上的哥伦比亚百合，美国华盛顿州奥林匹克国家公园 (© Dennis Frates/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.HurricaneRidgeTiger_ZH-CN11087235010_1920x1080.jpg) 
 
-2016-07-07 | [【今日小暑】火烧云下的元阳梯田 (© Jon Bratt/Getty Images)](https://cn.bing.com/th?id=OHR.TerracesSunrise_ZH-CN11993554223_UHD.jpg) 
+2016-07-07 | [【今日小暑】火烧云下的元阳梯田 (© Jon Bratt/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.TerracesSunrise_ZH-CN11993554223_1920x1080.jpg) 
 
-2016-07-06 | [德国柏林国会大厦 (© Holger Mette/Shutterstock)](https://cn.bing.com/th?id=OHR.ReichstagDome_ZH-CN9358724121_UHD.jpg) 
+2016-07-06 | [德国柏林国会大厦 (© Holger Mette/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.ReichstagDome_ZH-CN9358724121_1920x1080.jpg) 
 
 2016-07-05 | [凯布朗利博物馆的外墙，法国巴黎 (© Trevor Hunt/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.QuaiBranlyMuseum_ZH-CN10941225231_1920x1080.jpg) 
 
@@ -7571,9 +7571,9 @@
 
 2016-07-03 | [从罗马海神喷泉窥视美泉宫，维也纳，奥地利 (© Marco Romani/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.SchonbrunnPalace_ZH-CN11907034371_1920x1080.jpg) 
 
-2016-07-02 | [拜洛特岛的沿海水域，努纳武特，加拿大 (© Andrew Peacock/Offset)](https://cn.bing.com/th?id=OHR.BathurstBay_ZH-CN15704350271_UHD.jpg) 
+2016-07-02 | [拜洛特岛的沿海水域，努纳武特，加拿大 (© Andrew Peacock/Offset)](https://cdn.bimg.cc/bing/2016/OHR.BathurstBay_ZH-CN15704350271_1920x1080.jpg) 
 
-2016-07-01 | [穴居猫头鹰幼崽 (© Mark Bridger/Shutterstock/Offset)](https://cn.bing.com/th?id=OHR.DiaDosNamorados_ZH-CN10966266512_UHD.jpg) 
+2016-07-01 | [穴居猫头鹰幼崽 (© Mark Bridger/Shutterstock/Offset)](https://cdn.bimg.cc/bing/2016/OHR.DiaDosNamorados_ZH-CN10966266512_1920x1080.jpg) 
 
 2016-06-30 | [日本，利尻礼文佐吕别国立公园，日本小鼯鼠 (© HTB/NHK Video Bank Creative/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.DwarfFlyingSquirrel_ZH-CN11085553814_1920x1080.jpg) 
 
@@ -7583,19 +7583,19 @@
 
 2016-06-27 | [荷兰，帚石楠花海 (© Bendiks Westerink/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.CallunaVulgaris_ZH-CN11090416298_1920x1080.jpg) 
 
-2016-06-26 | [马达加斯加，安卡拉凡兹卡国家公园，Ankarokaroka canyon (© Bernard Castelein/Minden Pictures)](https://cn.bing.com/th?id=OHR.Ankarokaroka_ZH-CN11142232223_UHD.jpg) 
+2016-06-26 | [马达加斯加，安卡拉凡兹卡国家公园，Ankarokaroka canyon (© Bernard Castelein/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.Ankarokaroka_ZH-CN11142232223_1920x1080.jpg) 
 
-2016-06-25 | [日本，九州，高千穗町 (© Shayne Hill Xtreme Visuals/Getty Images)](https://cn.bing.com/th?id=OHR.TakachihoGorge_ZH-CN10050763703_UHD.jpg) 
+2016-06-25 | [日本，九州，高千穗町 (© Shayne Hill Xtreme Visuals/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.TakachihoGorge_ZH-CN10050763703_1920x1080.jpg) 
 
-2016-06-24 | [美国，加利福尼亚州，死亡谷国家公园的大沙丘 (© Don White/SuperStock/Alamy)](https://cn.bing.com/th?id=OHR.MesquiteFlatDunes_ZH-CN7882451661_UHD.jpg) 
+2016-06-24 | [美国，加利福尼亚州，死亡谷国家公园的大沙丘 (© Don White/SuperStock/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.MesquiteFlatDunes_ZH-CN7882451661_1920x1080.jpg) 
 
-2016-06-23 | [意大利，马泰拉 (© Cavan Images/Offset)](https://cn.bing.com/th?id=OHR.MateraItaly_ZH-CN9251776262_UHD.jpg) 
+2016-06-23 | [意大利，马泰拉 (© Cavan Images/Offset)](https://cdn.bimg.cc/bing/2016/OHR.MateraItaly_ZH-CN9251776262_1920x1080.jpg) 
 
 2016-06-22 | [挪威，瑟福尔，Kobbvatnet Lake (© Martin Heck/Nimia)](https://cdn.bimg.cc/bing/2016/OHR.Kobbvatnet_ZH-CN9386702650_1920x1080.jpg) 
 
 2016-06-21 | [【今日夏至】美国犹他州，艺术家南希·霍尔特在卢辛镇附近的装置艺术太阳隧道 (© Lindsay Daniels/Tandem Stills +Motion)](https://cdn.bimg.cc/bing/2016/OHR.SunTunnels_ZH-CN6830170234_1920x1080.jpg) 
 
-2016-06-20 | [南非，长颈鹿 (© Lilly Husbands/Offset)](https://cn.bing.com/th?id=OHR.SAGiraffe_ZH-CN9361468907_UHD.jpg) 
+2016-06-20 | [南非，长颈鹿 (© Lilly Husbands/Offset)](https://cdn.bimg.cc/bing/2016/OHR.SAGiraffe_ZH-CN9361468907_1920x1080.jpg) 
 
 2016-06-19 | [巴西，亚马逊雨林，一只黄肢狨和它的孩子 (© Nick Gordon/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.MarmosetDad_ZH-CN13409579692_1920x1080.jpg) 
 
@@ -7615,7 +7615,7 @@
 
 2016-06-11 | [梅兰加尔古堡的外观，焦特布尔，印度 (© Lucas Vallecillos/age fotostock)](https://cdn.bimg.cc/bing/2016/OHR.MehrangarhFort_ZH-CN10601634968_1920x1080.jpg) 
 
-2016-06-10 | [甘尼森黑峡谷国家公园里的郊狼，美国科罗拉多州 (© Jeff Diener/Aurora Photos)](https://cn.bing.com/th?id=OHR.BlackCanyonOTGunnison_ZH-CN9471134282_UHD.jpg) 
+2016-06-10 | [甘尼森黑峡谷国家公园里的郊狼，美国科罗拉多州 (© Jeff Diener/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.BlackCanyonOTGunnison_ZH-CN9471134282_1920x1080.jpg) 
 
 2016-06-09 | [【端午节】龙舟竞赛特写 (© EasyBuy4u/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.DragonboatRace_ZH-CN12096105830_1920x1080.jpg) 
 
@@ -7631,27 +7631,27 @@
 
 2016-06-03 | [黄石国家公园内一场森林火灾后的景象，美国怀俄明州 (© Stephanie Coffman/Tandem Motion + Stills)](https://cdn.bimg.cc/bing/2016/OHR.YellowstoneForest_ZH-CN8610351993_1920x1080.jpg) 
 
-2016-06-02 | [英国的康沃尔海岸 (© Allan Baxter/Getty Images)](https://cn.bing.com/th?id=OHR.CornwallCoast_ZH-CN6959932566_UHD.jpg) 
+2016-06-02 | [英国的康沃尔海岸 (© Allan Baxter/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.CornwallCoast_ZH-CN6959932566_1920x1080.jpg) 
 
 2016-06-01 | [【六一儿童节】中国沈阳，蒲河小学的学生在排练皮影戏 (© epa european pressphoto agency b.v./Alamy Stock Photo)](https://cdn.bimg.cc/bing/2016/OHR.PupilsPerforming_ZH-CN12566659717_1920x1080.jpg) 
 
 2016-05-31 | [洛托法加的苏阿海沟，乌波卢岛，萨摩亚 (© Danita Delimont/Offset)](https://cdn.bimg.cc/bing/2016/OHR.ToSuaOceanTrench_ZH-CN12994567053_1920x1080.jpg) 
 
-2016-05-30 | [瓦登海域的北弗里西亚群岛中，Norderoog岛的鸟瞰图，石勒苏益格－荷尔斯泰因州，德国 (© Holger Weitzel/imageBROKER/Alamy)](https://cn.bing.com/th?id=OHR.HalligNorderoog_ZH-CN12356376064_UHD.jpg) 
+2016-05-30 | [瓦登海域的北弗里西亚群岛中，Norderoog岛的鸟瞰图，石勒苏益格－荷尔斯泰因州，德国 (© Holger Weitzel/imageBROKER/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.HalligNorderoog_ZH-CN12356376064_1920x1080.jpg) 
 
-2016-05-29 | [印染后被挂起来的丝绸， 马拉喀什，摩洛哥 (© David Noton Photography/Alamy)](https://cn.bing.com/th?id=OHR.MarrakechSilk_ZH-CN10945402567_UHD.jpg) 
+2016-05-29 | [印染后被挂起来的丝绸， 马拉喀什，摩洛哥 (© David Noton Photography/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.MarrakechSilk_ZH-CN10945402567_1920x1080.jpg) 
 
-2016-05-28 | [沙漠瞭望塔的壁画，大峡谷国家公园，亚利桑那州 (© Richard Nowitz/National Geographic Creative/Alamy)](https://cn.bing.com/th?id=OHR.DesertViewWatchtower_ZH-CN12476715071_UHD.jpg) 
+2016-05-28 | [沙漠瞭望塔的壁画，大峡谷国家公园，亚利桑那州 (© Richard Nowitz/National Geographic Creative/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.DesertViewWatchtower_ZH-CN12476715071_1920x1080.jpg) 
 
 2016-05-27 | [非洲大西洋海湾的纳米布沙漠 (© Robert Harding World Imagery/Offset)](https://cdn.bimg.cc/bing/2016/OHR.NamibDesertOcean_ZH-CN6699617236_1920x1080.jpg) 
 
-2016-05-26 | [条纹臭鼬正在闻一朵小野花 (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.SkunkKit_ZH-CN10809503929_UHD.jpg) 
+2016-05-26 | [条纹臭鼬正在闻一朵小野花 (© Tim Fitzharris/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.SkunkKit_ZH-CN10809503929_1920x1080.jpg) 
 
 2016-05-25 | [锡斯基尤湖面上沙斯塔雪山的倒影， 加利福尼亚州北部 (© Danita Delimont/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.ShastaVideo_ZH-CN10595902413_1920x1080.jpg) 
 
 2016-05-24 | [上海市陆家嘴区一个过街天桥 (© Mark Harris/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.ShanghaiElevatedWalkway_ZH-CN8623422930_1920x1080.jpg) 
 
-2016-05-23 | [一只正在晒背的绿海龟 (© Sergi Garcia Fernandez/Minden Pictures)](https://cn.bing.com/th?id=OHR.CanaryIslandsTurtle_ZH-CN8309161098_UHD.jpg) 
+2016-05-23 | [一只正在晒背的绿海龟 (© Sergi Garcia Fernandez/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.CanaryIslandsTurtle_ZH-CN8309161098_1920x1080.jpg) 
 
 2016-05-22 | [威尼斯泻湖的彩色岛，意大利 (© Digitaler Lumpensammler/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Burano_ZH-CN11357493539_1920x1080.jpg) 
 
@@ -7659,21 +7659,21 @@
 
 2016-05-20 | [图恩湖上空的滑翔运动员，瑞士 (© Uli Wiesmeier/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Paraglider_ZH-CN9008416506_1920x1080.jpg) 
 
-2016-05-19 | [在De Biesbosch国家公园，土地艺术家Paul de Kort的装置艺术作品，荷兰 (© Frans Lemmens/Alamy)](https://cn.bing.com/th?id=OHR.TidalArt_ZH-CN8635017737_UHD.jpg) 
+2016-05-19 | [在De Biesbosch国家公园，土地艺术家Paul de Kort的装置艺术作品，荷兰 (© Frans Lemmens/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.TidalArt_ZH-CN8635017737_1920x1080.jpg) 
 
 2016-05-18 | [生物圈博物馆，蒙特利尔，加拿大 (© Guenther Schwermer/REX/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.BiosphereMuseum_ZH-CN5219749260_1920x1080.jpg) 
 
-2016-05-17 | [三姐妹火山冰洞的内部，俄勒冈州 (© Marc Adamus/Aurora Photos)](https://cn.bing.com/th?id=OHR.IceCaveOR_ZH-CN10851720546_UHD.jpg) 
+2016-05-17 | [三姐妹火山冰洞的内部，俄勒冈州 (© Marc Adamus/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.IceCaveOR_ZH-CN10851720546_1920x1080.jpg) 
 
-2016-05-16 | [PuttyBeach，新南威尔士州，澳大利亚 (© Steve Daggar Photography/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.PuttyBeach_ZH-CN8972640560_UHD.jpg) 
+2016-05-16 | [PuttyBeach，新南威尔士州，澳大利亚 (© Steve Daggar Photography/Moment/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.PuttyBeach_ZH-CN8972640560_1920x1080.jpg) 
 
 2016-05-15 | [喀斯喀特山脉附近，落基山山脚下一对嬉闹的狐狸，蒙大拿州 (© Jason Savage/Tandem Stills + Motion)](https://cdn.bimg.cc/bing/2016/OHR.RockyMtFox_ZH-CN11501547462_1920x1080.jpg) 
 
-2016-05-14 | [雷尼尔山上空的璀璨银河, 雷尼尔山国家公园，华盛顿州 (© Brad Goldpaint/Aurora Photos)](https://cn.bing.com/th?id=OHR.RainierMilkyWay_ZH-CN9404321904_UHD.jpg) 
+2016-05-14 | [雷尼尔山上空的璀璨银河, 雷尼尔山国家公园，华盛顿州 (© Brad Goldpaint/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.RainierMilkyWay_ZH-CN9404321904_1920x1080.jpg) 
 
 2016-05-13 | [怪物公园里的奥库斯石像，博马尔佐，意大利 (© Canadastock/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.ParkOfTheMonsters_ZH-CN8843541081_1920x1080.jpg) 
 
-2016-05-12 | [泰国北部盛开的薰衣草 (© Tanat Loungtip/Alamy)](https://cn.bing.com/th?id=OHR.ThailandLavender_ZH-CN13975486252_UHD.jpg) 
+2016-05-12 | [泰国北部盛开的薰衣草 (© Tanat Loungtip/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.ThailandLavender_ZH-CN13975486252_1920x1080.jpg) 
 
 2016-05-11 | [Dolwyddelan城堡，威尔士 (© Jim Richardson/National Geographic Creative/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.DolwyddelanCastle_ZH-CN8710802797_1920x1080.jpg) 
 
@@ -7683,7 +7683,7 @@
 
 2016-05-08 | [加拉帕戈斯海狮和她的宝宝，加拉帕戈斯群岛，厄瓜多尔 (© Pete Oxford/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.SealionMom_ZH-CN13692181116_1920x1080.jpg) 
 
-2016-05-07 | [北极之门国家公园和保护区，阿拉斯加州 (© 167/Michael Melford/Corbis)](https://cn.bing.com/th?id=OHR.GatesArcticNP_ZH-CN8641390082_UHD.jpg) 
+2016-05-07 | [北极之门国家公园和保护区，阿拉斯加州 (© 167/Michael Melford/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.GatesArcticNP_ZH-CN8641390082_1920x1080.jpg) 
 
 2016-05-06 | [一只在枝头休憩的绣眼鸟 (© Rob Hofmeyr/Mammoth HD)](https://cdn.bimg.cc/bing/2016/OHR.CapeWhiteEye_ZH-CN7432014343_1920x1080.jpg) 
 
@@ -7695,27 +7695,27 @@
 
 2016-05-02 | [丹麦，哥本哈根的微波暗室 (© Alastair Philip Wiper/Science Photo Library)](https://cdn.bimg.cc/bing/2016/OHR.RadioChamber_ZH-CN7811618623_1920x1080.jpg) 
 
-2016-05-01 | [【劳动节】云南省元阳县，倒映在梯田里的阳光 (© Eastphoto/age fotostock)](https://cn.bing.com/th?id=OHR.RicePaddyVideo_ZH-CN9222976985_UHD.jpg) 
+2016-05-01 | [【劳动节】云南省元阳县，倒映在梯田里的阳光 (© Eastphoto/age fotostock)](https://cdn.bimg.cc/bing/2016/OHR.RicePaddyVideo_ZH-CN9222976985_1920x1080.jpg) 
 
-2016-04-30 | [美国德克萨斯州，瓜达洛普山国家公园上空的卷云 (© Viktor Posnov/Getty Images)](https://cn.bing.com/th?id=OHR.GuadalupeCloudsNP_ZH-CN11100498951_UHD.jpg) 
+2016-04-30 | [美国德克萨斯州，瓜达洛普山国家公园上空的卷云 (© Viktor Posnov/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.GuadalupeCloudsNP_ZH-CN11100498951_1920x1080.jpg) 
 
 2016-04-29 | [英国，坎布里亚，Roudsea森林里的橡树树冠 (© Chris Mattison/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.RoudseaWood_ZH-CN12889083521_1920x1080.jpg) 
 
-2016-04-28 | [墨西哥伊达尔戈州，拉斯帕尔马斯邻近，帕丘卡小镇的巨型壁画 (© Omar Torres/Getty Images)](https://cn.bing.com/th?id=OHR.PalmitasMural_ZH-CN10215774743_UHD.jpg) 
+2016-04-28 | [墨西哥伊达尔戈州，拉斯帕尔马斯邻近，帕丘卡小镇的巨型壁画 (© Omar Torres/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.PalmitasMural_ZH-CN10215774743_1920x1080.jpg) 
 
-2016-04-27 | [正在猎捕啮齿动物的红隼 (© Bertie Gregory/Corbis)](https://cn.bing.com/th?id=OHR.Kestrel_ZH-CN10242518763_UHD.jpg) 
+2016-04-27 | [正在猎捕啮齿动物的红隼 (© Bertie Gregory/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.Kestrel_ZH-CN10242518763_1920x1080.jpg) 
 
-2016-04-26 | [夏威夷鸡蛋花 (© Darrell Gulin/Getty Images)](https://cn.bing.com/th?id=OHR.Plumeria_ZH-CN10955138144_UHD.jpg) 
+2016-04-26 | [夏威夷鸡蛋花 (© Darrell Gulin/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Plumeria_ZH-CN10955138144_1920x1080.jpg) 
 
 2016-04-25 | [阿尔及利亚，绿洲小镇塔吉特 (© George Steinmetz/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.Taghit_ZH-CN10846599174_1920x1080.jpg) 
 
 2016-04-24 | [长尾丽椋鸟 (© FuYi Chen/500px)](https://cdn.bimg.cc/bing/2016/OHR.LongTailedGlossy_ZH-CN13193173719_1920x1080.jpg) 
 
-2016-04-23 | [夏威夷火山国家公园，喷发中的基拉韦厄 (© Art Wolfe/Getty Images)](https://cn.bing.com/th?id=OHR.VolcanoesNP_ZH-CN11778388181_UHD.jpg) 
+2016-04-23 | [夏威夷火山国家公园，喷发中的基拉韦厄 (© Art Wolfe/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.VolcanoesNP_ZH-CN11778388181_1920x1080.jpg) 
 
 2016-04-22 | [黑海表面绿意盎然的游离微生植物 (© NASA/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.BlackSea_ZH-CN9772885358_1920x1080.jpg) 
 
-2016-04-21 | [多伦多，亨伯湾拱桥上的一群慢跑爱好者 (© Mark Blinch/REUTERS)](https://cn.bing.com/th?id=OHR.TorontoJoggers_ZH-CN13754389918_UHD.jpg) 
+2016-04-21 | [多伦多，亨伯湾拱桥上的一群慢跑爱好者 (© Mark Blinch/REUTERS)](https://cdn.bimg.cc/bing/2016/OHR.TorontoJoggers_ZH-CN13754389918_1920x1080.jpg) 
 
 2016-04-20 | [加拿大，阿尔伯塔，卡纳纳斯基斯行政区的落基山脉大角羊 (© Walter Nussbaumer/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.BigHornSheep_ZH-CN6358178150_1920x1080.jpg) 
 
@@ -7723,23 +7723,23 @@
 
 2016-04-18 | [苏格兰，贝里克郡燕子的剪影 (© Laurie Campbell/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.MontyPSwallow_ZH-CN8057492718_1920x1080.jpg) 
 
-2016-04-17 | [印度，拉达克，列城   Namgyal Tsemo修道院上空的银河 (© Panom Bounak/500px)](https://cn.bing.com/th?id=OHR.MilkyWayLadakh_ZH-CN7734727282_UHD.jpg) 
+2016-04-17 | [印度，拉达克，列城   Namgyal Tsemo修道院上空的银河 (© Panom Bounak/500px)](https://cdn.bimg.cc/bing/2016/OHR.MilkyWayLadakh_ZH-CN7734727282_1920x1080.jpg) 
 
 2016-04-16 | [弗吉尼亚州，谢南多厄国家公园，瀑布与苔藓 (© Oliver Gerhard/imageBROKER/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.ShenandoahNP_ZH-CN9981989975_1920x1080.jpg) 
 
-2016-04-15 | [西班牙，卡布·加塔自然公园，地中海潜泳的人 (© David Santiago Garcia/Aurora Photos)](https://cn.bing.com/th?id=OHR.CabodeGata_ZH-CN12858688851_UHD.jpg) 
+2016-04-15 | [西班牙，卡布·加塔自然公园，地中海潜泳的人 (© David Santiago Garcia/Aurora Photos)](https://cdn.bimg.cc/bing/2016/OHR.CabodeGata_ZH-CN12858688851_1920x1080.jpg) 
 
-2016-04-14 | [法国，巴黎圣拉扎尔火车站 (© Hal Bergman/Getty Images)](https://cn.bing.com/th?id=OHR.GareSaintLazare_ZH-CN6611772290_UHD.jpg) 
+2016-04-14 | [法国，巴黎圣拉扎尔火车站 (© Hal Bergman/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.GareSaintLazare_ZH-CN6611772290_1920x1080.jpg) 
 
 2016-04-13 | [英国，伯恩利歌唱树雕塑的全景 (© Alan Novelli/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.SingingRingingTree_ZH-CN12497946624_1920x1080.jpg) 
 
 2016-04-12 | [纳米比亚乌加河的复合卫星图像 (© NASA)](https://cdn.bimg.cc/bing/2016/OHR.UgabRiver_ZH-CN9917952183_1920x1080.jpg) 
 
-2016-04-11 | [扎拉泉附近，约旦死海沿岸的岩洞 (© George Steinmetz/Corbis)](https://cn.bing.com/th?id=OHR.ZaraSpringCave_ZH-CN7466385031_UHD.jpg) 
+2016-04-11 | [扎拉泉附近，约旦死海沿岸的岩洞 (© George Steinmetz/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.ZaraSpringCave_ZH-CN7466385031_1920x1080.jpg) 
 
-2016-04-10 | [哥斯达黎加的咖啡豆芽 (© Istvan Kadar Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CoffeeSprouts_ZH-CN11927552809_UHD.jpg) 
+2016-04-10 | [哥斯达黎加的咖啡豆芽 (© Istvan Kadar Photography/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.CoffeeSprouts_ZH-CN11927552809_1920x1080.jpg) 
 
-2016-04-09 | [中国，大连的友好广场 (© Rob Whitworth/Getty Images)](https://cn.bing.com/th?id=OHR.FriendshipSquare_ZH-CN8820626148_UHD.jpg) 
+2016-04-09 | [中国，大连的友好广场 (© Rob Whitworth/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.FriendshipSquare_ZH-CN8820626148_1920x1080.jpg) 
 
 2016-04-08 | [上海交大徐汇校区老图书馆 (© Xin Du)](https://cdn.bimg.cc/bing/2016/OHR.OldLibrary_ZH-CN12553861473_1920x1080.jpg) 
 
@@ -7749,7 +7749,7 @@
 
 2016-04-05 | [墨西哥，奈卡水晶洞的巨大亚硒酸盐晶体 (© Carsten Peter/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.Selenite_ZH-CN9667731332_1920x1080.jpg) 
 
-2016-04-04 | [【今日清明】云栖凉亭（© Andy Brandl/Getty Images）](https://cn.bing.com/th?id=OHR.YunqiPagoda_ZH-CN8617576614_UHD.jpg) 
+2016-04-04 | [【今日清明】云栖凉亭（© Andy Brandl/Getty Images）](https://cdn.bimg.cc/bing/2016/OHR.YunqiPagoda_ZH-CN8617576614_1920x1080.jpg) 
 
 2016-04-03 | [电子显微镜下的球霞石图像 (© Science Photo Library)](https://cdn.bimg.cc/bing/2016/OHR.CaCO3_ZH-CN8070420833_1920x1080.jpg) 
 
@@ -7763,11 +7763,11 @@
 
 2016-03-29 | [瑞士，巴塞尔会展中心的建筑局部 (© View Pictures/REX Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.MesseHall_ZH-CN8032841463_1920x1080.jpg) 
 
-2016-03-28 | [埃塞俄比亚，宽干谷的温泉 (© Kazuyoshi Nomachi/Corbis)](https://cn.bing.com/th?id=OHR.DallolEthiopia_ZH-CN11253814939_UHD.jpg) 
+2016-03-28 | [埃塞俄比亚，宽干谷的温泉 (© Kazuyoshi Nomachi/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.DallolEthiopia_ZH-CN11253814939_1920x1080.jpg) 
 
 2016-03-27 | [日本广岛大久野岛（兔子岛）的小野兔 (© Yukihiro Fukuda/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.RabbitIsland_ZH-CN10320047201_1920x1080.jpg) 
 
-2016-03-26 | [西班牙，巴斯克自治区，贝尔梅奥，圣胡安Gaztelugatxe (© Mimadeo/Shutterstock)](https://cn.bing.com/th?id=OHR.Gaztelugatxe_ZH-CN11078922437_UHD.jpg) 
+2016-03-26 | [西班牙，巴斯克自治区，贝尔梅奥，圣胡安Gaztelugatxe (© Mimadeo/Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.Gaztelugatxe_ZH-CN11078922437_1920x1080.jpg) 
 
 2016-03-25 | [北冰洋中游泳的海象 (© Fabrice Simon/Corbis)](https://cdn.bimg.cc/bing/2016/OHR.UnderwaterWalrus_ZH-CN9352535771_1920x1080.jpg) 
 
@@ -7781,7 +7781,7 @@
 
 2016-03-20 | [初放的番红花 (© suterscher/iStock/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.CrocusTL_ZH-CN8515008680_1920x1080.jpg) 
 
-2016-03-19 | [法国， 南科西嘉，靠近 Sanguinary群岛的鱼塘 (© Stephane Lemaire/Getty Images)](https://cn.bing.com/th?id=OHR.FishParkCorsica_ZH-CN11289010888_UHD.jpg) 
+2016-03-19 | [法国， 南科西嘉，靠近 Sanguinary群岛的鱼塘 (© Stephane Lemaire/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.FishParkCorsica_ZH-CN11289010888_1920x1080.jpg) 
 
 2016-03-18 | [水中的幼年青蛙 (© Adhi Prayoga/REX Shutterstock)](https://cdn.bimg.cc/bing/2016/OHR.FrogTadpole_ZH-CN10186824604_1920x1080.jpg) 
 
@@ -7791,23 +7791,23 @@
 
 2016-03-15 | [葡萄牙，坐落在科尔沃岛上的Caldeirão火山口 (© Samuel Domingues/500px)](https://cdn.bimg.cc/bing/2016/OHR.AzoresPortugal_ZH-CN12684313303_1920x1080.jpg) 
 
-2016-03-14 | [苏格兰，科诺堪岩崖，乔·史密斯的“全球”雕塑 (© Mar Photographics/Alamy)](https://cn.bing.com/th?id=OHR.GlobeSculpture_ZH-CN14987283809_UHD.jpg) 
+2016-03-14 | [苏格兰，科诺堪岩崖，乔·史密斯的“全球”雕塑 (© Mar Photographics/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.GlobeSculpture_ZH-CN14987283809_1920x1080.jpg) 
 
 2016-03-13 | [加拿大，不列颠哥伦比亚省，大熊雨林的灰熊 (© Jack Chapman/Minden Pictures)](https://cdn.bimg.cc/bing/2016/OHR.GreatBearRainforest_ZH-CN9137026528_1920x1080.jpg) 
 
 2016-03-12 | [日本，十日町，山毛榉森林 (© JTB Photo/age fotostock)](https://cdn.bimg.cc/bing/2016/OHR.TokamichiBeechForest_ZH-CN9795569723_1920x1080.jpg) 
 
-2016-03-11 | [在冰枝上休憩的雄松莺 (© Rolf Nussbaumer Photography/Alamy)](https://cn.bing.com/th?id=OHR.PineWarbler_ZH-CN8925328026_UHD.jpg) 
+2016-03-11 | [在冰枝上休憩的雄松莺 (© Rolf Nussbaumer Photography/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.PineWarbler_ZH-CN8925328026_1920x1080.jpg) 
 
-2016-03-10 | [上海，豫园，龙灯 (© Carols Barria/Reuters)](https://cn.bing.com/th?id=OHR.DragonHeadsRaising_ZH-CN9424180768_UHD.jpg) 
+2016-03-10 | [上海，豫园，龙灯 (© Carols Barria/Reuters)](https://cdn.bimg.cc/bing/2016/OHR.DragonHeadsRaising_ZH-CN9424180768_1920x1080.jpg) 
 
-2016-03-09 | [帕劳附近的红树林 (© WaterFrame/Alamy)](https://cn.bing.com/th?id=OHR.MangroveRoots_ZH-CN10720576635_UHD.jpg) 
+2016-03-09 | [帕劳附近的红树林 (© WaterFrame/Alamy)](https://cdn.bimg.cc/bing/2016/OHR.MangroveRoots_ZH-CN10720576635_1920x1080.jpg) 
 
 2016-03-08 | [土耳其，伊兹密尔，Konak的女子侧脸轮廓纪念墙 (© Cem Oksuz/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.IzmirFaceWall_ZH-CN8661261728_1920x1080.jpg) 
 
-2016-03-07 | [俄勒冈，塞巴斯蒂安州立公园的景观走道，满天繁星，海水闪烁 (© David Pasillas/500px)](https://cn.bing.com/th?id=OHR.CapeSebastian_ZH-CN9469145123_UHD.jpg) 
+2016-03-07 | [俄勒冈，塞巴斯蒂安州立公园的景观走道，满天繁星，海水闪烁 (© David Pasillas/500px)](https://cdn.bimg.cc/bing/2016/OHR.CapeSebastian_ZH-CN9469145123_1920x1080.jpg) 
 
-2016-03-06 | [纽约，曼哈顿，第一大道上的建筑外墙 (© Johnér/Offset)](https://cn.bing.com/th?id=OHR.FireEscapes_ZH-CN9251582421_UHD.jpg) 
+2016-03-06 | [纽约，曼哈顿，第一大道上的建筑外墙 (© Johnér/Offset)](https://cdn.bimg.cc/bing/2016/OHR.FireEscapes_ZH-CN9251582421_1920x1080.jpg) 
 
 2016-03-05 | [葡萄牙，马德拉月桂树公园的月桂树 (© Frank Krahmer/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.LaurelMoss_ZH-CN9578543974_1920x1080.jpg) 
 
