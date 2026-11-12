@@ -12,10 +12,6 @@ public class Images {
     private String date;
     private String url;
 
-    /**
-     * 拼接图片地址的查询参数。必应 CDN（cdn.bimg.cc）的静态地址本身不带 ?，
-     * 直接补 & 会 404，因此这里按地址里是否已有 ? 决定分隔符。
-     */
     public static String withParams(String url, String params) {
         if (url == null) {
             return null;

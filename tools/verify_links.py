@@ -1,24 +1,5 @@
 #!/usr/bin/env python3
 # -*- coding: utf-8 -*-
-"""
-检查 bing-wallpaper.md 里每条记录的图片地址是否还能打开，失效的自动换成官方 CDN 地址。
-
-必应只在 cn.bing.com 上长期保留最近几年的图，更早的图大多仍可用官方 CDN
-（cdn.bimg.cc/bing/{年}/OHR.xxx_1920x1080.jpg）访问，本脚本按下列顺序回退：
-
-  1. cn.bing.com/th?id={id}_UHD.jpg          （原地址，4K）
-  2. cdn.bimg.cc/bing/{年}/{id}_1920x1080.jpg （官方 CDN，1080P）
-  3. cdn.bimg.cc/bing/{年}/{id}_UHD.jpg       （官方 CDN，4K，老图通常已清理）
-
-探测方式：`curl -r 0-0`（Range 只取 1 字节）。可用地址返回 206，通常 1 秒内返回；
-失效地址要么 404，要么一直挂到超时，据此判断，不会把失败误判成可用。
-
-用法：
-  python tools/verify_links.py --check         # 只统计，不改文件
-  python tools/verify_links.py                 # 检查 + 改写 + 重新生成页面
-  python tools/verify_links.py --no-generate   # 只改写 bing-wallpaper.md
-  python tools/verify_links.py --refresh       # 忽略缓存重新探测
-"""
 
 import argparse
 import concurrent.futures as futures

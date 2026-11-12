@@ -1,18 +1,5 @@
 #!/usr/bin/env python3
 # -*- coding: utf-8 -*-
-"""
-把必应官方每日壁纸归档补齐到 bing-wallpaper.md（只增不改，已有日期一律保留原记录）。
-
-数据来源：cn.bing.com（zh-CN）每日壁纸归档
-  https://api.github.com/repos/flow2000/bing-wallpaper-api/contents/data/zh-CN_all.json
-  （该归档与 cn.bing.com/th?id=OHR.* 一一对应；可回溯到 2016-03-05，
-    这也是必应中文站每日一图公开可查的最早日期）
-
-用法：
-  python tools/backfill_from_archive.py                    # 联网拉取归档后补齐
-  python tools/backfill_from_archive.py --archive x.json   # 用本地已下载的归档文件
-  python tools/backfill_from_archive.py --dry-run          # 只统计不写文件
-"""
 
 import argparse
 import json

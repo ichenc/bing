@@ -30,9 +30,7 @@ public class HtmlConstant {
      * 头部图片
      */
     public static class Head{
-        /** 头部小图（模糊占位，w=100） */
         public static final String HEAD_IMG_SMALL = "${head_img_small}";
-        /** 头部大图（w=2000） */
         public static final String HEAD_IMG_BIG = "${head_img_big}";
         public static final String HEAD_IMG_DESC = "${head_img_desc}";
         public static final String HEAD_TITLE = "${head_title}";

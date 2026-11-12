@@ -117,23 +117,12 @@ public class BingFileUtils {
         writeFile(README_PATH, imagesList, null);
 
         Files.write(README_PATH, System.lineSeparator().getBytes(), StandardOpenOption.APPEND);
-        // 归档：一年一行，月份用 · 分隔
         Files.write(README_PATH, "### 历史归档：".getBytes(), StandardOpenOption.APPEND);
         Files.write(README_PATH, System.lineSeparator().getBytes(), StandardOpenOption.APPEND);
         Files.write(README_PATH, System.lineSeparator().getBytes(), StandardOpenOption.APPEND);
         Files.write(README_PATH, buildArchiveTable(imgList).getBytes(), StandardOpenOption.APPEND);
     }
 
-    /**
-     * 生成按月归档表格。
-     *
-     * <p>旧写法是把 {@code [2026-11](/picture/2026-11/) | } 每 8 个硬换行，
-     * 在 GitHub 上会出现“管道符悬空 + 日期被拦腰折断（2026 / 年2月）”的排版问题，
-     * 这里改成表格：一年一行，月份按升序排列，换行只发生在月份之间。
-     *
-     * @param imgList 图片列表（新 -> 旧）
-     * @return Markdown 表格
-     */
     private static String buildArchiveTable(List<Images> imgList) {
         List<String> months = new ArrayList<>();
         for (Images images : imgList) {

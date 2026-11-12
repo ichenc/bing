@@ -1,15 +1,5 @@
 #!/usr/bin/env python3
 # -*- coding: utf-8 -*-
-"""
-本仓库静态资源的生成器（Python 版，行为与 src/main/java 下的 Java 生成逻辑一致）。
-
-用途：
-  1. 校验：`python tools/generate.py --check-new-format` 前后对比，确认生成结果与仓库现有文件一致；
-  2. 重建：`python tools/generate.py` 依据 bing-wallpaper.md 重新生成 README.md、
-     picture/YYYY-MM/README.md 与 docs/*.html。
-
-仅依赖标准库，方便在没有 JDK / Maven 的环境下快速重建站点。
-"""
 
 import argparse
 import os

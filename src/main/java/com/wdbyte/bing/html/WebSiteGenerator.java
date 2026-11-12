@@ -87,8 +87,6 @@ public class WebSiteGenerator {
      * @return
      */
     public String replaceHead(String html, Images images, String month) {
-        // 老图在 cn.bing.com 上已被清理，会换成 cdn.bimg.cc 的静态地址，
-        // 这类地址本身没有 ?，所以查询参数要按情况用 ? 或 &（见 Images.withParams）。
         html = html.replace(Head.HEAD_IMG_SMALL, Images.withParams(images.getUrl(), "pid=hp&w=100"));
         html = html.replace(Head.HEAD_IMG_BIG, Images.withParams(images.getUrl(), "pid=hp&w=2000"));
         html = html.replace(Head.HEAD_IMG_DESC, images.getDesc());
