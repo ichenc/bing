@@ -20,11 +20,12 @@ public class Images {
     }
 
     /**
-     * cdn.bimg.cc 的静态存档地址不识别 w/h 参数，缩放无效，
+     * cdn.bimg.cc、bing.ee123.net 的静态存档地址不识别 w/h 参数，缩放无效，
      * 大小图会是同一张 1080P，此时复用同一地址避免重复下载。
      */
     public static boolean isStaticCdn(String url) {
-        return url != null && url.startsWith("https://cdn.bimg.cc/");
+        return url != null
+            && (url.startsWith("https://cdn.bimg.cc/") || url.startsWith("https://bing.ee123.net/"));
     }
 
     /**

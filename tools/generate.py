@@ -65,10 +65,10 @@ def with_params(url, params):
 def src_pair(url, small_params, big_params):
     """返回 (小图地址, 大图地址)。
 
-    cdn.bimg.cc 的静态地址不识别 w/h 参数，缩放无效，大小图会是同一张 1080P；
+    cdn.bimg.cc 与 bing.ee123.net 的静态地址不识别 w/h 参数，缩放无效，大小图会是同一张；
     此时两处复用同一地址，浏览器只下载一次。
     """
-    if url.startswith("https://cdn.bimg.cc/"):
+    if url.startswith(("https://cdn.bimg.cc/", "https://bing.ee123.net/")):
         return url, url
     return with_params(url, small_params), with_params(url, big_params)
 

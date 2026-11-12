@@ -7811,3 +7811,4513 @@
 
 2016-03-05 | [葡萄牙，马德拉月桂树公园的月桂树 (© Frank Krahmer/Getty Images)](https://cdn.bimg.cc/bing/2016/OHR.LaurelMoss_ZH-CN9578543974_1920x1080.jpg) 
 
+2016-03-04 | [华盛顿州，温思罗普气球节上正在充气的热气球 (© Muraleedharan Raghavan)](https://bing.ee123.net/img/cn/fhd/2016/03/04.jpg) 
+
+2016-03-03 | [比利时，生长在Meerdaal的杏黄小菇 (© Danny Lap/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/03/03.jpg) 
+
+2016-03-02 | [瑞士，伯尔尼兹阿尔卑斯山脉的少女峰山坳车站 (© Markus Eichenberger Photo/Nimia)](https://bing.ee123.net/img/cn/fhd/2016/03/02.jpg) 
+
+2016-03-01 | [英国，格罗斯特郡，迪恩森林里的野猪与小猪 (© NPL/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/03/01.jpg) 
+
+2016-02-29 | [一只跳跃中的Henkel叶尾壁虎 (© Stephen Dalton/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/02/29.jpg) 
+
+2016-02-28 | [冰岛，辛格韦德利国家公园的火山口 (© Ragnar Th Sigurdsson/Alamy)](https://bing.ee123.net/img/cn/fhd/2016/02/28.jpg) 
+
+2016-02-27 | [加拿大，哈德逊湾，小北极熊在玩耍 (© Meril D & Manon M/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/02/27.jpg) 
+
+2016-02-26 | [西班牙，巴塞罗那，米拉之家 (© Nora De Angelli/500px)](https://bing.ee123.net/img/cn/fhd/2016/02/26.jpg) 
+
+2016-02-25 | [冰岛海岸上空的极光 (© Babak Tafreshi/Nimia)](https://bing.ee123.net/img/cn/fhd/2016/02/25.jpg) 
+
+2016-02-24 | [高山滑雪，滑雪板在转弯时溅起粉末 (© Jeff Curtes/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2016/02/24.jpg) 
+
+2016-02-23 | [中国，陕西省，华山 (© Tao Ming/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/02/23.jpg) 
+
+2016-02-22 | [中国，四川，成都，美丽的锦里古街 (© Kiszon Pascal/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2016/02/22.jpg) 
+
+2016-02-21 | [新西兰，怀托莫萤火虫洞 (© Fabian Ebi/500px)](https://bing.ee123.net/img/cn/fhd/2016/02/21.jpg) 
+
+2016-02-20 | [澳大利亚，墨尔本，白夜节 (© John W Banagan/Getty Images)](https://bing.ee123.net/img/cn/fhd/2016/02/20.jpg) 
+
+2016-02-19 | [［今日雨水］澳大利亚，阿德莱德，一只青蛙紧抱着枝梢 (© Rob Sturman/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/02/19.jpg) 
+
+2016-02-18 | [NASA新视野号宇宙飞船拍摄的一张色彩增强的冥王星照片 (© NASA/JHUAPL/SwRI)](https://bing.ee123.net/img/cn/fhd/2016/02/18.jpg) 
+
+2016-02-17 | [加利福尼亚，连接着马林郡的金门大桥 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/02/17.jpg) 
+
+2016-02-16 | [埃塞俄比亚，拉利贝拉古城，妇女出现在通往Bet Amanue教堂的地道口 (© Andrew McConnell/plainpicture)](https://bing.ee123.net/img/cn/fhd/2016/02/16.jpg) 
+
+2016-02-15 | [德国，巴伐利亚，Allg?u，Eistobel峡谷的冰柱 (© Claus Puhlmann/500px)](https://bing.ee123.net/img/cn/fhd/2016/02/15.jpg) 
+
+2016-02-14 | [［情人节快乐］日本，北海道，丹顶鹤在舞蹈 (© Paul McKenzie/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/02/14.jpg) 
+
+2016-02-13 | [斯洛文尼亚，布莱德湖 (© Dan Briski/500px)](https://bing.ee123.net/img/cn/fhd/2016/02/13.jpg) 
+
+2016-02-12 | [津巴布韦，万基国家公园的雄狮 (© Jeremy Woodhouse/Getty Images)](https://bing.ee123.net/img/cn/fhd/2016/02/12.jpg) 
+
+2016-02-11 | [奥地利，萨尔兹河 (© T Schäffer/age fotostock)](https://bing.ee123.net/img/cn/fhd/2016/02/11.jpg) 
+
+2016-02-10 | [美国，关岛，蓝洞入口处的潜水者 (© Aflo Relax/Masterfile)](https://bing.ee123.net/img/cn/fhd/2016/02/10.jpg) 
+
+2016-02-09 | [欧亚红松鼠正在行动 (© Vadim Trunov/Solent News/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/02/09.jpg) 
+
+2016-02-08 | [中国，秦岭，小金丝猴 (© Nate Polta/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2016/02/08.jpg) 
+
+2016-02-07 | [［今日除夕］中国，香港，农历新年贴门联 (© Ulana Switucha/Alamy Stock Photo)](https://bing.ee123.net/img/cn/fhd/2016/02/07.jpg) 
+
+2016-02-06 | [意大利，靠近阿普里卡，Pian Gembro 自然保护区的迷雾沼泽 (© Robert Harding World Imagery/Offset)](https://bing.ee123.net/img/cn/fhd/2016/02/06.jpg) 
+
+2016-02-05 | [美国，威斯康星州，在鹰河镇金湖上举办的美国池塘曲棍球全国锦标赛 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/02/05.jpg) 
+
+2016-02-04 | [英格兰，德比郡，克隆福德，韦勒斯利城堡内景 (© Design Pics/plainpicture)](https://bing.ee123.net/img/cn/fhd/2016/02/04.jpg) 
+
+2016-02-03 | [泰国，曼谷，高速公路延时摄影 (© Imaake/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/02/03.jpg) 
+
+2016-02-02 | [欧洲地松鼠 (© Gerard Kummer/500px)](https://bing.ee123.net/img/cn/fhd/2016/02/02.jpg) 
+
+2016-02-01 | [［今日小年］ 下雪的村庄 (© Libby Zhang/500px)](https://bing.ee123.net/img/cn/fhd/2016/02/01.jpg) 
+
+2016-01-31 | [美国，夏威夷，瓦胡岛上的H3州际公路 (© Royce Bair/Getty Images)](https://bing.ee123.net/img/cn/fhd/2016/01/31.jpg) 
+
+2016-01-30 | [在古老柏树上搭起吊床露营 (© Mac Stone/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2016/01/30.jpg) 
+
+2016-01-29 | [中国，新疆，俯瞰吐鲁番盆地上的河谷 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/01/29.jpg) 
+
+2016-01-28 | [从国际空间站上拍摄的星流和地球图片 (© NASA/JSC/Science Photo Library)](https://bing.ee123.net/img/cn/fhd/2016/01/28.jpg) 
+
+2016-01-27 | [马达加斯加，昂达西贝国家公园，正在模仿树叶的叶尾壁虎 (© Thomas Marent/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/01/27.jpg) 
+
+2016-01-26 | [澳大利亚，乌鲁鲁，艾尔斯岩 (© Lachlan Fennen/500px)](https://bing.ee123.net/img/cn/fhd/2016/01/26.jpg) 
+
+2016-01-25 | [挪威，挪威峡湾 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2016/01/25.jpg) 
+
+2016-01-24 | [南极洲，华盛顿海峡，帝企鹅 (© Steve Bloom Images/Alamy)](https://bing.ee123.net/img/cn/fhd/2016/01/24.jpg) 
+
+2016-01-23 | [日本，福岛，冬天的甜柿树 (© Jyun Ogawa/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/01/23.jpg) 
+
+2016-01-22 | [塞舌尔，阿尔达布拉，潮汐水道的鸟瞰图 (© Wil Meinderts/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/01/22.jpg) 
+
+2016-01-21 | [哥斯达黎加，三趾树懒 (© Tilo G/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/01/21.jpg) 
+
+2016-01-20 | [［今日大寒］中国，四川省，黄龙，黄龙后寺，五彩池 (© JTB MEDIA CREATION, Inc./Alamy Stock Photo)](https://bing.ee123.net/img/cn/fhd/2016/01/20.jpg) 
+
+2016-01-19 | [格鲁吉亚，卡赫季州，Davit Gareja修道院群 (© Wiktor Bubniak/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/01/19.jpg) 
+
+2016-01-18 | [英国，雪墩山，丽茵 埃德沃尔湖面上的冰 (© Graham Eaton/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2016/01/18.jpg) 
+
+2016-01-17 | [美国，蒙大拿州，怀特菲什的雪山 (© Tetra Images/Offset)](https://bing.ee123.net/img/cn/fhd/2016/01/17.jpg) 
+
+2016-01-16 | [阿联酋，迪拜，香料市集上的干花与草药 (© Peter Adams/Offset)](https://bing.ee123.net/img/cn/fhd/2016/01/16.jpg) 
+
+2016-01-15 | [克罗地亚，普利特维切国家公园冬日瀑布 (© Nate Polta/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2016/01/15.jpg) 
+
+2016-01-14 | [埃德沃德 ·?迈布里奇的无声短片:飞驰中的萨利·加德纳 (© Eadweard Muybridge/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/01/14.jpg) 
+
+2016-01-13 | [丹麦，奥胡斯，奥尔胡斯现代艺术博物馆，“你的彩虹全景照”装置艺术，奥拉维尔·埃利亚松 (© R. Ian Lloyd/Masterfile)](https://bing.ee123.net/img/cn/fhd/2016/01/13.jpg) 
+
+2016-01-12 | [意大利，罗马，成束的毛线染织品 (© Ron Koeberer/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2016/01/12.jpg) 
+
+2016-01-11 | [波兰，比亚沃维耶扎原始森林中的?utownia河 (© Johan Hammar/Naturbid/plainpicture)](https://bing.ee123.net/img/cn/fhd/2016/01/11.jpg) 
+
+2016-01-10 | [所罗门群岛附近的蝠鲼 (© Don Silcock/Cultura/plainpicture)](https://bing.ee123.net/img/cn/fhd/2016/01/10.jpg) 
+
+2016-01-09 | [加拿大，卡那那斯基，艾伯塔-落基山脉 (© Victor Liu/Solent News/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/01/09.jpg) 
+
+2016-01-08 | [法国，侏罗山区的小白鼬 (© Biosphoto/SuperStock)](https://bing.ee123.net/img/cn/fhd/2016/01/08.jpg) 
+
+2016-01-07 | [摩洛哥，马扎甘葡萄牙城 (© Michele Falzone/AWL/plainpicture)](https://bing.ee123.net/img/cn/fhd/2016/01/07.jpg) 
+
+2016-01-06 | [［今日小寒］中国，安徽，晨雾中的黄山 (© KingWu/iStock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2016/01/06.jpg) 
+
+2016-01-05 | [美国，明尼苏达州，明尼阿波利斯市的红翅黑鹂 (© Ian Plant/Solent News/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2016/01/05.jpg) 
+
+2016-01-04 | [玻利维亚，红湖，沙暴卷起漩涡 (© Dordo Brnobic/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/01/04.jpg) 
+
+2016-01-03 | [图坦卡门法老面具 (© Sandro Vannini/Corbis)](https://bing.ee123.net/img/cn/fhd/2016/01/03.jpg) 
+
+2016-01-02 | [美国，纽约，中央公园里的盖普斯托拱桥 (© johnandersonphoto/iStock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2016/01/02.jpg) 
+
+2016-01-01 | [正在潜水的北极熊 (© Sergei Gladyshev/500px)](https://bing.ee123.net/img/cn/fhd/2016/01/01.jpg) 
+
+2015-12-31 | [奥地利，萨尔兹堡的烟花和雾气 (© Franz Pritz/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/31.jpg) 
+
+2015-12-30 | [德国， 哈尔茨山脉的布罗肯铁路 (© Rudi Sebastian/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/12/30.jpg) 
+
+2015-12-29 | [美国，犹他州，尤因国家森林公园的美洲狮幼崽 (© Kevin Schafer/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/12/29.jpg) 
+
+2015-12-28 | [日本，京都，岚山，嵯峨野竹林 (© JTB Photo Communications, Inc./age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/12/28.jpg) 
+
+2015-12-27 | [法国，穿过梅康图尔国家公园的Col de la山 (© Mathieu Rivrin/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/27.jpg) 
+
+2015-12-26 | [英格兰，纳尔斯伯勒 (© Steven Hunt/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/12/26.jpg) 
+
+2015-12-25 | [芬兰，靠近奥卢的驯鹿 (© Juan Carlos Muñoz/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/12/25.jpg) 
+
+2015-12-24 | [美国，阿拉斯加，靠近朱诺的Amalga港 (© Mark Kelley/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/12/24.jpg) 
+
+2015-12-23 | [日本，北海道，欧亚红松鼠 (© stock_shot/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/12/23.jpg) 
+
+2015-12-22 | [［冬至快乐］ 四川省，乐山市，峨眉山云海 (© lop5712/iStock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/22.jpg) 
+
+2015-12-21 | [加拿大，温哥华，不列颠哥伦比亚，温哥华植物园的圣诞赏灯 (© Michael Wheatley/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/12/21.jpg) 
+
+2015-12-20 | [德国，不伦瑞克的圣诞市场 (© Patrice von Collani/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/12/20.jpg) 
+
+2015-12-19 | [加拿大，艾伯塔省，贾斯珀国家公园 (© Daryl Benson/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/12/19.jpg) 
+
+2015-12-18 | [美国，北卡罗来纳州，宰恩斯维尔的圣诞树农场 (© Coke Whitworth/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/12/18.jpg) 
+
+2015-12-17 | [加拿大，结冰的哈德逊湾，北极熊妈妈和她的宝宝 (© Kike Calvo/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/12/17.jpg) 
+
+2015-12-16 | [奥地利，萨尔茨堡老城 (© Jochen Tack/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/12/16.jpg) 
+
+2015-12-15 | [美国，怀俄明州，黄石国家公园，诺里斯间歇泉盆地 (© Gerald & Buff Corsi/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2015/12/15.jpg) 
+
+2015-12-14 | [英格兰，多塞特郡，薄雾笼罩在日出时分的科夫堡 (© Mark Bauer/LOOP IMAGES/Loop Images/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/12/14.jpg) 
+
+2015-12-13 | [中国，上海，荷叶 (© Sino Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/13.jpg) 
+
+2015-12-12 | [印度尼西亚，靠近东爪哇的喇旺小镇 (© Nat Wimolsiri/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/12/12.jpg) 
+
+2015-12-11 | [一只正在散步的针鼹鼠 (© John Kirk/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/11.jpg) 
+
+2015-12-10 | [巴西，潘塔纳尔，树梢穿过薄雾依次排开 (© Bobby Haas/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/10.jpg) 
+
+2015-12-09 | [美国，罗得岛州，克莱本佩尔新港桥和纽波特港口之光 (© Denis Tangney Jr./Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/09.jpg) 
+
+2015-12-08 | [厄瓜多尔，加拉帕戈群岛，海狮游过鱼群 (© David Fleetham/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2015/12/08.jpg) 
+
+2015-12-07 | [［今日大雪］ 加拿大，新斯科舍省，贝尔河附近的哀鸽 (© Scott Leslie/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/12/07.jpg) 
+
+2015-12-06 | [纳米比亚，基特曼斯胡普附近的箭袋树森林 (© Barry Lewis/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/12/06.jpg) 
+
+2015-12-05 | [静坐着的狮尾狒: 林中精灵 (© Pavel Bla?ek/500px)](https://bing.ee123.net/img/cn/fhd/2015/12/05.jpg) 
+
+2015-12-04 | [冰岛， 因戈尔夫海岬的黑沙滩 (© Nigel Hicks/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/04.jpg) 
+
+2015-12-03 | [美国，堪萨斯州，欧弗兰帕克，燎原火博物馆 (© Derek Siagle/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/12/03.jpg) 
+
+2015-12-02 | [美国，阿拉斯加，基奈峡湾国家公园的熊冰川湖 (© Michael DeYoung/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/12/02.jpg) 
+
+2015-12-01 | [日本，金泽市，兼六园 (© JTB Media Creation, Inc./Alamy)](https://bing.ee123.net/img/cn/fhd/2015/12/01.jpg) 
+
+2015-11-30 | [美国，亚利桑那州，橡树溪峡谷的西叉小径 (© Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/11/30.jpg) 
+
+2015-11-29 | [英国，诺森伯兰郡，寒冬清晨的阿尼克城堡 (© Adam Burton/robertharding/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/11/29.jpg) 
+
+2015-11-28 | [罗马尼亚，盖拉里，高瓦斯蒂亚高炉 (© Grigore Roibu/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/11/28.jpg) 
+
+2015-11-27 | [法国，比利牛斯山脉，寒冬时节岩石上的比利牛斯臆羚 (© Biosphoto/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/11/27.jpg) 
+
+2015-11-26 | [厄瓜多尔，加拉帕戈斯群岛，费尔南迪纳岛，吃水藻的海鬣蜥 (© Tui De Roy/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/11/26.jpg) 
+
+2015-11-25 | [泰国，清迈，水灯节上放飞的天灯 (© Kevin Landwer-Johan/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/11/25.jpg) 
+
+2015-11-24 | [美国，蒙大拿州， 佩克堡水坝的管道 (© Margaret Bourke-White/The LIFE Picture Collection/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/24.jpg) 
+
+2015-11-23 | [［今日小雪］山西省，五台山，台怀镇，显通寺 (© Karl Johaentges/LOOK Die Bildagentur der Fotografen)](https://bing.ee123.net/img/cn/fhd/2015/11/23.jpg) 
+
+2015-11-22 | [加拿大，安大略省，苏必利尔湖省立公园 (© Don Johnston/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/11/22.jpg) 
+
+2015-11-21 | [美国内布拉斯加州，哥伦比亚猛犸象标本 (© Joel Sartore/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/21.jpg) 
+
+2015-11-20 | [瑞典，贝里斯拉根，雄黑琴鸡 (© E. Haarberg/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/11/20.jpg) 
+
+2015-11-19 | [中国，新疆，喀纳斯国家公园 (© zhouyousifang/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/19.jpg) 
+
+2015-11-18 | [冰岛，雷克雅未克 (© Arctic-Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/18.jpg) 
+
+2015-11-17 | [法国，巴黎，埃菲尔铁塔 (© Stefano Brozzi/SIME/4Corners)](https://bing.ee123.net/img/cn/fhd/2015/11/17.jpg) 
+
+2015-11-16 | [法国，巴黎，埃菲尔铁塔 (© Stefano Brozzi/SIME/4Corners)](https://bing.ee123.net/img/cn/fhd/2015/11/16.jpg) 
+
+2015-11-15 | [安哥拉和纳米比亚之间的埃普帕瀑布 (© Frank Tusch/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/11/15.jpg) 
+
+2015-11-14 | [澳大利亚，卡巴里国家公园，鲁普山的岩石层 (© R. Ian Lloyd/Masterfile)](https://bing.ee123.net/img/cn/fhd/2015/11/14.jpg) 
+
+2015-11-13 | [墨西哥，帕慈库罗湖上的哈尼古欧岛 (© Brian Overcast/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/11/13.jpg) 
+
+2015-11-12 | [美国，华盛顿州，怀特布拉福斯荒野 (© Jon Cornforth/Danita Delimont)](https://bing.ee123.net/img/cn/fhd/2015/11/12.jpg) 
+
+2015-11-11 | [澳大利亚南部，艾尔半岛，挂在斯利福德湾上空的银河 (© John White Photos/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/11.jpg) 
+
+2015-11-10 | [新加坡，牛车水航拍 (© Eddie Cheng/500px)](https://bing.ee123.net/img/cn/fhd/2015/11/10.jpg) 
+
+2015-11-09 | [委内瑞拉，卡塔通博闪电 (© TOURISM MINISTRY/Xinhua Press/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/11/09.jpg) 
+
+2015-11-08 | [［今日立冬］ 中国，吉林，雾凇与公路 (© Zhijun Sun/TAO Images Limited/Alamy Stock Photo)](https://bing.ee123.net/img/cn/fhd/2015/11/08.jpg) 
+
+2015-11-07 | [美国，俄勒冈州，哥伦比亚河谷皇冠点 (© JPL Designs/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/11/07.jpg) 
+
+2015-11-06 | [泰国，临近海岸的海葵 (© ThanakonHD/Creatas/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/06.jpg) 
+
+2015-11-05 | [丹麦，格陵兰岛，伊路利萨特冰湾 (© Stefan Eisend/Alamy Stock Photo)](https://bing.ee123.net/img/cn/fhd/2015/11/05.jpg) 
+
+2015-11-04 | [狩猎中的大灰猫头鹰 (© Jan Vermeer/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/11/04.jpg) 
+
+2015-11-03 | [美国，科罗拉多州，褐湖与褐铃山 (© Inge Johnsson/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/11/03.jpg) 
+
+2015-11-02 | [法国，巴黎，卢森堡花园 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/02.jpg) 
+
+2015-11-01 | [游戏《头骨：死亡之日》手办 (© Inti St. Clair/Blend Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/11/01.jpg) 
+
+2015-10-31 | [Happy Halloween! (© Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/31.jpg) 
+
+2015-10-30 | [美国，缅因州，克莱德港附近的马歇尔角灯塔 (© Stephen Ippolito/REX)](https://bing.ee123.net/img/cn/fhd/2015/10/30.jpg) 
+
+2015-10-29 | [加拿大西北地区，纳汉尼国家公园，南纳汉尼河 (© Daryl Benson/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/10/29.jpg) 
+
+2015-10-28 | [伦敦，里士满公园的雄性马鹿 (© Ian Schofield/Offset)](https://bing.ee123.net/img/cn/fhd/2015/10/28.jpg) 
+
+2015-10-27 | [美国，纽约，布鲁克林大桥-市政厅/商会街地铁站的天花板 (© Mick C./500px)](https://bing.ee123.net/img/cn/fhd/2015/10/27.jpg) 
+
+2015-10-26 | [中国，广西省，兴坪漓江 (© naes/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/10/26.jpg) 
+
+2015-10-25 | [葡萄牙，孔波塔，萨多海湾的捕鱼码头 (© Francesco Carovillano/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/10/25.jpg) 
+
+2015-10-24 | [垂柳 (© Rolf Nussbaumer Photography/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/10/24.jpg) 
+
+2015-10-23 | [法国，夏特尔，迷宫般的大教堂 (© Sylvain Sonnet/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/10/23.jpg) 
+
+2015-10-22 | [挪威，罗弗敦群岛，斯塔戈萨登海滩 (© imageBROKER/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/22.jpg) 
+
+2015-10-21 | [［重阳节快乐］ 美国，阿拉斯加，切格米特山脉和克拉克湖国家公园保护区 (© Ian Shive/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/10/21.jpg) 
+
+2015-10-20 | [澳大利亚，乌鲁鲁-卡塔曲塔国家公园的冠鸠 (© Photodigitall.nl/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/20.jpg) 
+
+2015-10-19 | [光学涂鸦 (© DI Mandl Alexander/Solent News/REX)](https://bing.ee123.net/img/cn/fhd/2015/10/19.jpg) 
+
+2015-10-18 | [美国，怀俄明州，大提顿国家公园的秋日山杨 (© Matt Anderson Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/10/18.jpg) 
+
+2015-10-17 | [美国，纽约城，熨斗大厦 (© Tony Shi Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/10/17.jpg) 
+
+2015-10-16 | [纳米比亚，埃托沙国家公园内打架中的两只好望角大羚羊 (© Johan Swanepoel/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/16.jpg) 
+
+2015-10-15 | [瑞典，萨瑞克国家公园内的拉帕河三角洲 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/10/15.jpg) 
+
+2015-10-14 | [菲律宾，薄荷岛，眼镜猴正在休息 (© Deddeda/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/10/14.jpg) 
+
+2015-10-13 | [希腊，威尼斯港及哈尼亚老城 (© Hercules Milas/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/10/13.jpg) 
+
+2015-10-12 | [美国，犹他州，罗雅尔峡谷上的岩画 (© Gary Whitton/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/10/12.jpg) 
+
+2015-10-11 | [法国，滨海卡约的木栈道 (© Bryant Nicolas/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/10/11.jpg) 
+
+2015-10-10 | [科隆群岛，圣地亚哥岛的火山口 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/10/10.jpg) 
+
+2015-10-09 | [悬挂在卵叶青藓上的露水 (© Duncan Usher/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/10/09.jpg) 
+
+2015-10-08 | [［今日寒露］ 中国，江西，婺源，晨雾与阳光 (© Ping Yan/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/08.jpg) 
+
+2015-10-07 | [厄瓜多尔，亚苏尼国家公园，纳波河，蚕蛾 (© Pete Oxford/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/10/07.jpg) 
+
+2015-10-06 | [中国，桂林，象鼻山 (© Ajancso/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/06.jpg) 
+
+2015-10-05 | [德国，巴伐利亚，法兰克瑞士，普雷茨费尔德上空的彩虹 (© Dr. Rüdiger Hess/geo-select fotoArt)](https://bing.ee123.net/img/cn/fhd/2015/10/05.jpg) 
+
+2015-10-04 | [船底座星云 (© NASA, ESA, N. Smith ［University of California, Berkeley］, and the Hubble Heritage Team ［STScI/AURA］)](https://bing.ee123.net/img/cn/fhd/2015/10/04.jpg) 
+
+2015-10-03 | [美国，纽约，哈德逊山谷秋天的落叶 (© Corbis)](https://bing.ee123.net/img/cn/fhd/2015/10/03.jpg) 
+
+2015-10-02 | [新加坡，小印度，一栋建筑的彩色立面 (© Blue Sky Studio/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/02.jpg) 
+
+2015-10-01 | [［国庆快乐］ 中国，四川，成都，礼花在黄龙溪古镇上空绽放。 (© Sipa Press/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/10/01.jpg) 
+
+2015-09-30 | [美国，亚利桑那州和内华达州边界上的胡佛水坝 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/09/30.jpg) 
+
+2015-09-29 | [NASA好奇号火星探测器 (© NASA/JPL-Caltech/MSSS)](https://bing.ee123.net/img/cn/fhd/2015/09/29.jpg) 
+
+2015-09-28 | [通往夏威夷大岛，冒纳凯阿火山的公路 (© Gary S. Chapman/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/09/28.jpg) 
+
+2015-09-27 | [［中秋快乐］ 北京，月亮从颐和园的十七拱桥上升起 (© Grant Fant/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/27.jpg) 
+
+2015-09-26 | [美国，西弗吉尼亚州，位于黑水瀑布州立公园的艾拉卡拉瀑布 (© Randall Sanger/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/09/26.jpg) 
+
+2015-09-25 | [日本小鼯鼠 (© Shiroh Yabe/SEBUN PHOTO/amanaimages/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/09/25.jpg) 
+
+2015-09-24 | [印度，拉贾斯坦邦，焦特布尔 (© Lucas Vallecillos/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/09/24.jpg) 
+
+2015-09-23 | [［今日秋分］ 新疆，阿勒泰，阳光划过晨雾 (© Allensima/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/23.jpg) 
+
+2015-09-22 | [新西兰，北岛，玛塔玛塔附近，霍比屯 (© imageBROKER/Rex Features)](https://bing.ee123.net/img/cn/fhd/2015/09/22.jpg) 
+
+2015-09-21 | [墨西哥，格雷罗州，伊斯塔帕，紫水母 (© Christian Vizl/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/09/21.jpg) 
+
+2015-09-20 | [冰岛，米湖附近的温泉洞 (© Joerg Abendroth/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/09/20.jpg) 
+
+2015-09-19 | [德国，慕尼黑，啤酒节帐篷内景 (© WRIGHT/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/09/19.jpg) 
+
+2015-09-18 | [俄罗斯，雅库特，紫龙晶截面 (© Bernardo Cesare/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/09/18.jpg) 
+
+2015-09-17 | [西班牙，塞哥维亚 (© Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/09/17.jpg) 
+
+2015-09-16 | [美国，犹他州，圆顶礁国家公园上空的银河 (© Dave Lane/NASA)](https://bing.ee123.net/img/cn/fhd/2015/09/16.jpg) 
+
+2015-09-15 | [中国，坝上草原上的桦树 (© Aaron Ng Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/15.jpg) 
+
+2015-09-14 | [枝头上的黑枕王鹟 (© kajornyot/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/09/14.jpg) 
+
+2015-09-13 | [德国，黑尔戈兰岛，灰海豹 (© Robert Harding Picture Library/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/09/13.jpg) 
+
+2015-09-12 | [西班牙，靠近昆卡的潟湖 (© David Santiago Garcia/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/09/12.jpg) 
+
+2015-09-11 | [法国，朗格多克-鲁西永，塞文山脉国家公园，塔尔恩峡谷 (© Jan Wlodarczyk/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/09/11.jpg) 
+
+2015-09-10 | [［教师节：孤独求索，勇敢前行］ 越南，丰芽格邦国家公园，韩松洞 (© Carsten Peter/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/10.jpg) 
+
+2015-09-09 | [大不列颠，苏格兰，煤山雀栖息在地衣覆盖的树枝上 (© NHPA/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/09/09.jpg) 
+
+2015-09-08 | [哥斯达黎加，圣丽塔，切叶蚁（美洲切叶蚁属Atta） (© Bence Mate/Visuals Unlimited/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/09/08.jpg) 
+
+2015-09-07 | [纽约布鲁克林高地，在赤褐色砂石建筑上拍下的曼哈顿 (© Andrew C. Mace/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/07.jpg) 
+
+2015-09-06 | [美国，加利福尼亚州，圣克鲁斯县，自然桥州立海滩 (© Fotofeeling/Westend61/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/09/06.jpg) 
+
+2015-09-05 | [‘Greeting to the Sun’ installation by Nikola Ba?i?, Zadar, Croatia (© Ivan Coric/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/09/05.jpg) 
+
+2015-09-04 | [厄瓜多尔，加拉帕戈斯群岛，佛罗雷阿纳岛的冠军小岛，加拉帕戈海狮妈妈亲吻着小海狮 (© Tui De Roy/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/09/04.jpg) 
+
+2015-09-03 | [蘑菇上的蜗牛 (© Marianna Armata/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/03.jpg) 
+
+2015-09-02 | [冰岛，东雷克雅未克，赫维塔河热地附近的史托克间歇泉 (© Zinaida Sopina/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/09/02.jpg) 
+
+2015-09-01 | [鳞次栉比的黄色校车 (© Space Images/Blend Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/09/01.jpg) 
+
+2015-08-31 | [西班牙，塞维利亚，拉恩卡纳西翁广场的都市阳伞 (© Felipe Rodriquez/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/08/31.jpg) 
+
+2015-08-30 | [博茨瓦纳，奥卡万戈三角洲，尼罗鳄 (© Richard Du Toit/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/08/30.jpg) 
+
+2015-08-29 | [美国，明尼苏达州，诺斯伍兹，睡莲 (© Jim Brandenburg/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/08/29.jpg) 
+
+2015-08-28 | [荷兰，航拍靠近吉斯普的圩田景观 (© Frans Lemmens/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/08/28.jpg) 
+
+2015-08-27 | [印度尼西亚，下雨天的壁虎与昆虫 (© Shikhei Goh/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/27.jpg) 
+
+2015-08-26 | [南非，东开普省，狂野海岸，海角塘鹅潜入圣约翰斯港口捕鱼 (© FLPA/FLPA/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/08/26.jpg) 
+
+2015-08-25 | [黄石国家公园的游客 (© Jason Savage/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/08/25.jpg) 
+
+2015-08-24 | [香港，电闪雷鸣中的九龙半岛 (© Daniel Chui/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/24.jpg) 
+
+2015-08-23 | [中国，暴雨将至，秋意渐浓 (© Peking Nietzsche/500px)](https://bing.ee123.net/img/cn/fhd/2015/08/23.jpg) 
+
+2015-08-22 | [厄瓜多尔，玛丘普库纳雾林自然保护区的眼镜熊幼崽 (© Pete Oxford/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/08/22.jpg) 
+
+2015-08-21 | [美国，佛罗里达州，大沼泽地国家公园的长礁岛 (© Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/08/21.jpg) 
+
+2015-08-20 | [中国，桂林，小鸟依偎在一起 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/20.jpg) 
+
+2015-08-19 | [阿拉斯加，兰格尔-圣埃利亚斯国家公园和自然保护区的一座冰山 (© Frans Lanting/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2015/08/19.jpg) 
+
+2015-08-18 | [印度，查谟和克什米尔邦，在拉达克桑噶尔地区的穆尔贝克修道院 (© Lethang Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/18.jpg) 
+
+2015-08-17 | [缅甸，阿玛拉普拉古城，乌本桥 (© Moment Select/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/17.jpg) 
+
+2015-08-16 | [美国阿拉巴马州，杰克逊郡的永不沉没洞穴 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/08/16.jpg) 
+
+2015-08-15 | [金发藓的微距影像 (© Misja Smits/Buiten-Beeld/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/08/15.jpg) 
+
+2015-08-14 | [百慕大，沃里克长湾 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2015/08/14.jpg) 
+
+2015-08-13 | [印度，阿勒皮，尼赫鲁杯划船竞赛 (© Ashit Desai/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/08/13.jpg) 
+
+2015-08-12 | [非洲大象 (© James Hager/Offset)](https://bing.ee123.net/img/cn/fhd/2015/08/12.jpg) 
+
+2015-08-11 | [美国，加利福尼亚州，掠过沙斯塔山的星轨 (© Brad Goldpaint/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/08/11.jpg) 
+
+2015-08-10 | [美国，亚利桑那州，靠近佩吉市的羚羊峡谷 (© S.R.Lee Photo Traveller/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/08/10.jpg) 
+
+2015-08-09 | [为庆祝新加坡五十周年国庆，滨海湾灯火通明 (© Then Chih Wey/Xinhua/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/08/09.jpg) 
+
+2015-08-08 | [中国，北京，秋色映在紫禁城的护城河中 (© Christian Kober/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/08/08.jpg) 
+
+2015-08-07 | [墨西哥，尤卡坦半岛，靠近巴拉多利德的萨姆拉天坑 (© ML Sinibaldi/Lithium/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/08/07.jpg) 
+
+2015-08-06 | [通往哥斯达黎加，阿雷纳尔火山国家公园的一条路 (© Stefano Amantini/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/08/06.jpg) 
+
+2015-08-05 | [靠近挪威特罗姆瑟的沉船残骸 (© Daniel Osterkamp/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/05.jpg) 
+
+2015-08-04 | [英格兰，纽卡斯尔，横跨泰恩河的盖茨黑德千禧桥 (© Graeme Peacock/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/08/04.jpg) 
+
+2015-08-03 | [美国，南达科他州，靠近堡皮埃尔市，北美野牛 (© Jim Brandenburg/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/08/03.jpg) 
+
+2015-08-02 | [澳大利亚，墨尔本，跨越物种的友谊 (© Sarah Matray/REX Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/08/02.jpg) 
+
+2015-08-01 | [意大利，罗马涅地区，亚得里亚海岸的海滨度假胜地 (© Bernhard Lang/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/08/01.jpg) 
+
+2015-07-31 | [意大利佛罗伦萨，在老宫的塔楼上观赏佛罗伦萨大教堂 (© Insung Choi/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/07/31.jpg) 
+
+2015-07-30 | [在雅安碧峰峡大熊猫基地里的大熊猫 (© Eric Baccega/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/07/30.jpg) 
+
+2015-07-29 | [日本，从内部观赏福冈塔 (© EQRoy/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/07/29.jpg) 
+
+2015-07-28 | [苏格兰，海滩上的风笛手 (© ColsTravel/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/07/28.jpg) 
+
+2015-07-27 | [肯尼亚，莱瓦野生动物保护区中的金合欢树 (© Marc Muench/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/07/27.jpg) 
+
+2015-07-26 | [法国，普罗旺斯-阿尔卑斯-蓝色海岸，瓦朗索勒的薰衣草田 (© Marc Trigalou/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/07/26.jpg) 
+
+2015-07-25 | [［人类探索的每一步］ 空间站上的月球一瞥 (© NASA)](https://bing.ee123.net/img/cn/fhd/2015/07/25.jpg) 
+
+2015-07-24 | [美国新泽西州，五月岬上的黑剪嘴鸥 (© Ingo Arndt/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/07/24.jpg) 
+
+2015-07-23 | [舟山市海滩上的游客 (© Xinhua News Agency/Rex Features)](https://bing.ee123.net/img/cn/fhd/2015/07/23.jpg) 
+
+2015-07-22 | [美国阿拉斯加州，座头鲸 (© AlaskaStock/Masterfile)](https://bing.ee123.net/img/cn/fhd/2015/07/22.jpg) 
+
+2015-07-21 | [比利时，布鲁塞尔大广场上的建筑 (© Charles Bowman/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/07/21.jpg) 
+
+2015-07-20 | [葡萄牙，拉古什附近的佩达德角 (© MedioTuerto/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/07/20.jpg) 
+
+2015-07-19 | [英国布里斯托，大不列颠号的船首 (© James Osmond/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/07/19.jpg) 
+
+2015-07-18 | [波兰，罗兹托切地区的有机农场 (© Marek Piotrowski/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/07/18.jpg) 
+
+2015-07-17 | [加拿大，不列颠哥伦比亚省，幽鹤国家公园的欧哈拉湖 (© Nelu Goia/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/07/17.jpg) 
+
+2015-07-16 | [德国杜伊斯堡，安格帕克的巨型艺术装置：老虎与乌龟 (© Image Broker/REX)](https://bing.ee123.net/img/cn/fhd/2015/07/16.jpg) 
+
+2015-07-15 | [拉丁美洲还在运营的最古老剧院：巴西，米纳斯吉拉斯州，欧鲁普雷图市立歌剧院 (© M&G Therin-Weise/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/07/15.jpg) 
+
+2015-07-14 | [法国巴黎 (© Liam Hammersley/Tandem Motion +Stills)](https://bing.ee123.net/img/cn/fhd/2015/07/14.jpg) 
+
+2015-07-13 | [美国加州科罗拉多的海滩 (© Ted Horowitz/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/07/13.jpg) 
+
+2015-07-12 | [黎巴嫩的穆萨城堡 (© Zahraa Saleh/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/07/12.jpg) 
+
+2015-07-11 | [澳大利亚昆士兰州，卡纳芬国家公园，土著岩画 (© Michael Runkel/ImageBroker/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/07/11.jpg) 
+
+2015-07-10 | [巴哈马，埃克苏马群岛，史坦尼尔礁中的红树林 (© Jimmy White/Offset.com)](https://bing.ee123.net/img/cn/fhd/2015/07/10.jpg) 
+
+2015-07-09 | [新西兰南岛，阿斯派灵山国家公园的瀑布 (© Corbis)](https://bing.ee123.net/img/cn/fhd/2015/07/09.jpg) 
+
+2015-07-08 | [南非萨比森私人保护区，夜色下的母狮 (© Brendon Cremer/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/07/08.jpg) 
+
+2015-07-07 | [落日余晖下的山东 (© Sipa Asia/Rex Features)](https://bing.ee123.net/img/cn/fhd/2015/07/07.jpg) 
+
+2015-07-06 | [斯里兰卡，可加拉海滩的立钓人 (© Kimberley Coole/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/07/06.jpg) 
+
+2015-07-05 | [印度旁遮普邦的金庙 (© Kimberley Coole/Lonely Planet Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/07/05.jpg) 
+
+2015-07-04 | [美国亚利桑那州，谢伊峡谷中的蜘蛛岩 (© Steve Allen/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/07/04.jpg) 
+
+2015-07-03 | [彩虹出现在苏格兰高地西北部的茵查德湖 (© Westend61/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/07/03.jpg) 
+
+2015-07-02 | [斯里兰卡，雅拉国家公园的蓝孔雀 (© Kevin Schafer/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/07/02.jpg) 
+
+2015-07-01 | [加拿大，不列颠哥伦比亚省，位于库特尼国家公园的纽玛瀑布 (© r.classen/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/07/01.jpg) 
+
+2015-06-30 | [鸟瞰法国卢瓦尔河地区旺代省的滨海布雷蒂尼奥勒 (© Francis Leroy/Hemis/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/06/30.jpg) 
+
+2015-06-29 | [德国巴伐利亚，加米施-帕滕基兴的艾泊湖 (© Mattes René/Hemis/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/06/29.jpg) 
+
+2015-06-28 | [英格兰南德文郡的海滨村庄 (© Sebastian Wasek/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/06/28.jpg) 
+
+2015-06-27 | [肯尼亚，肯尼亚山国家公园上的狄氏半边莲 (© Martin Zwick/Danita Delimont)](https://bing.ee123.net/img/cn/fhd/2015/06/27.jpg) 
+
+2015-06-26 | [缅甸掸邦，戛古舍利佛塔 (© mname/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/06/26.jpg) 
+
+2015-06-25 | [美国加州，萨克拉门托国家野生动物保护区 (© Corbis)](https://bing.ee123.net/img/cn/fhd/2015/06/25.jpg) 
+
+2015-06-24 | [意大利西西里岛，第勒尼安海海域上的卡波多尔兰多海岸线 (© Antonino Bartuccio/SIME/4Corners)](https://bing.ee123.net/img/cn/fhd/2015/06/24.jpg) 
+
+2015-06-23 | [阿尔及利亚，提米蒙附近的沙漠绿洲 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/06/23.jpg) 
+
+2015-06-22 | [北京圆明园的睡莲 (© John Warburton Lee/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/06/22.jpg) 
+
+2015-06-21 | [长颈鹿爸爸和它的孩子们 (© Richard du Toit/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/06/21.jpg) 
+
+2015-06-20 | [端午节 (© Pai-Shih Lee/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/06/20.jpg) 
+
+2015-06-19 | [乌克兰克莱文镇，爱的隧道 (© Amos Chapple/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/06/19.jpg) 
+
+2015-06-18 | [肯尼亚，桑布鲁野生动物保护区中的长颈羚 (© Paul Souders/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/06/18.jpg) 
+
+2015-06-17 | [美国华盛顿州，西雅图，亚历山大·利伯曼的奥林匹克伊利亚特雕塑 (© Muralee Raghavan)](https://bing.ee123.net/img/cn/fhd/2015/06/17.jpg) 
+
+2015-06-16 | [英国英格兰地区，科伯姆，佩因斯希尔庄园的水晶洞 (© Think James Photo/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2015/06/16.jpg) 
+
+2015-06-15 | [美国南加州的欧文斯湖 (© Andrei Duman/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/06/15.jpg) 
+
+2015-06-14 | [加拿大纽芬兰岛，龙虾诱笼堆靠在红色的渔棚旁 (© David Kleyn/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/06/14.jpg) 
+
+2015-06-13 | [美国犹他州，锡达布雷克斯国家保护区 (© David Pinzer Photography/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/06/13.jpg) 
+
+2015-06-12 | [西班牙梅诺卡岛的卡拉玛卡瑞海滩 (© Michele Falzone/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/06/12.jpg) 
+
+2015-06-11 | [澳大利亚降灵群岛，一个巨蛤的特写 (© Tanya Punitt/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/06/11.jpg) 
+
+2015-06-10 | [葡萄牙马德拉岛，蓬塔-杜索尔 (© Mikael Svensson/Johner/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/06/10.jpg) 
+
+2015-06-09 | [仓鸮 (© Christoph Bosch/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/06/09.jpg) 
+
+2015-06-08 | [被浮游生物侵蚀的南美洲大西洋海岸 (© NASA)](https://bing.ee123.net/img/cn/fhd/2015/06/08.jpg) 
+
+2015-06-07 | [法国卢瓦尔河谷，维兰德里城堡的花园 (© Emilie Chaix/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/06/07.jpg) 
+
+2015-06-06 | [美国阿拉斯加，德纳利国家公园，登山者在攀登麦金利山 (© Luke Humphrey)](https://bing.ee123.net/img/cn/fhd/2015/06/06.jpg) 
+
+2015-06-05 | [印度喜马偕尔邦，位于卡索尔的帕尔瓦蒂河 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2015/06/05.jpg) 
+
+2015-06-04 | [夏威夷基拉韦厄火山的熔岩 (© Toshi Sasaki/Image Bank Film/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/06/04.jpg) 
+
+2015-06-03 | [意大利佩鲁贾地区，日落时分的农田 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2015/06/03.jpg) 
+
+2015-06-02 | [墨西哥科苏梅尔岛，科苏梅尔浣熊 (© Kevin Schafer/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/06/02.jpg) 
+
+2015-06-01 | [上海豫园，小男孩在逗弄鱼群 (© Keren Su/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/06/01.jpg) 
+
+2015-05-31 | [智利，阿塔卡马沙漠，阿塔卡马大型毫米波天线阵 (© Dave Yoder/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/05/31.jpg) 
+
+2015-05-30 | [肯尼亚马赛马拉国家公园，一群黑斑羚 (© Jonathan & Angela Scott/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/30.jpg) 
+
+2015-05-29 | [越南，峰牙-己榜国家公园，韩松洞 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/29.jpg) 
+
+2015-05-28 | [法国普罗旺斯-阿尔卑斯蓝色海岸，马赛 (© Yves Andre/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/28.jpg) 
+
+2015-05-27 | [上海复旦大学，邯郸路校区子彬院 (© Rong Qian)](https://bing.ee123.net/img/cn/fhd/2015/05/27.jpg) 
+
+2015-05-26 | [印度梅加拉亚邦，一座树桥 (© Timothy Allen/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/26.jpg) 
+
+2015-05-25 | [英格兰康沃尔海岸，博斯卡斯尔港 (© BlueGreen Pictures/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/05/25.jpg) 
+
+2015-05-24 | [纳米比亚，索苏斯弗雷，沙丘 (© Erik Joosten/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/05/24.jpg) 
+
+2015-05-23 | [奥地利维也纳，暮光之下的国会大厦、市政厅和雅典娜雕像 (© Westend61/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/23.jpg) 
+
+2015-05-22 | [美国俄勒冈州，火山口湖 (© Roshin Lal Ramesan)](https://bing.ee123.net/img/cn/fhd/2015/05/22.jpg) 
+
+2015-05-21 | [美国亚利桑那州，大峡谷国家公园，科罗拉多河与大理石峡谷 (© Gavin Heffernan/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/05/21.jpg) 
+
+2015-05-20 | [法国滨海阿尔卑斯省，戛纳的老城区 (© Sylvain Sonnet/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/20.jpg) 
+
+2015-05-19 | [南极洲威德尔海，帝企鹅在暴风雪中 (© Frans Lanting/Mint Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/19.jpg) 
+
+2015-05-18 | [香港，清晨薄雾中的狮子山 (© William C. Y. Chu/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/18.jpg) 
+
+2015-05-17 | [美国怀俄明州，黄石国家公园，灰狼在下雪的清晨仰天长啸 (© Barrett Hedges/National Geographic Magazines/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/17.jpg) 
+
+2015-05-16 | [西班牙加利西亚，拉科鲁尼亚，巨石纪念碑(by Manolo Paz) (© Oscar Dominguez/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/05/16.jpg) 
+
+2015-05-15 | [两只小鸟在树枝上休息 (© Alfredo Piedrafita/RooM/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/15.jpg) 
+
+2015-05-14 | [美国南达科他州，风穴国家公园中的黑尾草原犬鼠 (© James Hager/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/05/14.jpg) 
+
+2015-05-13 | [2009年4月3日北京，朱红墙旁的鸟儿正在享受美好的天气 (© ADRIAN BRADSHAW/EPA/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/05/13.jpg) 
+
+2015-05-12 | [新加坡滨海湾天际线 (© Martin Puddy/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/12.jpg) 
+
+2015-05-11 | [加拿大不列颠哥伦比亚省，维多利亚，渔人码头的船屋 (© Shaun Cunningham/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/05/11.jpg) 
+
+2015-05-10 | [狼妈妈与孩子 (© Ronald Wittek/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/05/10.jpg) 
+
+2015-05-09 | [加拿大魁北克，圣弗朗索瓦河，雪雁迁徙 (© David Doubilet/GettyImages)](https://bing.ee123.net/img/cn/fhd/2015/05/09.jpg) 
+
+2015-05-08 | [意大利，白杨树 (© Eddy Galeotti/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/05/08.jpg) 
+
+2015-05-07 | [印度德里，阿克萨达姆神庙 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2015/05/07.jpg) 
+
+2015-05-06 | [莲叶 (© VIEW STOCK RF/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2015/05/06.jpg) 
+
+2015-05-05 | [摩洛哥，达德斯峡谷上方的阿特拉斯山脉 (© Art Wolfe/Mint Images)](https://bing.ee123.net/img/cn/fhd/2015/05/05.jpg) 
+
+2015-05-04 | [拉脱维亚，一座城堡废墟 (© Andrejs Zemdega/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/05/04.jpg) 
+
+2015-05-03 | [南非西北省，失落之城中的吊桥 (© Heinrich van den Berg/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/05/03.jpg) 
+
+2015-05-02 | [荷兰东北圩田，郁金香园 (© Siebe Swart/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/05/02.jpg) 
+
+2015-05-01 | [四川九寨沟，游人如织 (© Vadim Petrakov/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/05/01.jpg) 
+
+2015-04-30 | [北美豪猪 (© Minden Pictures/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/04/30.jpg) 
+
+2015-04-29 | [德国汉堡，花卉植物园的喷泉 (© Andreas Rose/imageBROKER/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/04/29.jpg) 
+
+2015-04-28 | [保加利亚，洛维奇附近的德弗塔什卡洞 (© Marholev/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/28.jpg) 
+
+2015-04-27 | [智利奇洛埃岛国家公园，海滩上的白草雁 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2015/04/27.jpg) 
+
+2015-04-26 | [无锡，蠡湖大桥 (© 200/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/26.jpg) 
+
+2015-04-25 | [南方白犀牛，妈妈与孩子 (© Theo Allofs/Masterfile)](https://bing.ee123.net/img/cn/fhd/2015/04/25.jpg) 
+
+2015-04-24 | [伊朗设拉子，莫克清真寺(粉红清真寺) (© R.Creation/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/04/24.jpg) 
+
+2015-04-23 | [日本长野八岳，日本歌鸲(qú) (© Gouichi Wada/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/04/23.jpg) 
+
+2015-04-22 | [美国华盛顿州，奥林匹克国家公园，可可西里雨林 (© ARCO/P Frischknecht/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/04/22.jpg) 
+
+2015-04-21 | [冰岛，火山附近的徒步旅行者 (© Joseph Calev)](https://bing.ee123.net/img/cn/fhd/2015/04/21.jpg) 
+
+2015-04-20 | [广西桂林，收获前的稻田航拍图 (© imageBROKER/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/04/20.jpg) 
+
+2015-04-19 | [奥地利图尔菲斯，解冻一半的草甸 (© F1 Online/REX)](https://bing.ee123.net/img/cn/fhd/2015/04/19.jpg) 
+
+2015-04-18 | [美国加州，红杉树国家公园中的梨湖 (© Marc Muench/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/04/18.jpg) 
+
+2015-04-17 | [求爱中的一对凤头鸊鷉(pì tī) (© Andrew Parkinson/Nature Picture Library/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/04/17.jpg) 
+
+2015-04-16 | [土耳其，卡帕多西亚，乌奇希萨尔上空的热气球 (© Coolbriere Photograph/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/16.jpg) 
+
+2015-04-15 | [长曝光拍摄，街道上的汽车 (© Mxing Photography/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/15.jpg) 
+
+2015-04-14 | [姑娘儿 (© Olivier Parent/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/04/14.jpg) 
+
+2015-04-13 | [加拿大萨斯喀彻温省，废弃小镇中的建筑 (© Scott Prokop/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/04/13.jpg) 
+
+2015-04-12 | [美国蒙大拿州，冰川国家公园中的北方侏儒猫头鹰 (© Steven Gnam/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/04/12.jpg) 
+
+2015-04-11 | [新西兰基督城，三只欢快的小羔羊 (© Andrew Walmsley/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/04/11.jpg) 
+
+2015-04-10 | [冬季海滨，灯塔上空的北极光 (© RelaxFoto.de/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/10.jpg) 
+
+2015-04-09 | [法国上诺曼底，厄尔吉维尼，春季时分莫奈的花园 (© Oleg Bakhirev/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/04/09.jpg) 
+
+2015-04-08 | [意大利多洛米蒂，加迪纳山口及塞拉群 (© Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/04/08.jpg) 
+
+2015-04-07 | [美国加州约书亚树国家公园，白雪覆盖的约书亚树 (© Christopher Talbot Frank/Danita Delimont)](https://bing.ee123.net/img/cn/fhd/2015/04/07.jpg) 
+
+2015-04-06 | [墨西哥艾库玛尔附近，水中岩洞内的潜水者 (© Paul Nicklen/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/06.jpg) 
+
+2015-04-05 | [画作 (© View Stock/Superstock)](https://bing.ee123.net/img/cn/fhd/2015/04/05.jpg) 
+
+2015-04-04 | [赤狐妈妈在与幼仔玩打斗游戏 (© Konrad Wothe/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/04/04.jpg) 
+
+2015-04-03 | [新西兰弗兰兹·约瑟夫冰河的徒步旅行者 (© Keri Oberly/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/04/03.jpg) 
+
+2015-04-02 | [巴西潘塔纳尔，冲积平原 (© Luciano Candisani/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/04/02.jpg) 
+
+2015-04-01 | [篮子中的喵星人 (© skynesher/Creatas Video/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/04/01.jpg) 
+
+2015-03-31 | [爱尔兰克莱尔郡，日落时分的莫赫悬崖 (© Patryk Kosmider/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/03/31.jpg) 
+
+2015-03-30 | [日本屋久岛，幽灵公主之森 (© Hiroyuki Nagaoka/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/03/30.jpg) 
+
+2015-03-29 | [美国亚利桑那州，石化森林国家公园中的木化石 (© Ian Shive/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/03/29.jpg) 
+
+2015-03-28 | [台湾，夜景 (© TPG/imageBROKER/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/03/28.jpg) 
+
+2015-03-27 | [奥地利，莱赫 (© Michael Turek/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2015/03/27.jpg) 
+
+2015-03-26 | [荷兰，布尔坦赫城 (© Amos Chapple/Rex Features)](https://bing.ee123.net/img/cn/fhd/2015/03/26.jpg) 
+
+2015-03-25 | [美国佛罗里达州，水晶河里的西印度海牛 (© Daniel J. Cox/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/03/25.jpg) 
+
+2015-03-24 | [美国内布拉斯加州，西点上空的超级单体风暴 (© Mammoth HD)](https://bing.ee123.net/img/cn/fhd/2015/03/24.jpg) 
+
+2015-03-23 | [法国，圣米歇尔山修道院内的花园 (© Monkey Business Images/Rex Features)](https://bing.ee123.net/img/cn/fhd/2015/03/23.jpg) 
+
+2015-03-22 | [美国拉斯维加斯，通往百丽宫赌场酒店的行人步道 (© Gavin Hellier/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/03/22.jpg) 
+
+2015-03-21 | [美国拉斯维加斯，赌场长街 (© Robert Harding Picture Library Ltd/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/03/21.jpg) 
+
+2015-03-20 | [美国拉斯维加斯，卢克索赌场酒店 (© B Lawrence/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/03/20.jpg) 
+
+2015-03-19 | [美国拉斯维加斯，弗拉明戈赌场的霓虹灯标志 (© Jack Sullivan/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/03/19.jpg) 
+
+2015-03-18 | [美国拉斯维加斯，神剑赌场酒店夜间的灯光照明 (© Prisma Bildagentur AG/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/03/18.jpg) 
+
+2015-03-17 | [美国拉斯维加斯，威尼斯人酒店上空的焰火 (© Blickwinkel/McPHOTO/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2015/03/17.jpg) 
+
+2015-03-16 | [美国拉斯维加斯，整个拉斯维加斯大道景观带 (© Huber/Sime/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2015/03/16.jpg) 
+
+2015-03-15 | [夏威夷茂宜岛，哈雷阿卡拉火山口的渣锥 (© Dennis Maisel/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/03/15.jpg) 
+
+2015-03-14 | [澳大利亚塔斯马尼亚，戈登坝 (© Steve Daggar Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/03/14.jpg) 
+
+2015-03-13 | [美国阿拉斯加北极国家野生动物保护区，岛上的北极熊 (© Patrick Endres/plainpicture)](https://bing.ee123.net/img/cn/fhd/2015/03/13.jpg) 
+
+2015-03-12 | [塔克拉玛干沙漠，沙丘和黄色的胡杨树木 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/03/12.jpg) 
+
+2015-03-11 | [尼泊尔，珠穆朗玛峰，都得科西河上的悬索桥 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2015/03/11.jpg) 
+
+2015-03-10 | [法国诺曼底，草地上的非洲野驴与宝宝 (© J.-L. Klein & M.-L. Hubert/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/03/10.jpg) 
+
+2015-03-09 | [印度和孟加拉国，恒河三角洲的卫星图片 (© Planet Observer/Universal Images Group/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/03/09.jpg) 
+
+2015-03-08 | [身着传统印度服饰的妇人紧靠在一起 (© Jeremy Woodhouse/Blend Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/03/08.jpg) 
+
+2015-03-07 | [塔斯马尼亚，摇篮山圣克莱尔湖国家公园，正在觅食的塔斯马尼亚袋熊 (© Stormfront Films/Mammoth HD)](https://bing.ee123.net/img/cn/fhd/2015/03/07.jpg) 
+
+2015-03-06 | [蜻蜓 (© Beijing, China)](https://bing.ee123.net/img/cn/fhd/2015/03/06.jpg) 
+
+2015-03-05 | [香港，造型灯笼 (© Gareth Brown/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/03/05.jpg) 
+
+2015-03-04 | [韩国丽水，从海洋水产科学馆看外面的海滩 (© Insung Choi/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/03/04.jpg) 
+
+2015-03-03 | [苏格兰，阿夫力峡谷内的湖泊 (© BlueGreen Pictures/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/03/03.jpg) 
+
+2015-03-02 | [冰岛，胡勒汉火山喷发 (© Johnathan Ampersand Esper/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/03/02.jpg) 
+
+2015-03-01 | [福克兰群岛，海狮岛，沙滩上的南象海豹幼崽 (© Dickie Duckett/FLPA/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/03/01.jpg) 
+
+2015-02-28 | [日本横手，为镰仓节(雪屋节)而建的微型雪屋 (© JTB Media Creation, Inc./Alamy)](https://bing.ee123.net/img/cn/fhd/2015/02/28.jpg) 
+
+2015-02-27 | [加拿大不列颠哥伦比亚省，卡里布地区未知湖的鸟瞰图 (© Mike Grandmaison/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/02/27.jpg) 
+
+2015-02-26 | [苏格兰群岛，赫塔岛湾村 (© Jim Richardson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/26.jpg) 
+
+2015-02-25 | [德国梅克伦堡 - 前波莫瑞州， 吕根岛，塞林码头的冬景 (© Kohls/Image Broker/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/02/25.jpg) 
+
+2015-02-24 | [美国加利福尼亚州，红木国家公园及州立公园 (© David Fortney/Corbis Motion)](https://bing.ee123.net/img/cn/fhd/2015/02/24.jpg) 
+
+2015-02-23 | [北京天坛春节期间，纸扇与红灯笼 (© Wiliam Perry/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/02/23.jpg) 
+
+2015-02-22 | [马来西亚槟城，九皇爷庙 (© Ivan Hor/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/22.jpg) 
+
+2015-02-21 | [新年装饰 ，小老虎 (© Imagemore Co. Ltd./Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/21.jpg) 
+
+2015-02-20 | [装饰，玩具风车 (© Randy Faris/CORBIS)](https://bing.ee123.net/img/cn/fhd/2015/02/20.jpg) 
+
+2015-02-19 | [装饰，荷包(香囊) (© Carlina Teteris/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/19.jpg) 
+
+2015-02-18 | [台湾台北，大稻埕烟火 (© TPG/imageBROKER/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/02/18.jpg) 
+
+2015-02-17 | [巴西布希奥斯，黄昏时分海岸边的冲浪者 (© Mark Leibowitz/Masterfile)](https://bing.ee123.net/img/cn/fhd/2015/02/17.jpg) 
+
+2015-02-16 | [瑞士瓦莱州，罗纳冰川冰窟 (© CEM/Getty)](https://bing.ee123.net/img/cn/fhd/2015/02/16.jpg) 
+
+2015-02-15 | [英国牛津，波德林图书馆 (© Charlie Harding/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/02/15.jpg) 
+
+2015-02-14 | [心脏星云 (© Matthew Russell/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2015/02/14.jpg) 
+
+2015-02-13 | [冰与火，冻结的伊利湖上空的朝阳 (© Joshua Bozarth/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/13.jpg) 
+
+2015-02-12 | [德国慕尼黑，西墓园地铁站 (© Manfred J. Bail/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/02/12.jpg) 
+
+2015-02-11 | [美国怀俄明州，黄石国家公园内的火洞河 (© Don White/SuperStock)](https://bing.ee123.net/img/cn/fhd/2015/02/11.jpg) 
+
+2015-02-10 | [乡村婚宴中的小猪点心 (© Melinda Chan/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/10.jpg) 
+
+2015-02-09 | [美国俄勒冈州，从杰斐逊峰自然荒野区看到的黑山 (© Marc Adamus/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/02/09.jpg) 
+
+2015-02-08 | [美国华盛顿州，贝克山斯诺夸尔米国家森林 (© Ethan Welty/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/02/08.jpg) 
+
+2015-02-07 | [圣马丁，菲利普斯堡 (© Sean Pavone/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/02/07.jpg) 
+
+2015-02-06 | [美国蒙大拿州的白鱼市，正在吃花楸浆果的太平鸟 (© Chuck Haney/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/02/06.jpg) 
+
+2015-02-05 | [斯洛文尼亚，卢布尔雅那河喀斯特盆地，洪水淹没了平原 (© Ales Komovec/Rex Features)](https://bing.ee123.net/img/cn/fhd/2015/02/05.jpg) 
+
+2015-02-04 | [梅花朵朵开 (© atiger/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/02/04.jpg) 
+
+2015-02-03 | [瑞士日内瓦湖，西庸城堡 (© Philippe Saire Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/02/03.jpg) 
+
+2015-02-02 | [身着冬装的白鼬 (© Berndt Fischer/age fotostock)](https://bing.ee123.net/img/cn/fhd/2015/02/02.jpg) 
+
+2015-02-01 | [美国亚利桑那州，纳瓦霍部落公园，上羚羊峡谷 (© Mat Rick/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2015/02/01.jpg) 
+
+2015-01-31 | [南非开普敦附近，卡尔克湾 (© Michael McSweeney/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/01/31.jpg) 
+
+2015-01-30 | [马达加斯加，贝马拉哈国家公园 (© Frans Lanting/Mint)](https://bing.ee123.net/img/cn/fhd/2015/01/30.jpg) 
+
+2015-01-29 | [芬兰，欧亚红松鼠 (© Jorma Luhta/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/01/29.jpg) 
+
+2015-01-28 | [泰国曼谷货运港口，工作中的起重机 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/28.jpg) 
+
+2015-01-27 | [德国巴伐利亚，旧天鹅堡 (© Mespilia/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/01/27.jpg) 
+
+2015-01-26 | [澳大利亚，奔跑中的红大袋鼠 (© Gerard Lacz/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2015/01/26.jpg) 
+
+2015-01-25 | [美国加州圣地亚哥，日落时分使命湾的棕榈树林 (© Dancestrokes/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/01/25.jpg) 
+
+2015-01-24 | [美国芝加哥，云门雕塑(芝加哥豆子) (© Kjel Larsen)](https://bing.ee123.net/img/cn/fhd/2015/01/24.jpg) 
+
+2015-01-23 | [美国拉斯维加斯，黄昏时分的拉斯维加斯大道 (© Stuart Dee/Photographers Choice RF/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/23.jpg) 
+
+2015-01-22 | [美国旧金山，晨雾弥漫 (© David Safanda/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/22.jpg) 
+
+2015-01-21 | [美国纽约，城市风光 (© Alija/Vetta/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/21.jpg) 
+
+2015-01-20 | [美国洛杉矶，游乐园夜景 (© Pete Saloutos/Blend Images/Brand X Pictures/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/20.jpg) 
+
+2015-01-19 | [美国夏威夷，峭壁下的热带珊瑚礁 (© Colin Anderson/Blend Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/19.jpg) 
+
+2015-01-18 | [新西兰，怀托摩萤火虫洞 (© Chris McLennan/Alamy)](https://bing.ee123.net/img/cn/fhd/2015/01/18.jpg) 
+
+2015-01-17 | [加拿大阿尔伯塔省，班夫国家公园附近的马鹿 (© Todd Korol/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/01/17.jpg) 
+
+2015-01-16 | [法国里昂，节日彩灯 (© Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2015/01/16.jpg) 
+
+2015-01-15 | [风雪中孤独行走的企鹅 (© Gabe Rogel/Aurora/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/15.jpg) 
+
+2015-01-14 | [加拿大育空地区，墓碑山地公园上空的北极光 (© Nagesh Mahadev)](https://bing.ee123.net/img/cn/fhd/2015/01/14.jpg) 
+
+2015-01-13 | [德国科布伦茨和特里尔之间的爱尔茨城堡 (© Nikiforov Alexander/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2015/01/13.jpg) 
+
+2015-01-12 | [意大利维罗纳的沿河风光 (© Franco Cogoli/4Corners Images)](https://bing.ee123.net/img/cn/fhd/2015/01/12.jpg) 
+
+2015-01-11 | [德国萨克森-安哈尔特州，罗步肯峰上的气象站 (© Günter Gräfenhain/Huber/4Corners)](https://bing.ee123.net/img/cn/fhd/2015/01/11.jpg) 
+
+2015-01-10 | [法国朗格多克鲁西雍，洛泽尔省的拉瓦迪塔尔恩 (© Franck Charton/hemis.fr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/10.jpg) 
+
+2015-01-09 | [欧亚水獭 (© Ernst Dirksen/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/01/09.jpg) 
+
+2015-01-08 | [美国犹他州，布莱斯峡谷国家公园的冬季 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2015/01/08.jpg) 
+
+2015-01-07 | [英国科夫堡，日出 (© Matt Gibson/LOOP IMAGES/Loop Images/Corbis)](https://bing.ee123.net/img/cn/fhd/2015/01/07.jpg) 
+
+2015-01-06 | [日本阿尔卑斯山脉，雪中的日本猕猴 (© Konrad Wothe/Minden Pictures/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/06.jpg) 
+
+2015-01-05 | [哈尔滨国际冰雪节一景 (© Yang Wang)](https://bing.ee123.net/img/cn/fhd/2015/01/05.jpg) 
+
+2015-01-04 | [日本树蛙 (© Shinji Kusano/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2015/01/04.jpg) 
+
+2015-01-03 | [美国佛罗里达州，大沼泽地国家公园 (© Angelo Cavalli/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2015/01/03.jpg) 
+
+2015-01-02 | [美国新罕布什尔州，皮斯卡塔夸河 (© Denis Tangney Jr./Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/02.jpg) 
+
+2015-01-01 | [上海外滩烟花秀 (© Danny Hu/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2015/01/01.jpg) 
+
+2014-12-31 | [台湾台北，在象山上观看台北日落 (© David Terrazas Morales/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/12/31.jpg) 
+
+2014-12-30 | [加拿大阿尔伯塔省，飞过麋鹿岛国家公园上空的加拿大黑雁 (© Paul Horsley/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/12/30.jpg) 
+
+2014-12-29 | [德国巴伐利亚国家森林公园，欧亚猞猁 (© Konrad Wothe/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/12/29.jpg) 
+
+2014-12-28 | [澳大利亚，塔斯马尼亚岛，菲欣纳国家公园的酒杯湾 (© Di He)](https://bing.ee123.net/img/cn/fhd/2014/12/28.jpg) 
+
+2014-12-27 | [法国巴黎，香榭丽舍大街上的节日装饰 (© Neil Farrin/Rex Features)](https://bing.ee123.net/img/cn/fhd/2014/12/27.jpg) 
+
+2014-12-26 | [捷克布拉格，老城广场的假日市场 (© Michal Sula/Rex Features)](https://bing.ee123.net/img/cn/fhd/2014/12/26.jpg) 
+
+2014-12-25 | [冬雪场景下的一套火车模型 (© Terry Wilson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/12/25.jpg) 
+
+2014-12-24 | [加拿大不列颠哥伦比亚省，温哥华的卡皮拉诺吊桥 (© Andy Clark/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/12/24.jpg) 
+
+2014-12-23 | [美国加州蒂梅丘拉谷，酿酒厂内装饰了圣诞彩灯的棕榈树 (© Richard Cummins/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/12/23.jpg) 
+
+2014-12-22 | [蓝松鸦 (© Christophe Sidamon-Pesson/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/12/22.jpg) 
+
+2014-12-21 | [加拿大魁北克，暴风雪后的费尔蒙特芳缇娜城堡酒店 (© Korivo/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/12/21.jpg) 
+
+2014-12-20 | [葡萄牙亚速尔群岛，海岸附近的抹香鲸 (© Reinhard Dirscherl/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/12/20.jpg) 
+
+2014-12-19 | [上海夜景，天际线与立交桥 (© Kevin Lee/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/12/19.jpg) 
+
+2014-12-18 | [美国密西西比，纳齐兹古道遗迹 (© Marc Muench/Tandem Still + Motion)](https://bing.ee123.net/img/cn/fhd/2014/12/18.jpg) 
+
+2014-12-17 | [法国诺曼底，鲁昂 (© Tim Gartside/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/12/17.jpg) 
+
+2014-12-16 | [荷兰阿培尔顿，猴山动物园的红腿叫鹤 (© Juan Carlos Muñoz/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/12/16.jpg) 
+
+2014-12-15 | [美国加州旧金山湾，盐沼 (© Art Wolfe/Mint Images)](https://bing.ee123.net/img/cn/fhd/2014/12/15.jpg) 
+
+2014-12-14 | [越南，河内 (© David Santiago Garcia/Aurora Photo)](https://bing.ee123.net/img/cn/fhd/2014/12/14.jpg) 
+
+2014-12-13 | [美国科罗拉多州，恐龙国家纪念公园，扬帕河 (© Whit Richardson/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/12/13.jpg) 
+
+2014-12-12 | [苏格兰阿伯丁郡，彭南 (© Eichhorst/neuebildanstalt/plainpicture)](https://bing.ee123.net/img/cn/fhd/2014/12/12.jpg) 
+
+2014-12-11 | [德国梅克伦堡-前波莫瑞州，尼哈根之林 (© Radius Images/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/12/11.jpg) 
+
+2014-12-10 | [佛罗里达礁岛群，鳄鱼礁灯塔 (© Stephen Frink/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/12/10.jpg) 
+
+2014-12-09 | [厄瓜多尔，安第斯山脉，被围捕的牛 (© Pete Oxford/Minden Pictures/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/12/09.jpg) 
+
+2014-12-08 | [捷克，布拉格，坎帕岛 (© Gianluca Santoni/SIME/4Corners)](https://bing.ee123.net/img/cn/fhd/2014/12/08.jpg) 
+
+2014-12-07 | [下雪了，许多黑颈鹤在雪中飞舞 (© zhouyousifang/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/12/07.jpg) 
+
+2014-12-06 | [Marina Bay, Singapore (© Andy Lerner/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2014/12/06.jpg) 
+
+2014-12-05 | [博茨瓦纳，奥卡万戈三角洲的大象 (© Michael Poliza/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/12/05.jpg) 
+
+2014-12-04 | [纽约市，中央公园 (© EschCollection/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/12/04.jpg) 
+
+2014-12-03 | [美国佛罗里达州，萨旺尼河三角洲 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/12/03.jpg) 
+
+2014-12-02 | [瑞士采尔马特附近，本宁阿尔卑斯山脉 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/12/02.jpg) 
+
+2014-12-01 | [德国巴伐利亚，纽伦堡圣诞市场全景 (© Eye Ubiquitous/Superstock)](https://bing.ee123.net/img/cn/fhd/2014/12/01.jpg) 
+
+2014-11-30 | [晚霞中的稻田](https://bing.ee123.net/img/cn/fhd/2014/11/30.jpg) 
+
+2014-11-29 | [苏格兰的野猫 (© Alan Crawford/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/29.jpg) 
+
+2014-11-28 | [日本北海道，吃瓜子的花栗鼠 (© Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/11/28.jpg) 
+
+2014-11-27 | [土耳其特拉布宗，乌宗湖(长湖) (© Ozcan Malkocer/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/27.jpg) 
+
+2014-11-26 | [土耳其伊斯坦布尔，新清真寺(耶尼清真寺) (© Domingo Leiva/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/26.jpg) 
+
+2014-11-25 | [美国科罗拉多州特柳赖德附近，一大片白杨树林 (© Sergio Ballivian/Tandem Stills + Motion)](https://bing.ee123.net/img/cn/fhd/2014/11/25.jpg) 
+
+2014-11-24 | [意大利威尼斯，建筑与运河 (© James C. Martin)](https://bing.ee123.net/img/cn/fhd/2014/11/24.jpg) 
+
+2014-11-23 | [北京首都机场T3航站楼部分建筑 (© Robert Harding Images/Masterfile)](https://bing.ee123.net/img/cn/fhd/2014/11/23.jpg) 
+
+2014-11-22 | [加拿大阿尔伯塔省坎莫尔附近，清水湖中的藻类 (© Gaertner/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/11/22.jpg) 
+
+2014-11-21 | [行走在雪地中的丹顶鹤 (© Jeremy Woodhouse/Blend Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/21.jpg) 
+
+2014-11-20 | [纳米比亚埃托沙国家公园，相互问候的平原斑马 (© Mogens Trolle/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/11/20.jpg) 
+
+2014-11-19 | [法国博若莱地区的葡萄园 (© Flirt/Superstock)](https://bing.ee123.net/img/cn/fhd/2014/11/19.jpg) 
+
+2014-11-18 | [澳大利亚坎贝尔港国家公园，十二使徒岩 (© Marcella Miriello/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/11/18.jpg) 
+
+2014-11-17 | [河北遵化清东陵 (© Best View Stock/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/11/17.jpg) 
+
+2014-11-16 | [广西桂林，阳朔附近 (© wu kailiang/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/11/16.jpg) 
+
+2014-11-15 | [加州鹌鹑 (© McPhoto/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/11/15.jpg) 
+
+2014-11-14 | [堆叠的彩色铅笔 (© taweesak thiprod/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/11/14.jpg) 
+
+2014-11-13 | [美国科罗拉多州丹佛附近，埃文斯山上的山羊 (© Corbis Motion)](https://bing.ee123.net/img/cn/fhd/2014/11/13.jpg) 
+
+2014-11-12 | [马达加斯加，自然保护区的环尾狐猴 (© Art Wolfe/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/11/12.jpg) 
+
+2014-11-11 | [广州市，中山大学东校区工学院广场 (© Hui Chen)](https://bing.ee123.net/img/cn/fhd/2014/11/11.jpg) 
+
+2014-11-10 | [美国南达科他州，黑尾土拨鼠 (© Danita Delimont/Gallo Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/10.jpg) 
+
+2014-11-09 | [智利卡雷拉将军湖，大理石洞穴 (© David A. Barnes/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/11/09.jpg) 
+
+2014-11-08 | [德国柏林墙，东区画廊， Shamil Gimajew的《我们是一家人》 (© Andreas Muhs/Agencja Fotograficzna Caro/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/11/08.jpg) 
+
+2014-11-07 | [希腊，阿克华 (© Hercules Milas/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/11/07.jpg) 
+
+2014-11-06 | [冬霜中的蓝山雀和玫瑰果 (© Nature Picture Library/Britain On View/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/06.jpg) 
+
+2014-11-05 | [不丹帕罗山谷，虎穴寺 (© Peter Adams/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/05.jpg) 
+
+2014-11-04 | [长江三峡 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/04.jpg) 
+
+2014-11-03 | [四月新疆新源县的春之梦境 (© Danny Hu/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/11/03.jpg) 
+
+2014-11-02 | [环状星云 (M57) (© Robert Gendler/NASA)](https://bing.ee123.net/img/cn/fhd/2014/11/02.jpg) 
+
+2014-11-01 | [澳大利亚西部海岸附件的黑斑石斑鱼 (© NaturePL/Superstock)](https://bing.ee123.net/img/cn/fhd/2014/11/01.jpg) 
+
+2014-10-31 | [西方经典灵异故事 (© Lindsay Daniels Design/Gary Spradling/Alamy, Corbis Images, Getty Images, plainpicture, Shutterstock, Superstock)](https://bing.ee123.net/img/cn/fhd/2014/10/31.jpg) 
+
+2014-10-30 | [荷兰特克塞尔，雄性环颈雉 (© Thomas Hinsche/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/10/30.jpg) 
+
+2014-10-29 | [印尼南苏拉威西省，望加锡的农田 (© Keren Su/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/10/29.jpg) 
+
+2014-10-28 | [格陵兰，格陵兰冰盖上的融水 (© James Balog/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/10/28.jpg) 
+
+2014-10-27 | [新西兰，农业耕地的俯视图 (© Paul Chesley/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/27.jpg) 
+
+2014-10-26 | [古董表内部的齿轮和红宝石 (© Seraficus/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/10/26.jpg) 
+
+2014-10-25 | [秘鲁玛努国家公园中的皇狨猴 (© Thomas Marent/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/10/25.jpg) 
+
+2014-10-24 | [北京潭柘寺秋景 (© Jochen Schlenker/Robert Harding Picture Library Ltd/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/24.jpg) 
+
+2014-10-23 | [新疆阿尔泰山，喀纳斯湖 (© Henry Westheim Photography/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/23.jpg) 
+
+2014-10-22 | [美国犹他州锡安峡谷，处女河北流 (© Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/10/22.jpg) 
+
+2014-10-21 | [北京，中国国家图书馆 (© Zens photo/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/10/21.jpg) 
+
+2014-10-20 | [加拿大蒙特利尔，艾尔斯布萨维尔国家公园内的狐狸 (© Rolland Gelly/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/10/20.jpg) 
+
+2014-10-19 | [广东英德，英西峰林的小桥 (© VIEW STOCK RF/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2014/10/19.jpg) 
+
+2014-10-18 | [新疆喀纳斯，禾木村 (© Fotosearch/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/10/18.jpg) 
+
+2014-10-17 | [英国康沃尔郡，佩伦波思海滩的踏脚石 (© Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/17.jpg) 
+
+2014-10-16 | [英国诺福克郡，紧抓小麦柄的巢鼠 (© Mike Powles/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/10/16.jpg) 
+
+2014-10-15 | [Aerial view of North Malé Atoll, Maldives (© Robert Harding Picture Library/Superstock)](https://bing.ee123.net/img/cn/fhd/2014/10/15.jpg) 
+
+2014-10-14 | [阿拉伯联合酋长国，迪拜的棕榈岛 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/10/14.jpg) 
+
+2014-10-13 | [葡萄牙萨尔当角的白鹳 (© David Santiago Garcia/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/10/13.jpg) 
+
+2014-10-12 | [加拿大阿尔伯塔省，干岛野牛跳省立公园 (© Darwin Wiggett/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/12.jpg) 
+
+2014-10-11 | [美国加州拉森火山国家公园，火山渣堆下的画丘 (© Kevin Schafer/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/10/11.jpg) 
+
+2014-10-10 | [日本，松本城 (© Mitsushi Okada/orion/Panorama Stock)](https://bing.ee123.net/img/cn/fhd/2014/10/10.jpg) 
+
+2014-10-09 | [德国柏林，2011年灯节，柏林电视塔的细节图 (© Holger Burmeister/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/09.jpg) 
+
+2014-10-08 | [加拿大阿尔伯塔省，瓦特顿湖国家公园，红岩峡谷中的溪水 (© Frank Krahmer/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/10/08.jpg) 
+
+2014-10-07 | [美国科罗拉多州里奇韦附近的达拉斯鸿沟 (© Stephanie Coffman/TandemStock)](https://bing.ee123.net/img/cn/fhd/2014/10/07.jpg) 
+
+2014-10-06 | [希腊特里卡拉，瀑布小桥，秋意浓浓 (© Hercules Milas/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/06.jpg) 
+
+2014-10-05 | [美国加州优胜美地国家公园的教堂顶峰 (© Mark Brodkin/Rex Features)](https://bing.ee123.net/img/cn/fhd/2014/10/05.jpg) 
+
+2014-10-04 | [南乔治亚岛，被小企鹅包围的成年王企鹅 (© Steve Bloom Images/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/10/04.jpg) 
+
+2014-10-03 | [美国航空航天局哈勃太空望远镜中看到的草帽星系(梅西耶104) (© STScI/AURA/NASA)](https://bing.ee123.net/img/cn/fhd/2014/10/03.jpg) 
+
+2014-10-02 | [德国汉堡港口新城，乘坐地铁的人们 (© Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/10/02.jpg) 
+
+2014-10-01 | [菊花特写 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/10/01.jpg) 
+
+2014-09-30 | [2009年10月1日国庆节，天安门广场上空的焰火 (? Yang Lei (c)/Xinhua Press/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/09/30.jpg) 
+
+2014-09-29 | [英格兰，羊与边境柯利牧羊犬 (© Wayne Hutchinson/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/09/29.jpg) 
+
+2014-09-28 | [德国斯图加特附近的霍亨索伦城堡 (© Heinz Wohner/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/28.jpg) 
+
+2014-09-27 | [澳大利亚堪培拉郁金香花展 (© Ginevre Marlow/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/09/27.jpg) 
+
+2014-09-26 | [树蛙 (© TAKAO ONOZATO/amanaimages/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/09/26.jpg) 
+
+2014-09-25 | [广东深圳，欢乐海岸 (© BEIJING BEAUTY VIEW P/View Stock/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2014/09/25.jpg) 
+
+2014-09-24 | [北京，清华大学工字厅 (© Yu Cui)](https://bing.ee123.net/img/cn/fhd/2014/09/24.jpg) 
+
+2014-09-23 | [北京中秋圆明园灯会 (© Liu Xiaoyang/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/09/23.jpg) 
+
+2014-09-22 | [秋日湖面上，多彩树木的倒影 (© MelindaChan/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/22.jpg) 
+
+2014-09-21 | [美国阿拉斯加州，奇奈峡湾国家公园附近的复活湾中的虎鲸 (© Steven Kazlowski/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/09/21.jpg) 
+
+2014-09-20 | [北爱尔兰的和平营地 (© Christopher Hill Photographic/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/09/20.jpg) 
+
+2014-09-19 | [德国慕尼黑啤酒节的摩天轮吊舱 (© Karlheinz Irlmeier/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/09/19.jpg) 
+
+2014-09-18 | [秘鲁坦博帕塔国家自然保护区的金刚鹦鹉 (© Frans Lanting/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/18.jpg) 
+
+2014-09-17 | [漓江风光 (© Sino Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/17.jpg) 
+
+2014-09-16 | [法国哥雷纳昂群岛附近的一艘挖泥船 (© Andia/Latitude Stock)](https://bing.ee123.net/img/cn/fhd/2014/09/16.jpg) 
+
+2014-09-15 | [智利的国家公园内，原驼宝宝藏在妈妈的身下寻求安全感 (© Gavriel Jecan/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/09/15.jpg) 
+
+2014-09-14 | [危地马拉蒂卡尔，玛雅金字塔 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/09/14.jpg) 
+
+2014-09-13 | [加拿大育空地区，北卡诺尔路上被弃用的军用车 (© Robert Postma/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/09/13.jpg) 
+
+2014-09-12 | [巴黎皇家宫殿，文化部 (© Production Perig/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/09/12.jpg) 
+
+2014-09-11 | [美国犹他州，峡谷地国家公园的梅萨拱门 (© Jeff Clay/Tandem Still + Motion)](https://bing.ee123.net/img/cn/fhd/2014/09/11.jpg) 
+
+2014-09-10 | [贵州省铜仁市，梵净山风光 (© Sino Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/10.jpg) 
+
+2014-09-09 | [俯瞰北京长安街 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/09.jpg) 
+
+2014-09-08 | [西班牙韦尔瓦，力拓河 (© David Santiago Garcia/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/09/08.jpg) 
+
+2014-09-07 | [月饼与茶 (© Li Ding/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/09/07.jpg) 
+
+2014-09-06 | [瑞士瓦莱州的瓦莱黑鼻羊 (© NaturePL/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/09/06.jpg) 
+
+2014-09-05 | [挪威斯瓦尔巴特群岛，融水在冰帽上形成的瀑布 (© Ralph Lee Hopkins/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/09/05.jpg) 
+
+2014-09-04 | [博茨瓦纳的禁猎区，倚靠在树上的豹 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/04.jpg) 
+
+2014-09-03 | [美国科罗拉多州，落基山国家公园 (© Dan Ballard/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/09/03.jpg) 
+
+2014-09-02 | [美国加州，死亡谷国家公园内的游人 (© David Hellard/Rex Features)](https://bing.ee123.net/img/cn/fhd/2014/09/02.jpg) 
+
+2014-09-01 | [小东江的捕鱼人 (© Sino Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/09/01.jpg) 
+
+2014-08-31 | [波斯尼亚和黑塞哥维那，苏捷什卡国家公园，二战纪念碑 (© Brendan van Son/Tandem Stills & Motion)](https://bing.ee123.net/img/cn/fhd/2014/08/31.jpg) 
+
+2014-08-30 | [美国夏威夷州，考爱岛的哈纳雷山谷 (© Ian Philip Miller/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/30.jpg) 
+
+2014-08-29 | [四川，熊猫雪天爬树 (© Steve Bloom Images/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/08/29.jpg) 
+
+2014-08-28 | [泰国曼谷附近的水上集市小贩 (© Art Wolfe/Mint Images)](https://bing.ee123.net/img/cn/fhd/2014/08/28.jpg) 
+
+2014-08-27 | [美国，犹他州和亚利桑那州交界处的鲍威尔湖 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/08/27.jpg) 
+
+2014-08-26 | [花栗鼠吃红浆果 (© Takao Onozato/Aflo/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/26.jpg) 
+
+2014-08-25 | [中国灯笼 (© Cheryl Chan/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/25.jpg) 
+
+2014-08-24 | [美国加州洛杉矶郡，罂粟花和鲁冰花 (© Corbis/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/08/24.jpg) 
+
+2014-08-23 | [南非西海岸国家公园，兰格班泻湖 (© Peter Chadwick/Science Photo Library)](https://bing.ee123.net/img/cn/fhd/2014/08/23.jpg) 
+
+2014-08-22 | [北京圆明园，湖中的喷泉 (© zhu difeng/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/08/22.jpg) 
+
+2014-08-21 | [泰国，狗骨岛 (© sripfoto/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/08/21.jpg) 
+
+2014-08-20 | [加拿大贾斯珀国家公园中的骡鹿 (© Robert McGouey/All Canada Photos/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/08/20.jpg) 
+
+2014-08-19 | [马尔代夫群岛的环礁 (© Sakis Papadopoulos/plainpicture)](https://bing.ee123.net/img/cn/fhd/2014/08/19.jpg) 
+
+2014-08-18 | [美国蒙大拿州冰河国家公园内的豪猪 (© D. Robert & Lorri Franz/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/08/18.jpg) 
+
+2014-08-17 | [天池 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/17.jpg) 
+
+2014-08-16 | [澳大利亚昆士兰极北部，丹特里国家公园中被雷击的热带雨林 (© Peter Adams/plainpicture)](https://bing.ee123.net/img/cn/fhd/2014/08/16.jpg) 
+
+2014-08-15 | [印度北方邦，阿格拉古堡 (© Bryan Mullennix/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/08/15.jpg) 
+
+2014-08-14 | [毛里求斯路易港，莲叶上的家八哥 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/14.jpg) 
+
+2014-08-13 | [美国蒙大拿州，班纳克州立公园 (© Jeff Kroeze/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2014/08/13.jpg) 
+
+2014-08-12 | [日本常陆那珂市日立海滨公园，一群孩子走过地肤区域 (© Sankei/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/12.jpg) 
+
+2014-08-11 | [元阳县的银河 (© Nutexzles/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/11.jpg) 
+
+2014-08-10 | [加利亚甜瓜的细节图 (© Nick Fielding/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/08/10.jpg) 
+
+2014-08-09 | [斯洛文尼亚，布列加玛城堡 (© Silanes Travel Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/09.jpg) 
+
+2014-08-08 | [狮鬃水母 (© Andrey Nekrasov/Superstock)](https://bing.ee123.net/img/cn/fhd/2014/08/08.jpg) 
+
+2014-08-07 | [北京市景山公园 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/07.jpg) 
+
+2014-08-06 | [瑞典拉普兰，北极狐的一家子 (© Staffan Widstrand/plainpicture)](https://bing.ee123.net/img/cn/fhd/2014/08/06.jpg) 
+
+2014-08-05 | [西班牙巴利阿里群岛，马略卡岛的福门托尔角 (© Marcos Molina/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/08/05.jpg) 
+
+2014-08-04 | [金山岭长城 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/04.jpg) 
+
+2014-08-03 | [叶片上的蜥蜴影子 (© Steve Satushek/Stone/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/03.jpg) 
+
+2014-08-02 | [南非克鲁格国家公园，在黑斑羚背上的红嘴牛椋鸟 (© Friedrich von Hörsten/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/08/02.jpg) 
+
+2014-08-01 | [哈得逊湾岸边，正在玩闹的北极熊 (© Robert Postma/Design Pics/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/08/01.jpg) 
+
+2014-07-31 | [美国加州波因特阿里纳市的保龄球海滩 (© Patrick Smith/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/31.jpg) 
+
+2014-07-30 | [云南落霞沟的多彩梯田 (© Sino Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/30.jpg) 
+
+2014-07-29 | [土耳其棉花堡 (© Valery Shanin/Shutterstock)](https://bing.ee123.net/img/cn/fhd/2014/07/29.jpg) 
+
+2014-07-28 | [比利时的安特卫普动物园，一只东北虎在游泳 (© Hans Kuczka/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/07/28.jpg) 
+
+2014-07-27 | [法国，博蒙阿梅尔的纽芬兰纪念公园 (© Mary Evans Picture Library Ltd/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/07/27.jpg) 
+
+2014-07-26 | [澳大利亚维多利亚州布莱顿海滩的彩色更衣室 (© J C Mitchell/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/26.jpg) 
+
+2014-07-25 | [美国阿拉斯加州，卡特迈国家公园的潮滩 (© plainpicture/Cultura)](https://bing.ee123.net/img/cn/fhd/2014/07/25.jpg) 
+
+2014-07-24 | [比利时，布鲁日运河 (© Domingo Leiva/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/24.jpg) 
+
+2014-07-23 | [博茨瓦纳的猫鼬 (© Nico Smit/Rex Features)](https://bing.ee123.net/img/cn/fhd/2014/07/23.jpg) 
+
+2014-07-22 | [似伞一般的莲叶 (© MelindaChan/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/22.jpg) 
+
+2014-07-21 | [俄罗斯堪察加半岛的托尔巴奇克火山 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/07/21.jpg) 
+
+2014-07-20 | [意大利，埃奥利群岛，火山 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2014/07/20.jpg) 
+
+2014-07-19 | [月球林奈环形山的色码地势图 (© NASA/GSFC/Arizona State University)](https://bing.ee123.net/img/cn/fhd/2014/07/19.jpg) 
+
+2014-07-18 | [云南罗平的清晨 (© Nutexzles/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/18.jpg) 
+
+2014-07-17 | [四川黄龙五彩池 (© Andy Leong Photography/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/17.jpg) 
+
+2014-07-16 | [德国北莱茵-威斯特法伦州，俯瞰花场 (© Hans Blossey/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/07/16.jpg) 
+
+2014-07-15 | [湖南省，矮寨特大悬索桥 (© Imaginechina/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/07/15.jpg) 
+
+2014-07-14 | [肯尼亚马加迪湖，火烈鸟起飞 (© Bobby Haas/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/14.jpg) 
+
+2014-07-13 | [三峡风光 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/13.jpg) 
+
+2014-07-12 | [巴西里约热内卢，甜面包山和瓜纳巴拉湾 (© Bronek Kaminski/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/12.jpg) 
+
+2014-07-11 | [澳大利亚，维多利亚，丹德农岭，阿尔弗雷德尼古拉斯纪念花园 (© Bob Wickham/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/11.jpg) 
+
+2014-07-10 | [美国新墨西哥州西索科罗，卡尔·扬基甚大天线阵(VLA)射电望远镜 (© Ilya Terentyev/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/10.jpg) 
+
+2014-07-09 | [香港万宜水库，西坝 (© jaylie wong/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/09.jpg) 
+
+2014-07-08 | [中国，内蒙古草原 (© Beijing Eastphoto stockimages Co.,Ltd/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/07/08.jpg) 
+
+2014-07-07 | [瑞士提契诺州，蒙哥诺的圣·乔瓦尼·巴蒂斯塔教堂教堂 (© LOOK/Latitude Stock)](https://bing.ee123.net/img/cn/fhd/2014/07/07.jpg) 
+
+2014-07-06 | [葱翠的银杏叶 (© Borut Trdina/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/06.jpg) 
+
+2014-07-05 | [从国际空间站所看到的里约热内卢和圣保罗 (© Reid Wiseman/NASA)](https://bing.ee123.net/img/cn/fhd/2014/07/05.jpg) 
+
+2014-07-04 | [环法自行车赛选手 (© Tim De Waele/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/07/04.jpg) 
+
+2014-07-03 | [老旧的足球桌 (© Primo Nitka/National Geographic My Shot/National Geographic)](https://bing.ee123.net/img/cn/fhd/2014/07/03.jpg) 
+
+2014-07-02 | [重庆动物园，熊猫咀嚼竹子嫩芽 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/07/02.jpg) 
+
+2014-07-01 | [玻利维亚，拉巴斯 (© Axel Flasbarth/500px)](https://bing.ee123.net/img/cn/fhd/2014/07/01.jpg) 
+
+2014-06-30 | [加拿大不列颠哥伦比亚省，布劳顿群岛 (© Art Wolfe Inc./Mint Images)](https://bing.ee123.net/img/cn/fhd/2014/06/30.jpg) 
+
+2014-06-29 | [挪威，在约伦峡湾之上的孙墨尔阿尔卑斯山 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/06/29.jpg) 
+
+2014-06-28 | [尼日尔，埃尔山脉东部，汇聚在撒哈拉沙漠的雨水 (© Michael Fay/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/06/28.jpg) 
+
+2014-06-27 | [美国缅因州，老兰花海滩的码头 (© Michael Orso/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2014/06/27.jpg) 
+
+2014-06-26 | [云南丽江，东巴文化 (© Bruce Yuanyue Bi/Lonely Planet Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/26.jpg) 
+
+2014-06-25 | [西班牙毕尔巴鄂，古根海姆博物馆 (© Juan Carlos Sancho Folgueiras/500px)](https://bing.ee123.net/img/cn/fhd/2014/06/25.jpg) 
+
+2014-06-24 | [花海 (© Mendowong Photography/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/24.jpg) 
+
+2014-06-23 | [罗马尼亚布科维纳的牧场 (© Photononstop/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/06/23.jpg) 
+
+2014-06-22 | [美国阿肯色普拉斯基县，山湖中的加拿大雁 (© Barry Hamilton/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/06/22.jpg) 
+
+2014-06-21 | [瑞士图尔高州的奶牛 (© plainpicture/Yabo)](https://bing.ee123.net/img/cn/fhd/2014/06/21.jpg) 
+
+2014-06-20 | [太阳耀斑 (© NASA)](https://bing.ee123.net/img/cn/fhd/2014/06/20.jpg) 
+
+2014-06-19 | [暗色桌面上的一碗面 (© feryersan/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/19.jpg) 
+
+2014-06-18 | [身着“正装”的阿德利企鹅 (© Art Wolfe/Iconica/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/18.jpg) 
+
+2014-06-17 | [泰国野生动物保护区内的瀑布 (© Apisit Sriputtirut/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/06/17.jpg) 
+
+2014-06-16 | [青岛夜景 (© MirageC/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/16.jpg) 
+
+2014-06-15 | [西班牙托莱多 (© Pedro Jarque Krebs/500px)](https://bing.ee123.net/img/cn/fhd/2014/06/15.jpg) 
+
+2014-06-14 | [肯尼亚马赛马拉国家公园，非洲狮幼仔与成年雄狮玩耍 (© Suzi Eszterhas/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/06/14.jpg) 
+
+2014-06-13 | [台湾台南七股泻湖 (© Sunrise@dawn Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/13.jpg) 
+
+2014-06-12 | [蒸笼中的蒸馄饨 (© Lauri Patterson/Vetta/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/12.jpg) 
+
+2014-06-11 | [在足球场上用足球组成的一个巨大的巴西国旗 (© Volker Möhrke/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/06/11.jpg) 
+
+2014-06-10 | [厄瓜多尔，科隆群岛，在进行求偶表演的蓝脚鲣(jiān)鸟 (© Scott Davis/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2014/06/10.jpg) 
+
+2014-06-09 | [加拿大不列颠哥伦比亚省，斯阔米什附近的皮划艇手 (© Phil Tifo/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2014/06/09.jpg) 
+
+2014-06-08 | [美国乔治亚州布拉斯敦峰顶的瞭望台 (© Sean Pavone/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/06/08.jpg) 
+
+2014-06-07 | [澳大利亚黑德兰港，雷电风暴切断库克角 (© Simon Phelps Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/07.jpg) 
+
+2014-06-06 | [猪笼草 (© Chien Lee/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/06/06.jpg) 
+
+2014-06-05 | [桂林阳朔在稻田里照料水稻的农夫 (© Bill Bachmann/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/06/05.jpg) 
+
+2014-06-04 | [陕西西安古城墙，身穿秦装的士兵 (© Keren Su/China Span/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/04.jpg) 
+
+2014-06-03 | [印度尼西亚科莫多国家公园，柳珊瑚、海百合与海绵 (© Mammoth HD)](https://bing.ee123.net/img/cn/fhd/2014/06/03.jpg) 
+
+2014-06-02 | [美国宇航局戈达德太空飞行中心，由全球库存建模和映射研究(GIMMS)项目制作的地图 (© NASA)](https://bing.ee123.net/img/cn/fhd/2014/06/02.jpg) 
+
+2014-06-01 | [粽子与粽子叶 (© BJI/Blue Jean Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/06/01.jpg) 
+
+2014-05-31 | [穿着雨衣的儿童 (© Blue Jean Images/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/05/31.jpg) 
+
+2014-05-30 | [厄瓜多尔加拉帕戈斯群岛，一只幼年加拉帕戈斯海狮 (© Michael Durham/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2014/05/30.jpg) 
+
+2014-05-29 | [上海七宝古镇，可爱的红豆兔子 (© Photography by Berengere Treluyer/Moment/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/29.jpg) 
+
+2014-05-28 | [越南下龙湾 (© AirPano)](https://bing.ee123.net/img/cn/fhd/2014/05/28.jpg) 
+
+2014-05-27 | [印刷字母 (© REX/Design Pics Inc)](https://bing.ee123.net/img/cn/fhd/2014/05/27.jpg) 
+
+2014-05-26 | [奥地利格拉茨，穆尔岛 (© REX/WestEnd61)](https://bing.ee123.net/img/cn/fhd/2014/05/26.jpg) 
+
+2014-05-25 | [加拿大不列颠哥伦比亚省温哥华，福溪和科学世界的立体投影 (© Randy Kosek/National Geographic Society/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/05/25.jpg) 
+
+2014-05-24 | [夕阳下雄伟的山川 (© Ka Wing Yu/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/05/24.jpg) 
+
+2014-05-23 | [草地上两只小羊驼 (© Juniors Bildarchiv GmbH/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/05/23.jpg) 
+
+2014-05-22 | [2006年3月南乔治亚岛圣安德鲁斯海湾，国王企鹅与南极海狗 (© Paul Souders/Photodisc/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/22.jpg) 
+
+2014-05-21 | [大西洋灰海豹，宝宝正在努力唤醒它熟睡的妈妈 (© Richard McManus/Moment Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/21.jpg) 
+
+2014-05-20 | [罂粟果实 (© blickwinkel/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/05/20.jpg) 
+
+2014-05-19 | [台北的翠鸟 (© htu/Flickr Select/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/19.jpg) 
+
+2014-05-18 | [以色列，海尔兹利亚 (© Dima Shapira/500px)](https://bing.ee123.net/img/cn/fhd/2014/05/18.jpg) 
+
+2014-05-17 | [美国佛罗里达州，西棕榈滩的房屋 (© Paul Nicklen/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/05/17.jpg) 
+
+2014-05-16 | [新加坡，从裕廊湖眺望裕华园(中国花园) (© Salvador III Manaois/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/05/16.jpg) 
+
+2014-05-15 | [中国传统点心、蜜饯与茶 (© BJI/Blue Jean Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/15.jpg) 
+
+2014-05-14 | [墨西哥钝口螈 (© John Cancalosi/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/14.jpg) 
+
+2014-05-13 | [台湾，日月潭 (© Nicholas Han/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/05/13.jpg) 
+
+2014-05-12 | [捷克共和国，捷克瑞士国家公园 (© Filip Molcan/500px)](https://bing.ee123.net/img/cn/fhd/2014/05/12.jpg) 
+
+2014-05-11 | [黄昏下澳大利亚墨尔本的王子码头 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/11.jpg) 
+
+2014-05-10 | [美国阿拉斯加州安克雷奇，金凯德公园中的驼鹿母子 (© Michael Jones/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/05/10.jpg) 
+
+2014-05-09 | [加拿大马尼托巴省，瓦普斯克国家公园中的北极熊 (© Thomas Kokta/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/09.jpg) 
+
+2014-05-08 | [美国明尼苏达州的土拨鼠 (© Jack Milchanowski/Visuals Unlimited, Inc/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/08.jpg) 
+
+2014-05-07 | [法国巴黎凯旋门 (© Sebastian Helmke/500px)](https://bing.ee123.net/img/cn/fhd/2014/05/07.jpg) 
+
+2014-05-06 | [缅甸敏贡古城的敏贡佛塔遗址 (© David Santiago Garcia/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/05/06.jpg) 
+
+2014-05-05 | [肯尼亚东非大裂谷禁猎区的东非直角长角羚羊群 (© Paul Benson/fotoLibra)](https://bing.ee123.net/img/cn/fhd/2014/05/05.jpg) 
+
+2014-05-04 | [美国加州卡梅尔谷的橡树林 (© Doug Steakley/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/04.jpg) 
+
+2014-05-03 | [印度尼西亚苏拉威西岛唐可可国家公园的成年雄性黑冠猕猴 (© Anup Shah/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/05/03.jpg) 
+
+2014-05-02 | [在纪念品商店出售的传统中国扇子 (© Boaz Rottem/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/02.jpg) 
+
+2014-05-01 | [德国柏林夜晚天际线的微速摄影 (© Schroptschop/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/05/01.jpg) 
+
+2014-04-30 | [美国科罗拉多州国家森林公园的美国湖区 (© Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2014/04/30.jpg) 
+
+2014-04-29 | [美国伊利诺伊州芝加哥市，夜间俯视图 (© Jim Richardson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/29.jpg) 
+
+2014-04-28 | [日落时分，在香港一座山上欣赏元朗区的风光 (© Yiu Yu Hoi/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/28.jpg) 
+
+2014-04-27 | [佛罗里达群岛的普通鬣(liè)蜥 (© Roman Mordashev/500px)](https://bing.ee123.net/img/cn/fhd/2014/04/27.jpg) 
+
+2014-04-26 | [美国俄勒冈州，波特兰市与威拉米特河 (© Ben Coffman Photography/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2014/04/26.jpg) 
+
+2014-04-25 | [墨西哥普埃布拉，圣佩德罗乔卢拉的修道院圣盖博修道院 (© Florian Kopp/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/04/25.jpg) 
+
+2014-04-24 | [西藏拉萨布达拉宫 (© Blaine Harrington III/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/04/24.jpg) 
+
+2014-04-23 | [美国阿拉斯加州，北极野生动物国家保护区内的北极熊 (© Steven Kazlowski/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/04/23.jpg) 
+
+2014-04-22 | [云南大理，挂在店内的彩色灯笼 (© Dave Terry/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/22.jpg) 
+
+2014-04-21 | [2013年1月，北京的清晨 (© CZQS2000/STS/The Image Bank/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/21.jpg) 
+
+2014-04-20 | [美国马萨诸塞州波士顿市的伦纳德·P·扎基姆·邦克山宽体斜拉桥 (© Rick Friedman/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/04/20.jpg) 
+
+2014-04-19 | [小黄鸭 (© Life on White/Purestock/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/04/19.jpg) 
+
+2014-04-18 | [美国华盛顿州，奥林匹克国家公园与拉普什附近的第二滩 (© Ian Shive/Tandem)](https://bing.ee123.net/img/cn/fhd/2014/04/18.jpg) 
+
+2014-04-17 | [意大利白云石山，徒步在塞拉山脉向下看，巴迪亚谷通往瓦尔加迪纳山谷的公路 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2014/04/17.jpg) 
+
+2014-04-16 | [马尔代夫群岛的南苏瓦迪瓦环礁 (© Stuart Westmorland/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/04/16.jpg) 
+
+2014-04-15 | [美国佛罗里达州，杰克逊维尔的近海航道桥下方 (© Greg DiFranza/500px)](https://bing.ee123.net/img/cn/fhd/2014/04/15.jpg) 
+
+2014-04-14 | [桂林漓江 (© AirPano Ltd)](https://bing.ee123.net/img/cn/fhd/2014/04/14.jpg) 
+
+2014-04-13 | [花海与树林 (© Fotosearch/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/13.jpg) 
+
+2014-04-12 | [泰国曼谷大皇宫 (© Amarate Tansawet Gift of Light/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/12.jpg) 
+
+2014-04-11 | [美国夏威夷州库克船长村，露兜树果实上的马达加斯加金粉守宫 (© Mark A. Johnson/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/04/11.jpg) 
+
+2014-04-10 | [南非，布莱德河峡谷的波克幸运壶穴 (© Topic Photo Agency/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/04/10.jpg) 
+
+2014-04-09 | [美国蒙大拿州波兹曼附近的美洲狮幼仔 (© Don Johnston/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/04/09.jpg) 
+
+2014-04-08 | [黄昏时分的上海董家渡，通往南浦大桥的环岛 (© Laurie Noble/The Image Bank/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/08.jpg) 
+
+2014-04-07 | [德国斯图加特，斯图加特市新图书馆 (© Guillaume Rio/500px)](https://bing.ee123.net/img/cn/fhd/2014/04/07.jpg) 
+
+2014-04-06 | [美国阿拉斯加州德纳利国家公园的美洲河狸 (© Eastcott Momatiuk/Masterfile)](https://bing.ee123.net/img/cn/fhd/2014/04/06.jpg) 
+
+2014-04-05 | [意大利奥尔维多，圣帕特里克井 (© José Antonio Moreno/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/04/05.jpg) 
+
+2014-04-04 | [庐山 (© Zoonar GmbH/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/04/04.jpg) 
+
+2014-04-03 | [瑞士贝阿滕贝格附近，贝尔多斯石钟乳石洞 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/03.jpg) 
+
+2014-04-02 | [红土地上空的彩虹 (© Fotosearch/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/04/02.jpg) 
+
+2014-04-01 | [苏格兰的福尔柯克轮 (© David Queenan/500px)](https://bing.ee123.net/img/cn/fhd/2014/04/01.jpg) 
+
+2014-03-31 | [马耳他柯米诺的蓝色礁湖 (© Jason Hawkes)](https://bing.ee123.net/img/cn/fhd/2014/03/31.jpg) 
+
+2014-03-30 | [美国南卡罗来纳州博福特，雄性冠顶秋沙鸭 (© Eric Horan/age fotostock)](https://bing.ee123.net/img/cn/fhd/2014/03/30.jpg) 
+
+2014-03-29 | [法国巴农，薰衣草田 (© Roland Gerth/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/03/29.jpg) 
+
+2014-03-28 | [北京八达岭长城 (© Chua Wee Boo/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2014/03/28.jpg) 
+
+2014-03-27 | [墨西哥坎昆全景 (© AirPano Ltd)](https://bing.ee123.net/img/cn/fhd/2014/03/27.jpg) 
+
+2014-03-26 | [安大略省阿斯本山谷中的三只浣熊 (© Gerry Ellis/Minden Pictures/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/26.jpg) 
+
+2014-03-25 | [夏威夷火山国家公园，在熔岩裂缝中发芽的蕨类植物 (© Frans Lanting Studio/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/03/25.jpg) 
+
+2014-03-24 | [福建永定县的传统客家土楼 (© Kenny Chow Kmdd/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/24.jpg) 
+
+2014-03-23 | [风的全球图 (© NASA)](https://bing.ee123.net/img/cn/fhd/2014/03/23.jpg) 
+
+2014-03-22 | [冰岛黛提瀑布 (© Matthew Eisman/TandemStock)](https://bing.ee123.net/img/cn/fhd/2014/03/22.jpg) 
+
+2014-03-21 | [2012年3月24日湖北宜昌秭归县，在三峡大坝附近放风筝的游人 (© Zheng Jiayu/Xinhua Press/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/03/21.jpg) 
+
+2014-03-20 | [福克兰群岛，出现在国王企鹅领地的绵羊 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/03/20.jpg) 
+
+2014-03-19 | [美国内华达州太浩湖的盆景石 (© Josh Miller/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/03/19.jpg) 
+
+2014-03-18 | [秘鲁马丘比丘印加遗址 (© Image Source/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/03/18.jpg) 
+
+2014-03-17 | [英国北爱尔兰安特里姆郡的巨人堤道 (© Nando Pizzini Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/17.jpg) 
+
+2014-03-16 | [华盛顿州萨米什岛的短耳鸮 (© Bryan Matthew)](https://bing.ee123.net/img/cn/fhd/2014/03/16.jpg) 
+
+2014-03-15 | [美国缅因州阿卡迪亚国家公园的海岸线 (© David Zimmerman/Masterfile)](https://bing.ee123.net/img/cn/fhd/2014/03/15.jpg) 
+
+2014-03-14 | [爱尔兰布伦国家公园内的史前石墓 (© Danita Delimont/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/14.jpg) 
+
+2014-03-13 | [南极洲日落时分的南极海峡 (© Enrique R Aguirre Aves/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/13.jpg) 
+
+2014-03-12 | [新西兰摩拉基巨石 (© Uli Hamacher/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/12.jpg) 
+
+2014-03-11 | [加拿大育空地区的白大角羊 (© Donald M. Jones/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/03/11.jpg) 
+
+2014-03-10 | [加拿大安大略省，多伦多市政厅 (© Michael Woloszynowicz/500px)](https://bing.ee123.net/img/cn/fhd/2014/03/10.jpg) 
+
+2014-03-09 | [印度喀拉拉邦的蒙纳茶园 (© Vidhu S/500px)](https://bing.ee123.net/img/cn/fhd/2014/03/09.jpg) 
+
+2014-03-08 | [俄罗斯圣彼得堡，国际劳动妇女节庆祝活动 (© Yury Goldenshteyn/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/03/08.jpg) 
+
+2014-03-07 | [南非克鲁格国家公园的秘书鸟(蛇鹫) (© Johannes Swanepoel/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/03/07.jpg) 
+
+2014-03-06 | [东方知更鸟，雄性喂食雌性 (© steve greer/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/06.jpg) 
+
+2014-03-05 | [葡萄牙欧里克附近，蒙特·达罗沙大坝的溢洪道 (© André Gonçalves/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/03/05.jpg) 
+
+2014-03-04 | [美国路易斯安那州新奥尔良，狂欢节珠串 (© David H. Lewis/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/03/04.jpg) 
+
+2014-03-03 | [燃烧的蜡烛 (© Mauritius/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/03/03.jpg) 
+
+2014-03-02 | [委内瑞拉的安赫尔瀑布 (© AirPano Ltd)](https://bing.ee123.net/img/cn/fhd/2014/03/02.jpg) 
+
+2014-03-01 | [加拿大马尼托巴省丘吉尔，哈德逊湾的冰流 (© Mike Grandmaison/All Canada Photos/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/03/01.jpg) 
+
+2014-02-28 | [加拿大圣劳伦斯湾的竖琴海豹宝宝 (© Mitsuaki Iwago/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/28.jpg) 
+
+2014-02-27 | [加州约塞米蒂国家公园，日落时分从塔夫脱点观赏马尾瀑布 (© Josh Miller/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2014/02/27.jpg) 
+
+2014-02-26 | [博茨瓦纳的非洲野犬 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/26.jpg) 
+
+2014-02-25 | [长野县落叶松林的上空 (© SHOSEI/Aflo/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/25.jpg) 
+
+2014-02-24 | [华盛顿北瀑布国家公园贝克山滑雪场的滑雪者 (© Jay Goodrich/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2014/02/24.jpg) 
+
+2014-02-23 | [南澳富琳德斯国家公园，大赤袋鼠与它的孩子 (© Peter Walton Photography/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/23.jpg) 
+
+2014-02-22 | [高加索山脉 (© David Trood/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/22.jpg) 
+
+2014-02-21 | [俄罗斯索契冬奥会第8天2014年2月15日，周洋(左)短道速滑女子1500米项目夺冠后激动地抱着李坚柔 (© Xinhua/Wang Haofei/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/21.jpg) 
+
+2014-02-20 | [俄罗斯索契冬奥会第6天2014年2月13日，速度滑冰女子1000米项目金牌得主张虹 (© Quinn Rooney/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/20.jpg) 
+
+2014-02-19 | [俄罗斯索契冬奥会第3天2014年2月10日，男子短道速滑1500米项目竞赛中的韩天宇 (© Streeter Lecka/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/19.jpg) 
+
+2014-02-18 | [覆盖着露水的沙枣果实 (© GYRO Photography/a.collection/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/02/18.jpg) 
+
+2014-02-17 | [奥地利哈尔施塔特小镇上空的星拱 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/17.jpg) 
+
+2014-02-16 | [不丹帕罗宗-日蓬堡的建筑细节 (© Ocean/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/16.jpg) 
+
+2014-02-15 | [加拿大安大略省，大萨德伯里市的白腰朱顶雀 (© Don Johnston/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/15.jpg) 
+
+2014-02-14 | [英国橡木树(英国栎)的橡果特写 (© Nature Picture Library/Britain On View/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/14.jpg) 
+
+2014-02-13 | [所罗门群岛附近，驼峰珊瑚礁上的星空马蹄虫 (© Chris Newbert/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/13.jpg) 
+
+2014-02-12 | [元宵 (© View Stock/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/02/12.jpg) 
+
+2014-02-11 | [怀俄明州黄石国家公园中的黄腹土拨鼠 (© George Sanker/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/02/11.jpg) 
+
+2014-02-10 | [位于冰岛东南部的冰川泻湖 (© Matteo Colombo/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/10.jpg) 
+
+2014-02-09 | [日本飞鸟区 (© Yamaguchi/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/09.jpg) 
+
+2014-02-08 | [英格兰利物浦，便士小巷临街铁门上所展示的披头士 (© Chris Brink/SuperStock)](https://bing.ee123.net/img/cn/fhd/2014/02/08.jpg) 
+
+2014-02-07 | [大曼彻斯特郡斯托克波特市，泰姆河上两只为鱼相争的苍鹭 (© Terry Whittaker/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/07.jpg) 
+
+2014-02-06 | [俄罗斯索契，冰山滑冰宫 (© Lebedev Artur/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/06.jpg) 
+
+2014-02-05 | [哈尔滨冰雪世界 (© Redlink/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/02/05.jpg) 
+
+2014-02-04 | [云海，太阳下山时爬上3600米的牛背山拍摄贡嘎山 (© 4X-image/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/04.jpg) 
+
+2014-02-03 | [国家体育场上空的焰火 (© Kevin Zen/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/02/03.jpg) 
+
+2014-02-02 | [中国吉祥装饰品，荷包 (© Cheryl Chan/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/02.jpg) 
+
+2014-02-01 | [传统剪纸“福”字 (© eastphoto/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/02/01.jpg) 
+
+2014-01-31 | [中国新年装饰，灯笼与福字 (© Li Ding/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/01/31.jpg) 
+
+2014-01-30 | [2013年上海老城隍庙民俗彩灯会，民间传说中的财神 (© Feng Wei Photography/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/30.jpg) 
+
+2014-01-29 | [传统蒸笼内的自制饺子 (© Martí sans/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/01/29.jpg) 
+
+2014-01-28 | [法国国家公园比利牛斯山脉的岩羚羊 (© Preau Louis-Marie/Hemis/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/28.jpg) 
+
+2014-01-27 | [广西龙胜梯田 (© Redlink/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/27.jpg) 
+
+2014-01-26 | [2012年伦敦可口可乐节奏空间，建筑师：Asif Khan & Pernilla Ohrstedt (© Hufton and Crow/VIEW/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/26.jpg) 
+
+2014-01-25 | [澳大利亚斯图尔特石漠里的红大袋鼠 (© Jami Tarris/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/25.jpg) 
+
+2014-01-24 | [瑞士格里姆瑟尔湖上的冰 (© Gozooma/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2014/01/24.jpg) 
+
+2014-01-23 | [希腊喀斯特鲁岛 (© Hercules Milas/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/01/23.jpg) 
+
+2014-01-22 | [挂满红灯笼的中国寺庙 (© CollinsChin/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/22.jpg) 
+
+2014-01-21 | [加拿大西北地区，耶洛奈夫上空的北极光 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/21.jpg) 
+
+2014-01-20 | [俄勒冈州，约翰迪化石床国家纪念碑的画山 (© Anand Hegde)](https://bing.ee123.net/img/cn/fhd/2014/01/20.jpg) 
+
+2014-01-19 | [穆里，雪中坐在石头上的猴子 (© Nadeem Khawar/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/19.jpg) 
+
+2014-01-18 | [瑞士高架桥上的雷蒂亚火车 (© Werner Dieterich/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/18.jpg) 
+
+2014-01-17 | [海洋国家纪念馆，中途岛沙岛上的白燕鸥 (© Tony Ernst)](https://bing.ee123.net/img/cn/fhd/2014/01/17.jpg) 
+
+2014-01-16 | [英国坎布里亚郡，湖区国家公园的大朗戴尔峡谷 (© Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2014/01/16.jpg) 
+
+2014-01-15 | [德国巴伐利亚森林国家公园的结冰小溪 (© Bernadette Schoeller/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/15.jpg) 
+
+2014-01-14 | [荷花 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/14.jpg) 
+
+2014-01-13 | [春景中柔美的蒲公英微距拍摄 (© Anna Omelchenko/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/01/13.jpg) 
+
+2014-01-12 | [雨中的百合 (© FogStock/Alamy)](https://bing.ee123.net/img/cn/fhd/2014/01/12.jpg) 
+
+2014-01-11 | [含苞待放的向日葵 (© Marion Faria/500px)](https://bing.ee123.net/img/cn/fhd/2014/01/11.jpg) 
+
+2014-01-10 | [陕西秦岭的天蚕蛾 (© Thomas Marent/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2014/01/10.jpg) 
+
+2014-01-09 | [英格兰康沃尔郡，圣迈克尔山 (© David Gristwood)](https://bing.ee123.net/img/cn/fhd/2014/01/09.jpg) 
+
+2014-01-08 | [瑞典基律纳，冰旅馆的大堂 (© David Clapp/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/08.jpg) 
+
+2014-01-07 | [美国德克萨斯州沃思堡，沃思堡水上乐园 (© Jeremy Woodhouse/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/07.jpg) 
+
+2014-01-06 | [多米尼加共和国的喀巴里特 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/06.jpg) 
+
+2014-01-05 | [黄喉貂 (© D. Sheldon/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/05.jpg) 
+
+2014-01-04 | [北京市清华大学，水木清华荷花池 (© Yu Cui)](https://bing.ee123.net/img/cn/fhd/2014/01/04.jpg) 
+
+2014-01-03 | [摩洛哥卡萨布兰卡，哈桑二世清真寺下方的土耳其浴室 (© roevin/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/03.jpg) 
+
+2014-01-02 | [怀俄明州黄石国家公园，在喷泉区过冬的北美野牛 (© Jeff Vanuga/Corbis)](https://bing.ee123.net/img/cn/fhd/2014/01/02.jpg) 
+
+2014-01-01 | [西塘夜色 (© shenxy/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2014/01/01.jpg) 
+
+2013-12-31 | [绚烂的烟花绽放在澳门的海湾上空 (© coolbiere photograph/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/12/31.jpg) 
+
+2013-12-30 | [纽约州纽约市，中央公园的弓桥 (© Chuck and Sarah Fishbein/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/12/30.jpg) 
+
+2013-12-29 | [苏格兰的欧亚红松鼠 (© Jules Cox/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2013/12/29.jpg) 
+
+2013-12-28 | [圣文森特和格林纳丁斯，多巴哥珊瑚礁群岛 (© Yann Arthus-Bertrand/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/12/28.jpg) 
+
+2013-12-27 | [一只罕见的远东豹出现在被雪覆盖的堤岸上 (© John Conrad/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/12/27.jpg) 
+
+2013-12-26 | [法国巴黎，香榭丽舍大街 (© tpgimages/Panorama Stock)](https://bing.ee123.net/img/cn/fhd/2013/12/26.jpg) 
+
+2013-12-25 | [波兰克拉科夫的瓦维尔城堡 (© Danuta Hyniewska/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/12/25.jpg) 
+
+2013-12-24 | [韩国京畿(jī)道，晨静树木园 (© Panorama Stock)](https://bing.ee123.net/img/cn/fhd/2013/12/24.jpg) 
+
+2013-12-23 | [美国加州风力发电场的圣诞灯饰 (© Roger Ressmeyer/Corbis/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/12/23.jpg) 
+
+2013-12-22 | [纽约市无线电城音乐厅的内景 (© Littleny/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/12/22.jpg) 
+
+2013-12-21 | [加拿大马尼托巴省的丘吉尔镇附近，赤狐静静地凝望着柳树的枯叶 (© MyLoupe/UIG/Universal Images Group/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/12/21.jpg) 
+
+2013-12-20 | [浙江桐乡乌镇，晾晒的染色丝绸 (© TAO Images Limited/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/12/20.jpg) 
+
+2013-12-19 | [南非鸟类保护区，身着繁殖羽的雄性长尾寡妇鸟(长尾巧织雀) (© Richard Du Toit/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/12/19.jpg) 
+
+2013-12-18 | [毛里求斯，莫纳山与水中小岛 (© Ocean/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/12/18.jpg) 
+
+2013-12-17 | [阿拉斯加州奇奈半岛 (© GeoStills/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/12/17.jpg) 
+
+2013-12-16 | [挪威芬马克，卡拉索克附近村落里的驯鹿 (© GS/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2013/12/16.jpg) 
+
+2013-12-15 | [加利福尼亚州的欧文斯谷中，白杨，柳树，鼠尾草和银鲛的叶景 (© Marc Adamus/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/12/15.jpg) 
+
+2013-12-14 | [长城 (© View Stock/Stock Connection/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/12/14.jpg) 
+
+2013-12-13 | [长城 (© View Stock/Stock Connection/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/12/13.jpg) 
+
+2013-12-12 | [中斑啄木鸟与蓝山雀 (© Naturfoto-Online/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/12/12.jpg) 
+
+2013-12-11 | [土耳其吕基亚，迈拉城的圣诞老人纪念品 (© Kreder Katja/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/12/11.jpg) 
+
+2013-12-10 | [苏格兰爱丁堡城堡 (© Raul Belinchon/Gallery Stock)](https://bing.ee123.net/img/cn/fhd/2013/12/10.jpg) 
+
+2013-12-09 | [秋天的早晨枫树旁，河边饮水的赤狐与倒影 (© Gaertner/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/12/09.jpg) 
+
+2013-12-08 | [黑龙江省哈尔滨市，雨后圣索菲亚大教堂的倒影 (© Wiliam Perry/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/12/08.jpg) 
+
+2013-12-07 | [博茨瓦纳，在奥卡万戈三角洲河漫滩上奔跑的驴羚 (© Sergey Gorshkov/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2013/12/07.jpg) 
+
+2013-12-06 | [冬季的天鹅 (© Wanted Collection/Shotshop GmbH/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/12/06.jpg) 
+
+2013-12-05 | [西澳大利亚沃尔埃恩站的水潭 (© Davide Scagliola/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/12/05.jpg) 
+
+2013-12-04 | [海獭 (© Cameron Rutt/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/12/04.jpg) 
+
+2013-12-03 | [纽约市洛克菲勒中心的圣诞树 (© age fotostock/SuperStock)](https://bing.ee123.net/img/cn/fhd/2013/12/03.jpg) 
+
+2013-12-02 | [南极洲雪丘岛上的帝企鹅幼崽 (© Paul Souders/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/12/02.jpg) 
+
+2013-12-01 | [秋日中还未凋零的美丽红枫 (© age fotostock/Superstock)](https://bing.ee123.net/img/cn/fhd/2013/12/01.jpg) 
+
+2013-11-30 | [中国戏剧演出 (© AFP Creative/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/30.jpg) 
+
+2013-11-29 | [加拿大阿尔伯塔省瓦特顿湖国家公园，熊背山上观景 (© Walter Hsiao)](https://bing.ee123.net/img/cn/fhd/2013/11/29.jpg) 
+
+2013-11-28 | [英国伦敦利物浦街站 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/28.jpg) 
+
+2013-11-27 | [得克萨斯州斯塔尔县，正在吃冬青浆果的沙漠红雀 (© Bill Draker/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/11/27.jpg) 
+
+2013-11-26 | [油与水的抽象，象征光明节(哈努卡节)的圣油 (© Thomas Vogel/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/26.jpg) 
+
+2013-11-25 | [山东青岛海湾大桥鸟瞰图 (© Yan Runbo/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/11/25.jpg) 
+
+2013-11-24 | [摩洛哥梅如卡的耳廓狐 (© Juan Carlos Muñoz/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/11/24.jpg) 
+
+2013-11-23 | [加拿大育空地区的极光与石头人(因努伊特石堆) (© Tom Walker/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/23.jpg) 
+
+2013-11-22 | [莫桑比克马普托，星期六艺术市场的装饰陶壶 (© Ahmed Hudda)](https://bing.ee123.net/img/cn/fhd/2013/11/22.jpg) 
+
+2013-11-21 | [清华大学闻亭小雪 (© Yu Cui)](https://bing.ee123.net/img/cn/fhd/2013/11/21.jpg) 
+
+2013-11-20 | [俄罗斯核动力破冰船亚马尔号停泊在地理北极的冰面上 (© Marketa Jirouskova/ Oxford Scientific/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/20.jpg) 
+
+2013-11-19 | [夏威夷卡拉帕纳，黏稠的火山熔岩从基拉韦厄注入海洋 (© Ron Dahlquist/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/11/19.jpg) 
+
+2013-11-18 | [德国，德绍-沃利茨园林王国 (© Giovanni Simeone/SIME/4Corners)](https://bing.ee123.net/img/cn/fhd/2013/11/18.jpg) 
+
+2013-11-17 | [华盛顿州北瀑布景区公路，国家干线20号段上的路灯 (© Ethan Welty/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2013/11/17.jpg) 
+
+2013-11-16 | [内华达州火焰谷州立公园的彩岩景观 (© Tim Fitzharris/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2013/11/16.jpg) 
+
+2013-11-15 | [德国中弗兰肯的栗子树 (© Rüdiger Hess/geo-select fotoArt)](https://bing.ee123.net/img/cn/fhd/2013/11/15.jpg) 
+
+2013-11-14 | [尼泊尔南池市场，待售的牦牛铃铛 (© Sameer Tejani)](https://bing.ee123.net/img/cn/fhd/2013/11/14.jpg) 
+
+2013-11-13 | [法国下诺曼底，弗约菲梅的袖珍猫头鹰(纵纹腹小鸮) (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/13.jpg) 
+
+2013-11-12 | [刺猬与红苹果 (© Przemyslaw Rzeszutko/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/11/12.jpg) 
+
+2013-11-11 | [南极欺骗岛，三只走步的帽带企鹅 (© blickwinkel/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/11/11.jpg) 
+
+2013-11-10 | [正在吃花的土拨鼠 (© Tom Brakefield/CORBIS)](https://bing.ee123.net/img/cn/fhd/2013/11/10.jpg) 
+
+2013-11-09 | [南佐治亚州财神湾，正在亲吻的一对南极海狗 (© Daisy Gilardini/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/09.jpg) 
+
+2013-11-08 | [大角猫头鹰宝宝 (© Brenda Bradley/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/11/08.jpg) 
+
+2013-11-07 | [西藏拉萨罗布林卡，藏族六弦琴演奏 (© Juliet Coombe/Lonely Planet Images/ Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/07.jpg) 
+
+2013-11-06 | [北京清华大学图书馆老馆 (© Yu Cui/Tsinghua University)](https://bing.ee123.net/img/cn/fhd/2013/11/06.jpg) 
+
+2013-11-05 | [肯尼亚安波塞利国家公园的安波塞利湖 (© Alamy)](https://bing.ee123.net/img/cn/fhd/2013/11/05.jpg) 
+
+2013-11-04 | [山雾 (© KingWu/Vetta/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/04.jpg) 
+
+2013-11-03 | [印尼巴厘岛，小丑鱼，黑边公子小丑 (© Reinhard Dirscherl/Waterframe/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/03.jpg) 
+
+2013-11-02 | [土耳其棉花堡附近的希拉波利斯古城 (© Julian Kaesler/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/11/02.jpg) 
+
+2013-11-01 | [斯洛文尼亚的卢布尔雅那，卢布尔雅那城堡内的螺旋楼梯 (© JTB Media Creation, Inc./Alamy)](https://bing.ee123.net/img/cn/fhd/2013/11/01.jpg) 
+
+2013-10-31 | [两只在枯树枝上玩耍的美洲黑熊幼仔 (© Don Johnston/All Canada Photos/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/31.jpg) 
+
+2013-10-30 | [恐怖电影场景蒙太奇，从左到右《13号星期五》1980，《惊魂记》1960，《鬼驱人》1982，《闪灵》1980，《万圣节》1978，《鬼哭神嚎》1979 (© Ben Erickson/Gary Spradling/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/30.jpg) 
+
+2013-10-29 | [柜子上的一排瓶子 (© Blue Jean Images/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/29.jpg) 
+
+2013-10-28 | [满是中药的药柜 (© Eastphoto/AGE Fotostock)](https://bing.ee123.net/img/cn/fhd/2013/10/28.jpg) 
+
+2013-10-27 | [工匠正在雕刻汉字印章 (© Yi Lu/Viewstock/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/27.jpg) 
+
+2013-10-26 | [算盘 (© William James Warren/Science Faction/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/26.jpg) 
+
+2013-10-25 | [巴西潘塔纳尔，蝴蝶落在凯门鳄身上 (© Frank Lukasseck/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/25.jpg) 
+
+2013-10-24 | [新罕布什尔州巴斯附近，横跨河上的斯威夫特沃特桥 (© Daniel Dempster Photography/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/10/24.jpg) 
+
+2013-10-23 | [远望珠穆朗玛峰 (© Yao Zhou)](https://bing.ee123.net/img/cn/fhd/2013/10/23.jpg) 
+
+2013-10-22 | [九寨沟的惊人美景 (© TCYuen/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/22.jpg) 
+
+2013-10-21 | [哥斯达黎加热带雨林内的蘑菇与红眼树蛙 (© Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2013/10/21.jpg) 
+
+2013-10-20 | [墨西哥格雷罗内洛罗，太平洋沿岸的新月形沙丘 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/20.jpg) 
+
+2013-10-19 | [上海外滩观光隧道 (© Gavin Hellier/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/10/19.jpg) 
+
+2013-10-18 | [葡萄牙辛特拉，雷加莱拉庄园 (© benitojuncal/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/18.jpg) 
+
+2013-10-17 | [日本名古屋附近林荫内的萤火虫，长曝光拍摄 (© Yume Cyan)](https://bing.ee123.net/img/cn/fhd/2013/10/17.jpg) 
+
+2013-10-16 | [美国俄勒冈州佛罗伦萨附近的赫瑟塔滩头灯塔 (© Craig Tuttle/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/10/16.jpg) 
+
+2013-10-15 | [悬挂着的玉米 (© Ben Miller/The Image Bank/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/15.jpg) 
+
+2013-10-14 | [南乔治亚索尔兹伯里平原的国王企鹅和海狗 (© Steve Bloom Images/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/10/14.jpg) 
+
+2013-10-13 | [夕阳下的漓江，渔者正在撒网 (© John Wang/Photographers Choice RF/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/13.jpg) 
+
+2013-10-12 | [中国山东的酒坛 (© Keren Su/China Span/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/12.jpg) 
+
+2013-10-11 | [加拿大新不伦瑞克省，萨克维尔水鸟公园中的高架木栈道和白桦树 (© Dale Wilson/ Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/11.jpg) 
+
+2013-10-10 | [大熊猫宝宝惊喜的笑容 (© Gary Vestal/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/10.jpg) 
+
+2013-10-09 | [新疆天山附近的博尔塔拉县，明媚阳光下的赛里木湖 (© Feng Wei Photography/ Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/09.jpg) 
+
+2013-10-08 | [加拿大纽芬兰岛，博纳维斯塔半岛的海边小径 (© Reinhard Schmid/4Corners)](https://bing.ee123.net/img/cn/fhd/2013/10/08.jpg) 
+
+2013-10-07 | [英国伦敦国家级自然保护区鹿园，里士满公园中的马鹿 (© NHPA/SuperStock)](https://bing.ee123.net/img/cn/fhd/2013/10/07.jpg) 
+
+2013-10-06 | [北京圆明园皇家园林 (© Stock Connection/Superstock)](https://bing.ee123.net/img/cn/fhd/2013/10/06.jpg) 
+
+2013-10-05 | [美国蒙大拿州，弗拉特黑德河谷的黄头黑鹂 (© Steven Gnam/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2013/10/05.jpg) 
+
+2013-10-04 | [上海浦东新区环岛的俯视图 (© Ladislav Pavliha/Vetta/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/04.jpg) 
+
+2013-10-03 | [坦桑尼亚塞伦盖蒂国家公园，暴雨过后咆哮的非洲雄狮 (© Mitsuaki Iwago/Minden Pictures/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/03.jpg) 
+
+2013-10-02 | [头戴圆锥形帽子的巡游者 (© Paul Chesley/National Geographic/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/02.jpg) 
+
+2013-10-01 | [加拿大阿尔伯塔省班夫国家公园的冰碛湖 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/10/01.jpg) 
+
+2013-09-30 | [台湾台北，在阳明山自然公园内观景 (© Eason Lin Ladaga/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/30.jpg) 
+
+2013-09-29 | [云南罗平，水牛车穿过盛开的油菜花田 (© dave stamboulis/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/09/29.jpg) 
+
+2013-09-28 | [加州蒙特利亚半岛17英里环海公路，岩石上的地松鼠 (© Eric Lovelin)](https://bing.ee123.net/img/cn/fhd/2013/09/28.jpg) 
+
+2013-09-27 | [玻利维亚的乌尤尼盐沼 (© Kazuyoshi Nomachi/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/09/27.jpg) 
+
+2013-09-26 | [韩国釜山海云台区 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/26.jpg) 
+
+2013-09-25 | [奥地利维也纳，美泉宫的秋叶 (© Zoonar GmbH/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/09/25.jpg) 
+
+2013-09-24 | [美国加州沙斯塔山 (© Nagesh Mahadev)](https://bing.ee123.net/img/cn/fhd/2013/09/24.jpg) 
+
+2013-09-23 | [加拿大不列颠哥伦比亚省，奥哥那根谷的梨园 (© Henry Georgi/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/23.jpg) 
+
+2013-09-22 | [加拿大不列颠哥伦比亚省，奥哥那根谷的梨园 (© Henry Georgi/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/22.jpg) 
+
+2013-09-21 | [瑞典斯德哥尔摩的地铁站 (© Alexander Dragunov/In cooperation with 500px)](https://bing.ee123.net/img/cn/fhd/2013/09/21.jpg) 
+
+2013-09-20 | [印度尼西亚东爪哇，婆罗摩-腾格尔-斯摩鲁山区国家公园延时曝光拍摄的夜空 (© Weerapong Chaipuck/In cooperation with 500px)](https://bing.ee123.net/img/cn/fhd/2013/09/20.jpg) 
+
+2013-09-19 | [中国科学技术大学，雪后一鉴亭 (© Xiaoping Yang/USTC News Center)](https://bing.ee123.net/img/cn/fhd/2013/09/19.jpg) 
+
+2013-09-18 | [圆月下的白额雁 (© Barbara Rich/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/18.jpg) 
+
+2013-09-17 | [墨西哥卡波圣卢卡斯的橙色走廊 (© Jeremy Woodhouse/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/09/17.jpg) 
+
+2013-09-16 | [新西兰特卡波湖 (© Thienthongthai Worachat/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/16.jpg) 
+
+2013-09-15 | [葡萄牙阿尔加维，阿尔布费拉的海滩日落 (© Cro Magnon/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/09/15.jpg) 
+
+2013-09-14 | [克罗地亚布雷拉海滩的日落 (© Jan Wlodarczyk/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/09/14.jpg) 
+
+2013-09-13 | [智利北部的帕里纳科塔盐湖附近，一只打哈欠的山绒鼠 (© Bob Wickham/Oxford Scientific/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/13.jpg) 
+
+2013-09-12 | [澳大利亚卡里基尼国家公园，戴尔斯峡谷与环形水潭 (© Tomasz Makarewicz/ 360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/09/12.jpg) 
+
+2013-09-11 | [澳大利亚鹈鹕 (© Theo Allofs/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/09/11.jpg) 
+
+2013-09-10 | [海水养殖用竹 (© zhouyousifang/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/10.jpg) 
+
+2013-09-09 | [上海的课堂，学生们积极举手回答问题 (© Justin Guariglia/National Geographic/ Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/09.jpg) 
+
+2013-09-08 | [意大利西西里岛，锡拉库扎的城堡俯视图 (© Antonino Bartuccio/SIME/4Corners)](https://bing.ee123.net/img/cn/fhd/2013/09/08.jpg) 
+
+2013-09-07 | [印尼巴厘岛乌布附近，稻田里的鸭子 (© SuperStock/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/09/07.jpg) 
+
+2013-09-06 | [坦桑尼亚的午后，两只口渴的庭园蜗牛向太阳花花瓣上的水珠挪去，以此来保持湿度 (© twomeows/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/06.jpg) 
+
+2013-09-05 | [北卡罗来纳州外滩的赛马岭，日落时分的巨型泡泡 (© Brooke Mayo Photography/ Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2013/09/05.jpg) 
+
+2013-09-04 | [加州海峡群岛国家公园，阿纳卡帕岛海域中的加州海狮 (© Ian Shive/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2013/09/04.jpg) 
+
+2013-09-03 | [新西兰怀芒古火山谷的煎锅湖 (© Uli Hamacher/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/03.jpg) 
+
+2013-09-02 | [马尔代夫卡夫环礁，虾虎鱼在守护它的卵 (© Jason Isley/Scubazoo)](https://bing.ee123.net/img/cn/fhd/2013/09/02.jpg) 
+
+2013-09-01 | [石榴树 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/09/01.jpg) 
+
+2013-08-31 | [广西桂林阳朔 (© Best View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/31.jpg) 
+
+2013-08-30 | [澳大利亚德赖斯代尔河国家公园中的大雨蛙 (© Thomas Marent/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/08/30.jpg) 
+
+2013-08-29 | [马达加斯加的石榴石原石 (© Walter Geiersperger/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/08/29.jpg) 
+
+2013-08-28 | [印尼布纳肯，一对亲密的麒麟鱼(鳜鱼) (© Martin Strmiska/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/08/28.jpg) 
+
+2013-08-27 | [牧羊 (© Yang Liu/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/08/27.jpg) 
+
+2013-08-26 | [加利福尼亚州圣莫尼卡码头，太平洋公园中的摩天轮 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/26.jpg) 
+
+2013-08-25 | [刚剪过毛的羊驼 (© Barbara Gentile/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/25.jpg) 
+
+2013-08-24 | [北京附近，长城上的情人锁 (© Richard Taylor/4Corners)](https://bing.ee123.net/img/cn/fhd/2013/08/24.jpg) 
+
+2013-08-23 | [爱尔兰基拉尼国家公园内被苔藓覆盖的树木的镜像照片 (© Derek Harris/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/08/23.jpg) 
+
+2013-08-22 | [微距拍摄的梦幻仙境，草地中的蘑菇与露珠 (© Sylvia Cook Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/22.jpg) 
+
+2013-08-21 | [伊朗的岩洞 (© Reza Pazhouhesh/360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/08/21.jpg) 
+
+2013-08-20 | [马尔代夫北马累环礁的俯瞰图 (© Robert Harding Picture Library/Superstock)](https://bing.ee123.net/img/cn/fhd/2013/08/20.jpg) 
+
+2013-08-19 | [云南省普洱市江城县，简易包装的绿茶紧压茶 (© Stefan Auth/imagebroker.net/ Superstock)](https://bing.ee123.net/img/cn/fhd/2013/08/19.jpg) 
+
+2013-08-18 | [希腊圣托里尼岛，夕阳下的伊亚镇 (© John C. House/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/18.jpg) 
+
+2013-08-17 | [加拿大不列颠哥伦比亚省，大熊雨林中的柯莫德熊 (© Ocean/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/08/17.jpg) 
+
+2013-08-16 | [美国加州死亡谷国家公园，扎布里斯基角的侵蚀岩峭壁 (© Dennis Frates/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/08/16.jpg) 
+
+2013-08-15 | [红色缆车驶过香港太平山顶，背景为香港城市风光 (© EIGHTFISH/The Image Bank/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/15.jpg) 
+
+2013-08-14 | [澳大利亚昆士兰湿热带地区的维多利亚裙风鸟 (© S Sailer/A Sailer/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/08/14.jpg) 
+
+2013-08-13 | [加州红杉树国家公园，飘移的雾 (© CorbisMotion)](https://bing.ee123.net/img/cn/fhd/2013/08/13.jpg) 
+
+2013-08-12 | [四川成都，中国传统木偶剧中的情侣 (© Stock Connection/SuperStock)](https://bing.ee123.net/img/cn/fhd/2013/08/12.jpg) 
+
+2013-08-11 | [美国怀俄明州黄石国家公园，田鼠与郊狼 (© D. Robert Franz/Rolf Nussbaumer Photography/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/08/11.jpg) 
+
+2013-08-10 | [美国加州内华达山脉的熊湖盆地 (© Rachid Dahnoun/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/08/10.jpg) 
+
+2013-08-09 | [法国图卢兹加隆河畔的日落 (© Richard Fairless/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/09.jpg) 
+
+2013-08-08 | [台湾屏东的咖啡果实 (© Imagemore/Superstock)](https://bing.ee123.net/img/cn/fhd/2013/08/08.jpg) 
+
+2013-08-07 | [北京水立方内的嬉水乐园 (© HOW HWEE YOUNG/epa/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/08/07.jpg) 
+
+2013-08-06 | [西方蜜蜂 (© Jeridu/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/06.jpg) 
+
+2013-08-05 | [桂林龙胜大寨火把节，每年六月初六的传统节日 (© HAIBO BI/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/05.jpg) 
+
+2013-08-04 | [芝加哥密歇根湖北方大道湖滩 (© Luiz Felipe Castro/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/04.jpg) 
+
+2013-08-03 | [用鸬鹚捕鱼的中国渔民，这种技法正在日渐稀少并消失 (© chinaface/the Agency Collection/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/03.jpg) 
+
+2013-08-02 | [西瓜雕刻 (© Cristina Pedrazzini/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/08/02.jpg) 
+
+2013-08-01 | [北京颐和园 (© Best View Stock/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/08/01.jpg) 
+
+2013-07-31 | [纳米比亚，一群小长颈鹿 (© Jim Zuckerman/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/07/31.jpg) 
+
+2013-07-30 | [俄勒冈州，摩特诺玛瀑布和本森桥 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/30.jpg) 
+
+2013-07-29 | [美国旧金山，金门大桥 (© Yun Gao/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/07/29.jpg) 
+
+2013-07-28 | [爱尔兰，羊头半岛(曼特瓦) (© Ben Hupfer/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/07/28.jpg) 
+
+2013-07-27 | [南澳大利亚霍普金斯岛浅滩，玩耍中的澳洲海狮 (© Michael Patrick ONeill/Photo Researchers/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/27.jpg) 
+
+2013-07-26 | [新西兰南阿尔卑斯山，中奥塔哥地区瓦纳卡湖上空的云海 (© Colin Monteath/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/07/26.jpg) 
+
+2013-07-25 | [浙江省杭州市，在玻璃餐厅享受餐点的人们 (© TAO Images Limited/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/25.jpg) 
+
+2013-07-24 | [冰岛东南部的冰川泻湖 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/24.jpg) 
+
+2013-07-23 | [土耳其伊斯坦布尔，加拉太大桥 (© Xiaodan Zhang/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/07/23.jpg) 
+
+2013-07-22 | [北京清华大学校内的近春园 (© Yu Cui/Tsinghua University)](https://bing.ee123.net/img/cn/fhd/2013/07/22.jpg) 
+
+2013-07-21 | [新疆维吾尔自治区布尔津县的五彩滩 (© WanRu Chen/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/21.jpg) 
+
+2013-07-20 | [四川卧龙舔树皮的小熊猫 (© Thomas Kokta/Peter Arnold Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2013/07/20.jpg) 
+
+2013-07-19 | [挪威卑尔根，拱形杯架和瓷器 (© John Connell/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/19.jpg) 
+
+2013-07-18 | [意大利瓦尔·迪奥西亚公园文化景观，柏树林旁的闪电 (© Martin Ruegner/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/18.jpg) 
+
+2013-07-17 | [亚利桑那州苏派附近的哈瓦苏瀑布 (© Konstantin/360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/07/17.jpg) 
+
+2013-07-16 | [青岛浮山湾夜景 (© Ma Sai/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/16.jpg) 
+
+2013-07-15 | [水面下的宽吻海豚 (© Stephen Frink/The Image Bank/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/15.jpg) 
+
+2013-07-14 | [微笑的浮标 (© Cindy Mcintyre/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/14.jpg) 
+
+2013-07-13 | [法国巴黎亚历山大三世桥上空的焰火 (© AG photographe/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/13.jpg) 
+
+2013-07-12 | [英国康沃尔郡福伊，待售的海胆 (© Silsen Randebrokc/imagebroker.net/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2013/07/12.jpg) 
+
+2013-07-11 | [保加利亚希普卡，巴尔干山头的共产主义纪念碑 (© Xiao Yang/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/07/11.jpg) 
+
+2013-07-10 | [肯尼亚马赛马拉国家保护区内的河马 (© David Tipling/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/07/10.jpg) 
+
+2013-07-09 | [怀俄明州魔鬼塔 (© David Fortney/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/09.jpg) 
+
+2013-07-08 | [新西兰南岛，瓦纳卡小镇 (© Zeyan Li/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/07/08.jpg) 
+
+2013-07-07 | [夏威夷毛伊岛，哈雷阿卡拉国家公园内的滑沙道 (© Ed Freeman/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/07.jpg) 
+
+2013-07-06 | [夜晚在山上露营 (© HAIBO BI/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/06.jpg) 
+
+2013-07-05 | [意大利托斯卡纳，锡耶纳市政厅 (© Joseph Calev)](https://bing.ee123.net/img/cn/fhd/2013/07/05.jpg) 
+
+2013-07-04 | [奥地利上奥地利州萨尔茨卡默古特地区，哈尔施塔特小镇 (© Qianli Zhang/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/07/04.jpg) 
+
+2013-07-03 | [美国俄勒冈州三姐妹自热荒野区的冰洞及水流 (© Marc Adamus/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/03.jpg) 
+
+2013-07-02 | [美国旧金山市的斜坡与房屋 (© Jiecheng Luo/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/07/02.jpg) 
+
+2013-07-01 | [美国犹他州的环尾猫 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/07/01.jpg) 
+
+2013-06-30 | [樱桃番茄 (© Kieran Scott/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/30.jpg) 
+
+2013-06-29 | [蒙古国戈壁沙漠干葛恩沙丘附近，沼泽地上方的桥 (© Franck Guiziou/Hemis/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/29.jpg) 
+
+2013-06-28 | [内蒙古自治区清晨的第一道曙光 (© Phoenix Wang/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/28.jpg) 
+
+2013-06-27 | [加拿大魁北克省，博纳旺蒂尔岛与皮尔斯山岩国家公园中的北方塘鹅 (© Arthur Morris/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/27.jpg) 
+
+2013-06-26 | [伊朗设拉子莫克清真寺(粉红清真寺) (© Zhongke Xie/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/06/26.jpg) 
+
+2013-06-25 | [美国俄勒冈州，加农炮海滩上的草垛岩 (© Clipcanvas)](https://bing.ee123.net/img/cn/fhd/2013/06/25.jpg) 
+
+2013-06-24 | [阿拉斯加的彩虹 (© Chenxi Wang/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/06/24.jpg) 
+
+2013-06-23 | [北京东华门夜市，小吃摊上的水果串 (© Photographers Choice/PNC/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/23.jpg) 
+
+2013-06-22 | [园艺 (© Riccardo Vallini Pics/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/22.jpg) 
+
+2013-06-21 | [午后的伦敦塔桥 (© Huan Zhang/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/06/21.jpg) 
+
+2013-06-20 | [西班牙巴塞罗那，加泰罗尼亚音乐厅的彩绘玻璃天花板 (© Ocean/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/20.jpg) 
+
+2013-06-19 | [日落时分，马六甲海峡边的清真寺 (© Xiao Yang/Photo Contest of qyer.com)](https://bing.ee123.net/img/cn/fhd/2013/06/19.jpg) 
+
+2013-06-18 | [智利百内国家公园上空的云 (© Marcio Cabral/360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/06/18.jpg) 
+
+2013-06-17 | [巴拿马科克莱省佩诺诺梅附近的侏食蚁兽 (© Zizza Gordon/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/06/17.jpg) 
+
+2013-06-16 | [内蒙古自治区莫尔道嘎风光 (© View Stock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/16.jpg) 
+
+2013-06-15 | [正在用喙梳理毛发的成年帝企鹅和幼崽 (© WILDLIFE GmbH/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/06/15.jpg) 
+
+2013-06-14 | [印尼巴厘岛海岸外的鱼群 (© David Fleetham/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2013/06/14.jpg) 
+
+2013-06-13 | [希腊圣托里尼岛伊亚镇的星空 (@Hongyi Jiang/Photo contest of Qyer)](https://bing.ee123.net/img/cn/fhd/2013/06/13.jpg) 
+
+2013-06-12 | [一轮新月下，头戴斗笠的表演者 (© Jonathan Kingston/National Geographic Society/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/12.jpg) 
+
+2013-06-11 | [广西柳州，端午赛龙舟 (© Imaginechina/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/11.jpg) 
+
+2013-06-10 | [夏威夷大岛科纳海岸 (© Bob Glusic/Wilderness Video)](https://bing.ee123.net/img/cn/fhd/2013/06/10.jpg) 
+
+2013-06-09 | [四川成都的街边小吃 (© Peter Adams/Photolibrary/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/09.jpg) 
+
+2013-06-08 | [河北草原，戏水的马群 (© TCYuen/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/08.jpg) 
+
+2013-06-07 | [得克萨斯大学奥斯汀分校布兰顿艺术博物馆，穿“毛线袜”的树 (© Inga Spence/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/06/07.jpg) 
+
+2013-06-06 | [日本京都站入口的天花板 (© Ocean/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/06.jpg) 
+
+2013-06-05 | [美国亚利桑那州科科尼诺县的波浪谷 (© Jia Chen & Tingting Tian/Photo Contest of Qiongyou)](https://bing.ee123.net/img/cn/fhd/2013/06/05.jpg) 
+
+2013-06-04 | [西藏芒康，错落有致的景色 (© Aldo Pavan/Lonely Planet Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/04.jpg) 
+
+2013-06-03 | [不丹帕罗河谷上的虎穴寺 (© Christian Kober/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/06/03.jpg) 
+
+2013-06-02 | [青海省柴达木盆地的沙漠风光，拍摄于2012年10月9日 (© Wang Bo/Xinhua Press/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/02.jpg) 
+
+2013-06-01 | [意大利罗马斗兽场的内景 (© Ken Kaminesky/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/06/01.jpg) 
+
+2013-05-31 | [上学路上，身穿校服的学生的背影 (© Blue Jean Images/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/05/31.jpg) 
+
+2013-05-30 | [奥地利萨尔茨卡默古特湖区的圣沃夫冈湖 (© GT Image/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/30.jpg) 
+
+2013-05-29 | [上海外滩 (© Elysee Shen/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/29.jpg) 
+
+2013-05-28 | [尼泊尔昆布地区的珠峰大本营 (© Kent Harvey/Tandem Stock)](https://bing.ee123.net/img/cn/fhd/2013/05/28.jpg) 
+
+2013-05-27 | [中国景泰蓝花碗 (© Guenter Fischer/imagebroker/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/05/27.jpg) 
+
+2013-05-26 | [雨中的小鸭 (© Nacivet/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/26.jpg) 
+
+2013-05-25 | [瑞典北博滕省萨勒克国家公园 (© Johan Assarsson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/25.jpg) 
+
+2013-05-24 | [丹麦哥本哈根新港运河边的彩色房屋 (© Benjeev Rendhava/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/24.jpg) 
+
+2013-05-23 | [冰岛南部的肖尔索河冰川俯视图 (© David Yarrow Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/23.jpg) 
+
+2013-05-22 | [夏威夷大岛，科纳海岸边的绿海龟 (© Masa Ushioda/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/05/22.jpg) 
+
+2013-05-21 | [甘肃张掖色彩绚丽的丹霞地貌 (© MelindaChan/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/21.jpg) 
+
+2013-05-20 | [月亮水母 (© Hiroya Minakuchi/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2013/05/20.jpg) 
+
+2013-05-19 | [2011年9月17日，在世界最高摩天轮(广州塔摩天轮)上观赏广州夜景的游客 (© Imaginechina/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/05/19.jpg) 
+
+2013-05-18 | [挪威尤通黑门山国家公园内的湖 (© Sylvestre Popinet/Christel Freidel/Minden Pictures)](https://bing.ee123.net/img/cn/fhd/2013/05/18.jpg) 
+
+2013-05-17 | [鸟瞰澳大利亚昆士兰州大堡礁 (© Grant Faint/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/17.jpg) 
+
+2013-05-16 | [勺子里的调味料 (© FotografiaBasica/E+/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/16.jpg) 
+
+2013-05-15 | [红辣椒 (© Photography by Daniel Frauchiger, Switzerland/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/15.jpg) 
+
+2013-05-14 | [八角茴香的特写 (© BJI/Blue Jean Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/14.jpg) 
+
+2013-05-13 | [切成薄片的葱 (© MARTIN RICHARDSON/a.collectionRF/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/13.jpg) 
+
+2013-05-12 | [巴西南马托格罗索州波尼多城附近的岩洞 (© Marcio Cabral/360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/05/12.jpg) 
+
+2013-05-11 | [加拿大不列颠哥伦比亚省优鹤国家公园中的母鸭和幼崽 (© Tibor Bognar/Photononstop/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/11.jpg) 
+
+2013-05-10 | [法国戛纳旧港中停泊的船 (© Alan Copson/age fotostock)](https://bing.ee123.net/img/cn/fhd/2013/05/10.jpg) 
+
+2013-05-09 | [坝上地区的白桦林 (© Li Shao Bai/Redlink/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/05/09.jpg) 
+
+2013-05-08 | [美国马里兰州巴尔的摩港 (© Greg Pease/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/08.jpg) 
+
+2013-05-07 | [坦桑尼亚，微笑的斑马 (© Panoramic Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/07.jpg) 
+
+2013-05-06 | [拍摄于中国上海海岸线附近 (© Li Chengjuns photography/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/06.jpg) 
+
+2013-05-05 | [阿尔及利亚，撒哈拉沙漠内的塔西里国家公园 (© Gil Giuglio/Hemis/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/05/05.jpg) 
+
+2013-05-04 | [青蛙 (© TOPIC PHOTO AGENCY/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2013/05/04.jpg) 
+
+2013-05-03 | [德国凯勒瓦尔德–埃德湖国家公园内的幼苗 (© Frank Krahmer/Stockbyte/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/05/03.jpg) 
+
+2013-05-02 | [清华大学近春园 (© Yu Cui/Tsinghua University)](https://bing.ee123.net/img/cn/fhd/2013/05/02.jpg) 
+
+2013-05-01 | [苏格兰斯凯岛石南花田中的高地牛 (© Frank Krahmer/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/05/01.jpg) 
+
+2013-04-30 | [美国路易斯安那州新奥尔良市法国区典藏厅 (© Cosmo Condina/Superstock)](https://bing.ee123.net/img/cn/fhd/2013/04/30.jpg) 
+
+2013-04-29 | [泰国岗卡章国家公园中的蝴蝶 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/29.jpg) 
+
+2013-04-28 | [桂林龙胜梯田 (© Alexey Galyzin/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/28.jpg) 
+
+2013-04-27 | [蜡烛，佛教仪式 (© GODONG/BSIP/BSIP/SuperStock)](https://bing.ee123.net/img/cn/fhd/2013/04/27.jpg) 
+
+2013-04-26 | [美国俄勒冈州火山口湖上空的银河 (© Nagesh Mahadev)](https://bing.ee123.net/img/cn/fhd/2013/04/26.jpg) 
+
+2013-04-25 | [新疆赛里木湖边的牛群和羊群 (© Feng Wei Photography/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/25.jpg) 
+
+2013-04-24 | [台湾嘉义县的阿里山景区 (© Kyle Lin/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/24.jpg) 
+
+2013-04-23 | [亚利桑那州纳瓦霍族区域的上羚羊峡谷 (© Roy Zipstein/360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/04/23.jpg) 
+
+2013-04-22 | [通过散放水上浮灯，为因灾难而丧生的人们祈祷 (© Brandon Tabiolo/Pacific Stock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2013/04/22.jpg) 
+
+2013-04-21 | [水中漂浮的蜡烛 (© Justyn Olby/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/04/21.jpg) 
+
+2013-04-20 | [夏日果园中的有机酸樱桃 (© Shobeir Ansari/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/20.jpg) 
+
+2013-04-19 | [夏日果园中的有机酸樱桃 (© Shobeir Ansari/Flickr Open/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/19.jpg) 
+
+2013-04-18 | [纳米比亚箭袋树林上空的银河 (© Florian Breuer/NASA)](https://bing.ee123.net/img/cn/fhd/2013/04/18.jpg) 
+
+2013-04-17 | [法恩群岛的岩石峭壁上，一群正在休憩的海鹦 (© Nature Picture Library/Britain On View/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/17.jpg) 
+
+2013-04-16 | [梵蒂冈博物馆内螺旋楼梯 (© Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/16.jpg) 
+
+2013-04-15 | [广州中式面点 (© Ulrike Maier/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/15.jpg) 
+
+2013-04-14 | [重庆古镇待售的竹筒饭 (© Valentino Visentini/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/04/14.jpg) 
+
+2013-04-13 | [新疆馕饼 (© wulingyun/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/13.jpg) 
+
+2013-04-12 | [泰国清迈的一座寺庙 (© WIN-Initiative/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/12.jpg) 
+
+2013-04-11 | [安徽省古徽州的水边民宅建筑 (© View Stock/Stock Connection/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2013/04/11.jpg) 
+
+2013-04-10 | [江西省南昌市滕王阁的藻井 (© TAO Images Limited/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/10.jpg) 
+
+2013-04-09 | [加拿大阿尔伯塔省贾斯珀国家公园内的美洲黑熊宝宝 (© Don Johnston/All Canada Photos/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/04/09.jpg) 
+
+2013-04-08 | [在3600米高的牛背山上拍摄的西藏明亚康佳的景色 (© 4X-image/Stockbyte/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/08.jpg) 
+
+2013-04-07 | [位于英国伦敦的中国餐厅 (© Richard IAnson/Lonely Planet Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/07.jpg) 
+
+2013-04-06 | [生长在马达加斯加热带稀树草原的棕榈树 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/04/06.jpg) 
+
+2013-04-05 | [埃塞俄比亚灼热的火山熔岩湖 (© Dr. Richard Roscoe/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2013/04/05.jpg) 
+
+2013-04-04 | [美国明尼苏达州苹果谷 (© Justin Heglund/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/04.jpg) 
+
+2013-04-03 | [中国婺源乡村风光 (© chinaface/Vetta/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/04/03.jpg) 
+
+2013-04-02 | [四川卧龙国家级自然保护区内的大熊猫 (© Pete Oxford/Danita Delimont)](https://bing.ee123.net/img/cn/fhd/2013/04/02.jpg) 
+
+2013-04-01 | [打字机 (© Beau Lark/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/04/01.jpg) 
+
+2013-03-31 | [智利复活节岛的石像 (© Ocean/Corbis)](https://bing.ee123.net/img/cn/fhd/2013/03/31.jpg) 
+
+2013-03-30 | [乌克兰彩蛋 (© John Esslinger/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/03/30.jpg) 
+
+2013-03-29 | [美国堪萨斯州，正在烧秸秆的麦田 (© Harald Sund/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/03/29.jpg) 
+
+2013-03-28 | [阿根廷巴塔哥尼亚一座死火山上空的荚状高积云 (© David H. Collier/Getty Images)](https://bing.ee123.net/img/cn/fhd/2013/03/28.jpg) 
+
+2013-03-27 | [巴西神秘泻湖的水下景致 (© Marcio Cabral/360cities.net)](https://bing.ee123.net/img/cn/fhd/2013/03/27.jpg) 
+
+2013-03-26 | [德国斯图加特威廉海玛动植物园内的猫鼬 (© imagebroker/Alamy)](https://bing.ee123.net/img/cn/fhd/2013/03/26.jpg) 
+
+2013-03-25 | [橙色晚霞下平静的海面 (© Toby Adamson/Axiom)](https://bing.ee123.net/img/cn/fhd/2013/03/25.jpg) 
+
+2013-03-24 | [苏州工业园区金鸡湖畔摩天轮 (© Baojian Ge/SIP Administrative Committee)](https://bing.ee123.net/img/cn/fhd/2013/03/24.jpg) 
+
+2013-03-23 | [日本常陆那珂市日立海滨公园内的地肤 (© Clover/Superstock)](https://bing.ee123.net/img/cn/fhd/2013/03/23.jpg) 
+
+2013-03-22 | [浙江桐乡乌镇财神湾的夜晚 (© TAO IMAGES/AGE Fotostock)](https://bing.ee123.net/img/cn/fhd/2013/03/22.jpg) 
+
+2013-03-21 | [英国格洛斯特县迪恩森林中游泳的鸳鸯 (© David J Slater/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/21.jpg) 
+
+2013-03-20 | [美国密歇根州马尔凯特河附近的湿地 (© Visuals Unlimited, Inc./Jeff Wickett/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/20.jpg) 
+
+2013-03-19 | [华盛顿特区潮汐湖旁的游人与樱花 (© Stefan Zaklin/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/19.jpg) 
+
+2013-03-18 | [美国加州大苏尔，茱莉亚菲佛尔伯恩斯州立公园 (© Bob Glusic/Wilderness Video) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/18.jpg) 
+
+2013-03-17 | [中国传统文化活字印刷 (© VIEW STOCK RF/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/17.jpg) 
+
+2013-03-16 | [旧金山唐人街的药材铺，挂在装满中药抽屉上的秤 (© Phil Schermeister/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/16.jpg) 
+
+2013-03-15 | [筷子 (© Asia Images Group/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/15.jpg) 
+
+2013-03-14 | [围棋与棋盘的特写 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/14.jpg) 
+
+2013-03-13 | [香港西贡的航空摄影 (© Joe Chen Photography/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/13.jpg) 
+
+2013-03-12 | [加拿大马尼托巴省丘吉尔镇，哈得逊湾附近的北极熊 (© Galen Rowell/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/12.jpg) 
+
+2013-03-11 | [园艺工具 (© fotolinchen/E+/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/11.jpg) 
+
+2013-03-10 | [越南湄公河三角洲，佛教寺庙的碗 (© Alex Craig/Photolibrary/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/10.jpg) 
+
+2013-03-09 | [博茨瓦纳莫瑞米自然保护区内的岩鹭 (© Ben Cranke/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/09.jpg) 
+
+2013-03-08 | [俄勒冈州三姐妹山上空的乌云与闪电 (© Marc Adamus/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/08.jpg) 
+
+2013-03-07 | [身着传统服饰庆祝火把节的彝族女子 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/07.jpg) 
+
+2013-03-06 | [缅因州阿卡迪亚国家公园 (© Nate Parker Maine Photography/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/06.jpg) 
+
+2013-03-05 | [美国田纳西州大烟山国家公园，亚历克斯科尔的小屋 (© Adam Jones/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/05.jpg) 
+
+2013-03-04 | [德国北莱茵-威斯特法伦州加拿大黑雁幼仔 (© ARCO/Wermter, C. Collection/Arco Images/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/04.jpg) 
+
+2013-03-03 | [深秋时分的九寨沟 (© Andy Leong Photography/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/03.jpg) 
+
+2013-03-02 | [连接澳门半岛和凼仔岛的澳凼大桥 (© Huang Xin/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/02.jpg) 
+
+2013-03-01 | [安徽省黄山山脉的小桥 (© Frank Lukasseck/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/03/01.jpg) 
+
+2013-02-28 | [德国石勒苏益格-荷尔斯泰因，躺在沙滩上的灰海豹 (© D Berg/Blickwinkel/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/28.jpg) 
+
+2013-02-27 | [肯尼亚马赛马拉国家自然保护区的一群大象 (© Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/27.jpg) 
+
+2013-02-26 | [广西桂林芦笛岩 (© Shirlyn Loo/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/26.jpg) 
+
+2013-02-25 | [加拿大不列颠哥伦比亚省，南部加里布地区的未名湖 (© Chris Harris/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/25.jpg) 
+
+2013-02-24 | [阿根廷和巴西边界处的伊瓜苏大瀑布国家公园 (© Frans Lanting/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/24.jpg) 
+
+2013-02-23 | [台湾平溪天灯 (© Jung-Pang Wu/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/23.jpg) 
+
+2013-02-22 | [澳大利亚波奴鲁鲁国家公园的“嘣咯嘣咯山” (© Theo Allofs/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/22.jpg) 
+
+2013-02-21 | [苏格兰马里湾，一对瓶鼻海豚跳出水面 (© Charlie Phillips/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/21.jpg) 
+
+2013-02-20 | [落日时分农民排成一排种植水稻 (© Auscape/Universal Images Group/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/20.jpg) 
+
+2013-02-19 | [墨西哥城的革命纪念碑 (© Thom Lang/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/19.jpg) 
+
+2013-02-18 | [国家大剧院的内景 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/18.jpg) 
+
+2013-02-17 | [挂着露珠的蒲公英 (© vkimages/E+/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/17.jpg) 
+
+2013-02-16 | [桂林龙脊梯田 (© Yoshinori Kuwahara/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/16.jpg) 
+
+2013-02-15 | [货运列车 (© View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/15.jpg) 
+
+2013-02-14 | [美国路易斯安那州新奥尔良的法国街区 (© Flirt/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/14.jpg) 
+
+2013-02-13 | [西班牙埃斯特雷马杜拉，在树上栖息的袖珍猫头鹰 (© Werner Bollmann/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/13.jpg) 
+
+2013-02-12 | [鼓 (© Top Photo Group/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/12.jpg) 
+
+2013-02-11 | [中国西安，京剧人偶 (© eastphoto/Flickr Open/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/11.jpg) 
+
+2013-02-10 | [中国“福”剪纸 (© View Stock/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/10.jpg) 
+
+2013-02-09 | [鞭炮的特写 (© PNC/Photodisc/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/09.jpg) 
+
+2013-02-08 | [为迎接龙年，一位书法家在山东省潍坊市书写书法作品 (© Imaginechina/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/08.jpg) 
+
+2013-02-07 | [饺子 (© AStock/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/07.jpg) 
+
+2013-02-06 | [柬埔寨吴哥的西大门 (© Alex Williams) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/06.jpg) 
+
+2013-02-05 | [美国内华达州黑岩沙漠附近的间歇泉 (© Ropelato Photography/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/05.jpg) 
+
+2013-02-04 | [肯尼亚马赛马拉的小猎豹 (© Anup Shah/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/04.jpg) 
+
+2013-02-03 | [风车形状粉色与红色的花 (© Jdnyim/Flickr Open/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/03.jpg) 
+
+2013-02-02 | [红色的中国灯笼 (© Nicolas Grellet/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/02.jpg) 
+
+2013-02-01 | [夏威夷瓦胡岛卡内奥赫湾的沙洲 (© Ron Dahlquist/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/02/01.jpg) 
+
+2013-01-31 | [缅甸掸邦，茵莱湖附近隋燕寺院的小沙弥 (© Angelo Cavalli/age fotostock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/31.jpg) 
+
+2013-01-30 | [冰岛众神瀑布 (© Gavin Hellier/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/30.jpg) 
+
+2013-01-29 | [出售在昆明一家艺术家的店内的瓷柄天然鬃毛笔 (© romana chapman/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/29.jpg) 
+
+2013-01-28 | [瑞士伯尔尼高原，棕熊妈妈与孩子 (© Cornelia Doerr/age fotostock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/28.jpg) 
+
+2013-01-27 | [澳门威尼斯人酒店 (© Best View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/27.jpg) 
+
+2013-01-26 | [马尔代夫南马洛斯马杜卢环礁 (© Sakis Papadopoulos/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/26.jpg) 
+
+2013-01-25 | [印度新德里，巴哈伊莲花庙 (© Renaud Visage/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/25.jpg) 
+
+2013-01-24 | [朝阳下的双子峰 (© Adam Jones/The Image Bank/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/24.jpg) 
+
+2013-01-23 | [四川卧龙，树上的大熊猫宝宝 (© Keren Su/Stone/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/23.jpg) 
+
+2013-01-22 | [湖南省凤凰古城 (© Best View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/22.jpg) 
+
+2013-01-21 | [山西省晋中市乔家大院 (© Huang Xin/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/21.jpg) 
+
+2013-01-20 | [旅人蕉 (© Julian Nieman/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/20.jpg) 
+
+2013-01-19 | [南极洲的帝企鹅，出水后腹部滑行 (© Frans Lanting/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/19.jpg) 
+
+2013-01-18 | [坦桑尼亚桑给巴尔岛的海滩 (© Alvaro Leiva/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/18.jpg) 
+
+2013-01-17 | [于2012年1月3日在哈尔滨举行的第18届全国雪雕大赛中，雪雕选手的护目镜反射出参赛者们的制作场景 (© Wang Kai/Xinhua Press/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/17.jpg) 
+
+2013-01-16 | [夜间的长城与帐篷，高感光度8分钟曝光降噪 (© Andrejs Zemdega/Vetta/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/16.jpg) 
+
+2013-01-15 | [上海浦东区外滩，跳扇子舞的女子 (© Justin Guariglia/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/15.jpg) 
+
+2013-01-14 | [中国西藏江孜白居寺的近景 (© Jim Holmes/Axiom Photographic Agency/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/14.jpg) 
+
+2013-01-13 | [桂林漓江象鼻山 (© Best View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/13.jpg) 
+
+2013-01-12 | [美国纽约州，冰封湖面上的冰钓小屋 (© Dermot Conlan/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/12.jpg) 
+
+2013-01-11 | [法属波利尼西亚，波拉波拉岛的绿海龟 (© Michele Westmorland/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/11.jpg) 
+
+2013-01-10 | [加拿大卑诗省，斯阔米什的林中雪景 (© Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/10.jpg) 
+
+2013-01-09 | [英国伦敦的地铁标志 (© Chris Warren/4Corners) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/09.jpg) 
+
+2013-01-08 | [北京颐和园的石舫 (© Laoshi/Vetta/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/08.jpg) 
+
+2013-01-07 | [山西晋中市王家大院 (© Photographed by Lan Yin/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/07.jpg) 
+
+2013-01-06 | [甘肃郎木寺的喇嘛 (© Jin Xing/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/06.jpg) 
+
+2013-01-05 | [纽约暴风雪后的中央公园 (© Mitchell Funk/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/05.jpg) 
+
+2013-01-04 | [冰城哈尔滨的游览马车 (© Victoria Boland Photography/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/04.jpg) 
+
+2013-01-03 | [女子手捧传统中式婚礼杯 (© Teddy Tsang Photography/Flickr Open/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/03.jpg) 
+
+2013-01-02 | [位于上海的中国传统园林 (© Yiu Yu Hoi/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/02.jpg) 
+
+2013-01-01 | [被风吹动羽毛的雄鸡 (© Little Blue Wolf Productions/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2013/01/01.jpg) 
+
+2012-12-31 | [美国阿拉斯加州的红狐 (© Kennan Ward/Footage Search) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/31.jpg) 
+
+2012-12-30 | [行驶在公路上的小巴 (© Steve J. Benbow/Axiom) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/30.jpg) 
+
+2012-12-29 | [德国雪地中的海狸鼠 (© Naturfoto-Online/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/29.jpg) 
+
+2012-12-28 | [雾气弥漫的云南村庄 (© Thank you for your appreciation/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/28.jpg) 
+
+2012-12-27 | [黄昏时分，桂林漓江上的小船 (© Glowimages/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/27.jpg) 
+
+2012-12-26 | [台湾岛台北县石碇乡的茶田 (© Jung-Pang Wu/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/26.jpg) 
+
+2012-12-25 | [菲律宾吕宋岛，马卡蒂市的节日彩灯 (© Per-Andre Hoffmann/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/25.jpg) 
+
+2012-12-24 | [芬兰的国家公园，云杉森林里的小木屋 (© Jan Tove Johansson/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/24.jpg) 
+
+2012-12-23 | [挪威，汽车为圣诞灯饰供电 (© Jorn Tomter/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/23.jpg) 
+
+2012-12-22 | [西班牙科尔多瓦大清真寺 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/22.jpg) 
+
+2012-12-21 | [意大利热那亚，村庄内的圣诞树 (© Davide Carlo Cenadelli/4Corners) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/21.jpg) 
+
+2012-12-20 | [闪电划过重庆的夜空 (© Viewstock/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/20.jpg) 
+
+2012-12-19 | [澳门观光塔夜景 (© Panther Media/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/19.jpg) 
+
+2012-12-18 | [天山山脉 (© NASA - edited version © Science Faction/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/18.jpg) 
+
+2012-12-17 | [山西云冈石窟 (© View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/17.jpg) 
+
+2012-12-16 | [瑞士，马拉雪橇 (© Sonderegger Christof/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/16.jpg) 
+
+2012-12-15 | [瑞典达拉纳，白雪覆盖着树木和植物 (© Lars Dahlstršm/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/15.jpg) 
+
+2012-12-14 | [法国的法国梧桐小路 (© MOIRENC Camill/hemis.fr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/14.jpg) 
+
+2012-12-13 | [雪地中的雄性北美红雀 (© Robert Shaw/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/13.jpg) 
+
+2012-12-12 | [夜晚的长城 (© Grant Faint/Photographers Choice/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/12.jpg) 
+
+2012-12-11 | [北京2012年2月6日元宵灯会 (© Lintao Zhang/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/11.jpg) 
+
+2012-12-10 | [昆明金碧路的金马碧鸡坊 (© Damien Simonis/Lonely Planet Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/10.jpg) 
+
+2012-12-09 | [雪地中的北极狐宝宝 (© Belinda Images/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/09.jpg) 
+
+2012-12-08 | [河北秦皇岛北戴河鸽子窝景区 (© View Stock/Stock Connection/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/08.jpg) 
+
+2012-12-07 | [法国马恩兰斯圣母大教堂 (© Sylvain Sonnet/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/07.jpg) 
+
+2012-12-06 | [2011年12月，内蒙古自治区呼伦贝尔海拉尔冰雪节的雪雕 (© Yu Changjun/Xinhua Press/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/06.jpg) 
+
+2012-12-05 | [南印度洋上空的南极光 (© NASA) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/05.jpg) 
+
+2012-12-04 | [南极洲雪山岛上的帝企鹅幼仔 (© Keren Su/China Span/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/04.jpg) 
+
+2012-12-03 | [黑龙江省牡丹江市镜泊湖世界地质公园的转心湖 (© TAO Images/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/03.jpg) 
+
+2012-12-02 | [西班牙莱里达省，波依谷地的村庄 (© Luis Sanchez Davilla/360cities.net) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/02.jpg) 
+
+2012-12-01 | [西班牙巴斯克地区戈尔韦亚自然公园内，被苔藓覆盖的树根与红色落叶相映成趣 (© Rosa Isabel Vazquez/plainpicture) ©)](https://bing.ee123.net/img/cn/fhd/2012/12/01.jpg) 
+
+2012-11-30 | [加州约塞米蒂国家公园 (© Doug Meek/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/30.jpg) 
+
+2012-11-29 | [安徽古徽州区域，阳光下的村庄 (© View Stock/Stock Connection/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/29.jpg) 
+
+2012-11-28 | [怀俄明州的冬天，牧人在驱赶夸特马 (© Frank Lukasseck/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/28.jpg) 
+
+2012-11-27 | [泰国清迈省，节日期间放天灯 (© Daniel Osterkamp/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/27.jpg) 
+
+2012-11-26 | [马达加斯加，竹子上的狐猴 (© Olivier Leger/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/26.jpg) 
+
+2012-11-25 | [山海关 (© View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/25.jpg) 
+
+2012-11-24 | [苏格兰爱丁堡卡尔顿山上的斯图尔特纪念碑 (© Doug Pearson/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/24.jpg) 
+
+2012-11-23 | [澳大利亚塔斯马尼亚州摇篮山圣克莱尔湖国家公园 (© Paul Sinclair/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/23.jpg) 
+
+2012-11-22 | [阿根廷冰川国家公园，莫雷诺冰川 (© Escudero Patrick/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/22.jpg) 
+
+2012-11-21 | [堪萨斯州林兹柏格内的农场中，一只羔羊亲吻一只火鸡 (© Joel Sartore/National Geographic/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/21.jpg) 
+
+2012-11-20 | [台湾台东兰屿岛冬青湾 (© Joyoyo Chen/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/20.jpg) 
+
+2012-11-19 | [纳米比亚纳米布兰自然保护区内的斑马群 (© George Steinmetz/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/19.jpg) 
+
+2012-11-18 | [佛罗里达州卡纳维拉尔角的雷电 (© Geo Rittenmyer/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/18.jpg) 
+
+2012-11-17 | [印度普什卡骆驼节，嘶叫中的骆驼 (© John Lund/Stephanie Roeser/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/17.jpg) 
+
+2012-11-16 | [华南理工大学12号楼，凤山雅筑 (© News Centre of SCUT/SCUT) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/16.jpg) 
+
+2012-11-15 | [黄山 (© Alex Cao/The Image Bank/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/15.jpg) 
+
+2012-11-14 | [夏威夷大岛的基拉韦厄火山 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/14.jpg) 
+
+2012-11-13 | [挪威奥斯陆尼达伦地铁站，“隧道之光”中的自动扶梯 (© Bard Johannessen/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/13.jpg) 
+
+2012-11-12 | [安徽宏村桥边的枫树 (© William Yu Photography/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/12.jpg) 
+
+2012-11-11 | [雾气弥漫的湖面上的渔船 (© Blue Jean Images/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/11.jpg) 
+
+2012-11-10 | [幸运卡片 (© picturegarden/Lifesize/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/10.jpg) 
+
+2012-11-09 | [隐藏在雾气中的湖 (© Hanquan Chen/Vetta/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/09.jpg) 
+
+2012-11-08 | [杭州西湖 (© HP Huber/Huber/4Corners Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/08.jpg) 
+
+2012-11-07 | [浙江嘉兴乌镇 (© Astock/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/07.jpg) 
+
+2012-11-06 | [夕阳下的湖面 (© Corbis/AGE Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/06.jpg) 
+
+2012-11-05 | [江苏无锡灵山??梵宫中的飞天雕像 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/05.jpg) 
+
+2012-11-04 | [停泊在英国康沃尔郡彭赞斯港的船 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/04.jpg) 
+
+2012-11-03 | [德国巴登-符腾堡州的利希滕斯坦城堡 (© Jochen Schlenker/Masterfile) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/03.jpg) 
+
+2012-11-02 | [毛伊岛水下新月蝴蝶鱼群的合成图像 (© Pacific Stock-Design Pics/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/02.jpg) 
+
+2012-11-01 | [中国福建传统住房，客家土楼 (© fototrav/Vetta/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/11/01.jpg) 
+
+2012-10-31 | [紫禁城 (© Igor Demchenkov/Vetta/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/31.jpg) 
+
+2012-10-30 | [加拿大安大略省南部被遗弃的旧房子 (© Ron Erwin/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/30.jpg) 
+
+2012-10-29 | [被剥开的豌豆荚 (© Joanna Clegg/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/29.jpg) 
+
+2012-10-28 | [鸟瞰新年期间繁忙的新加坡史密斯街，游客与当地居民一起享受过年的氛围 (© Andrew JK Tan/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/28.jpg) 
+
+2012-10-27 | [拂晓时分薄雾笼罩下的梯田 (© Angelo Cavalli/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/27.jpg) 
+
+2012-10-26 | [北京航空航天大学新主楼秋景 (© Yuqing Guo/Beihang University) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/26.jpg) 
+
+2012-10-25 | [德国易北河谷易北河上的巴斯泰桥 (© Torsten Schmeling/360 Cities) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/25.jpg) 
+
+2012-10-24 | [落日的余辉照耀在西湖上 (© Andy Brandl/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/24.jpg) 
+
+2012-10-23 | [禾木村的清晨，薄雾笼罩大地 (© Feng Wei Photography/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/23.jpg) 
+
+2012-10-22 | [黄山景色 (© ericgood/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/22.jpg) 
+
+2012-10-21 | [台北市场的番石榴 (© Karen Walzer/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/21.jpg) 
+
+2012-10-20 | [印尼巴厘岛附近的小船 (© Sean White/plainpictures) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/20.jpg) 
+
+2012-10-19 | [江苏省南京市南京航空航天大学江宁校区 (© Chaoyang Wang/Nanjing University of Aeronautics and Astronautics) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/19.jpg) 
+
+2012-10-18 | [加拿大西温哥华的灯塔公园 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/18.jpg) 
+
+2012-10-17 | [香港沃玛，楼梯间的小红伞 (© STEPHEN SHAVER/AFP Creative/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/17.jpg) 
+
+2012-10-16 | [北京的王府井天主教堂 (© Luis Castaneda/age fotostock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/16.jpg) 
+
+2012-10-15 | [北京植物园卧佛寺的池塘 (© Christian Kober/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/15.jpg) 
+
+2012-10-14 | [台湾垦丁公园的南湾泳滩 (© Sunrise@dawn Photography/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/14.jpg) 
+
+2012-10-13 | [北京天坛 (© Best View Stock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/13.jpg) 
+
+2012-10-12 | [越南胡志明市天后宫，挂在天花板上的塔香 (© Kimberley Coole/Lonely Planet Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/12.jpg) 
+
+2012-10-11 | [雪鸮 (© Stephen Matera) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/11.jpg) 
+
+2012-10-10 | [意大利乌迪内，栖息在屋顶的白鹳 (© Gabriele Croppi/SIME/4Corners) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/10.jpg) 
+
+2012-10-09 | [云南迪庆藏族自治州，梅里雪山太子十三峰上的佛塔 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/09.jpg) 
+
+2012-10-08 | [香港著名酒店，半岛酒店 (© Lars Ruecker/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/08.jpg) 
+
+2012-10-07 | [柿饼 (© Flirt/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/07.jpg) 
+
+2012-10-06 | [苏格兰希尔湖威廉堡的格兰芬兰纪念碑 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/06.jpg) 
+
+2012-10-05 | [武汉市华中科技大学世界文化名人园 (© Minxin Huang/Huazhong University of Science and Technology) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/05.jpg) 
+
+2012-10-04 | [瑞典拉普兰的北博滕省阿比斯库国家公园的秋色 (© McPHOTO/Blickwinkel/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/04.jpg) 
+
+2012-10-03 | [俄罗斯萨马拉，伏尔加河畔的森林 (© Olga Groza/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/03.jpg) 
+
+2012-10-02 | [新西兰北岛的飞钓者 (© David Lambroughton/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/02.jpg) 
+
+2012-10-01 | [上海市黄浦江畔的金茂大厦 (© José Fuste Raga/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/10/01.jpg) 
+
+2012-09-30 | [北京天安门的红灯笼 (© View Stock/Stock Connection/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/30.jpg) 
+
+2012-09-29 | [傍晚时分，飞过夜空的两只鹤 (© Grant Faint/Digital Vision/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/29.jpg) 
+
+2012-09-28 | [卡马尔格湿地的日出时分，牧马人与一群白马 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/28.jpg) 
+
+2012-09-27 | [美国马萨诸塞州先驱谷地区的秋天 (© Denis Tangney Jr./Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/27.jpg) 
+
+2012-09-26 | [中国西递，鸟儿落在屋脊上 (© Yang Liu/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/26.jpg) 
+
+2012-09-25 | [河北承德的古建筑 (© Fotosearch/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/25.jpg) 
+
+2012-09-24 | [沙漠中的骆驼队 (© Keren Su/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/24.jpg) 
+
+2012-09-23 | [在一片红色阳伞中的蓝色阳伞 (© Lily Chou/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/23.jpg) 
+
+2012-09-22 | [美国北卡罗来纳州大雾山国家公园的秋天 (© Nancy Rotenberg/Danita Delimont) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/22.jpg) 
+
+2012-09-21 | [蒙大拿州的森林中，一只筑巢的浣熊 (© Framepool) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/21.jpg) 
+
+2012-09-20 | [北京香山公园水池内的落叶 (© Liu Xiaoyang/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/20.jpg) 
+
+2012-09-19 | [西藏玛旁雍错湖东岸的玛尼石堆 (© Martin Seeliger/Picture Press/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/19.jpg) 
+
+2012-09-18 | [湖面上的王莲莲叶 (© Panorama Media/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/18.jpg) 
+
+2012-09-17 | [意大利比萨大教堂和钟楼 (© Jean-Pierre Lescourret/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/17.jpg) 
+
+2012-09-16 | [湖南省张家界天门山，一辆汽车驶下通天大道 (© Tom Horton/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/16.jpg) 
+
+2012-09-15 | [法罗群岛，注入大西洋的悬崖瀑布 (© Kimberley Coole/Lonely Planet) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/15.jpg) 
+
+2012-09-14 | [西班牙马拉加省的欧洲蜂虎 (© José Antonio Moreno/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/14.jpg) 
+
+2012-09-13 | [华盛顿地区雷尼尔山国家公园上空的雾 (© Stephen Matera) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/13.jpg) 
+
+2012-09-12 | [泰国艾尤塔雅的柴瓦塔娜兰寺 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/12.jpg) 
+
+2012-09-11 | [黑龙江省镜泊湖国家地质公园 (© TAO IMAGES/agefotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/11.jpg) 
+
+2012-09-10 | [天祝白牦牛 (© Henn Photography/cultura/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/10.jpg) 
+
+2012-09-09 | [日本长崎中国历史博物馆内的孔庙 (© Keith Levit/Design Pics/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/09.jpg) 
+
+2012-09-08 | [新罕布什尔州风光 (© Danita Delimont/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/08.jpg) 
+
+2012-09-07 | [伦敦奥运会水上运动中心的游泳馆 (© GEOFF CADDICK/epa/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/07.jpg) 
+
+2012-09-06 | [河南省三门峡黄河湿地自然保护区内的白天鹅 (© Zhu Xiang/Xinhua Press/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/06.jpg) 
+
+2012-09-05 | [德国巴伐利亚州教堂前的五朔节花柱 (© Guenter Rossenbach/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/05.jpg) 
+
+2012-09-04 | [夏威夷瓦胡岛的沙洲和碧水 (© Lynn Gail/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/04.jpg) 
+
+2012-09-03 | [科罗拉多州大沙丘国家公园内的远足者 (© Glenn Oakley/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/03.jpg) 
+
+2012-09-02 | [法国梧桐的树皮 (© Richard Cummins/CORBIS) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/02.jpg) 
+
+2012-09-01 | [伦敦奥林匹克公园水上运动中心跳台上的马修·米查姆 (© ANDY RAIN/epa/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/09/01.jpg) 
+
+2012-08-31 | [峡谷中的瀑布](https://bing.ee123.net/img/cn/fhd/2012/08/31.jpg) 
+
+2012-08-30 | [陕西秦岭山脉的金丝猴 (© Ma Xiaobo Photography China/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/30.jpg) 
+
+2012-08-29 | [被油菜田和小麦田包围的中国村庄 (© MelindaChan/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/29.jpg) 
+
+2012-08-28 | [英国麦田，联合收割机在工作 (© Corbis Motion) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/28.jpg) 
+
+2012-08-27 | [肃北盐池湾国家级自然保护区内的黑颈鹤 (© Ma Xiaobo Photography China/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/27.jpg) 
+
+2012-08-26 | [冰棍 (© Flirt/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/26.jpg) 
+
+2012-08-25 | [山东青岛黄海边的帆船 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/25.jpg) 
+
+2012-08-24 | [2008年8月6日，北京奥运会奥林匹克公园射箭训练场的箭靶 (© Michael Steele/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/24.jpg) 
+
+2012-08-23 | [德国萨克森州三只将头埋在水中的雁鸭 (© S Meyers/Blickwinkel/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/23.jpg) 
+
+2012-08-22 | [克罗地亚十六湖国家公园 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/22.jpg) 
+
+2012-08-21 | [日本北海道，植物上的瓢虫 (© ASO FUJITA/amanaimagesRF/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/21.jpg) 
+
+2012-08-20 | [湖上小亭 (© JongBeom Kim/TongRo Image Stock/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/20.jpg) 
+
+2012-08-19 | [新疆喀纳斯湖边的小屋 (© Xiaoyang Liu/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/19.jpg) 
+
+2012-08-18 | [爱尔兰梅奥郡阿奇尔岛的羊 (© Maura Molloy) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/18.jpg) 
+
+2012-08-17 | [伦敦奥林匹克公园铜箱馆的彩色座位 (© Edmund Sumner/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/17.jpg) 
+
+2012-08-16 | [马术盛装舞步赛 (© imagebroker.net/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/16.jpg) 
+
+2012-08-15 | [密歇根州南黑文港黑河上的廊桥 (© Tara Vorhes/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/15.jpg) 
+
+2012-08-14 | [广西省，停放在稻田边的自行车 (© Walter Bibikow/Taxi/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/14.jpg) 
+
+2012-08-13 | [停落在草叶上的豹纹蛱蝶 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/13.jpg) 
+
+2012-08-12 | [2012/8/12伦敦奥林匹克体育场，伦敦夏季奥运会闭幕式中的“米”字型舞台俯瞰图 (© Rob Carr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/12.jpg) 
+
+2012-08-11 | [2012年8月5日伦敦温布利体育馆，羽毛球男子单打决赛林丹击败马来西亚选手李宗伟后庆祝夺冠 (© Michael Regan/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/11.jpg) 
+
+2012-08-10 | [2012年8月10日伦敦奥运水上运动中心，花样游泳团体项目自由自选决赛中的中国姑娘们 (© Clive Rose/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/10.jpg) 
+
+2012-08-09 | [伦敦奥林匹克公园水上运动中心跳台上的马修·米查姆 (© ANDY RAIN/epa/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/09.jpg) 
+
+2012-08-08 | [2012年8月8日伦敦ExCeL国际展览中心，吴静钰(左)庆祝女子跆拳道49公斤级决赛胜利 (© Hannah Johnston/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/08.jpg) 
+
+2012-08-07 | [2012年8月7日伦敦奥林匹克体育场内男子110米栏预赛第一轮，刘翔伤后亲吻栏架 (© Cameron Spencer/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/07.jpg) 
+
+2012-08-06 | [2012年8月6日英国韦茅斯波特兰港，帆船激光镭迪尔级女子单人艇徐莉佳夺冠后兴奋尖叫 (© Clive Mason/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/06.jpg) 
+
+2012-08-05 | [2012/8/5伦敦北格林威治体育馆内，男子自由体操决赛中的邹凯 (© Quinn Rooney/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/05.jpg) 
+
+2012-08-04 | [2012年8月4日伦敦奥林匹克体育场男子20公里竞走决赛，陈定冲线后高举双手庆祝夺冠 (© Jeff J Mitchell/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/04.jpg) 
+
+2012-08-03 | [2012年8月3日伦敦温布利体育场羽球混双决赛击败徐晨、马晋组合后，张楠与赵芸蕾庆祝夺冠 (© Michael Regan/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/03.jpg) 
+
+2012-08-02 | [2012年8月2日伦敦ExCeL国际展览中心男单乒乓球金牌争夺战，张继科对阵王皓 (© Feng Li/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/02.jpg) 
+
+2012-08-01 | [2012年7月31日伦敦ExCeL国际展览中心，男子个人花剑决赛雷声击败对手后庆祝夺冠 (© Hannah Johnston/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/08/01.jpg) 
+
+2012-07-31 | [2012年7月31日伦敦奥运水上运动中心内，女子200米个人混合泳决赛中的叶诗文 (© Al Bello/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/31.jpg) 
+
+2012-07-30 | [2012年7月30日伦敦北格林威治体育馆内，男子团体体操决赛中的陈一冰 (© Ronald Martinez/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/30.jpg) 
+
+2012-07-29 | [2012/7/29伦敦夏季奥运会，水上运动中心内女子双人3米跳板决赛中的吴敏霞与何姿 (© Photo by Al Bello/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/29.jpg) 
+
+2012-07-28 | [伦敦奥运会水上运动中心的游泳馆 (© GEOFF CADDICK/epa/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/28.jpg) 
+
+2012-07-27 | [伦敦斯特拉特福奥林匹克体育场 (© Michael Steele/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/27.jpg) 
+
+2012-07-26 | [伦敦奥林匹克公园体育场，安赛乐米塔尔轨道塔和水上运动中心 (© Charles Bowman/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/26.jpg) 
+
+2012-07-25 | [荷兰特克塞尔的反嘴鹬 (© Winfried Wisniewski/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/25.jpg) 
+
+2012-07-24 | [泰国南部海滩上的遮阳伞 (© Ocean/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/24.jpg) 
+
+2012-07-23 | [在阿拉斯加州威廉王子湾梳洗的海獭 (© Donald M. Jones/Minden Pictures/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/23.jpg) 
+
+2012-07-22 | [犹他州纳瓦霍部落公园纪念碑谷 (© Duncan Frazier/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/22.jpg) 
+
+2012-07-21 | [飞跃出水面的海豚 (© Paolo Curto/The Image Bank/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/21.jpg) 
+
+2012-07-20 | [西班牙卡斯蒂利亚-莱昂的向日葵园 (© Jesus Gonzalez/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/20.jpg) 
+
+2012-07-19 | [墨西哥湾的月偏食 (© David Nunuk/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/19.jpg) 
+
+2012-07-18 | [贾斯珀国家公园阿萨巴斯卡瀑布 (© Ken Gillespie/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/18.jpg) 
+
+2012-07-17 | [肯尼亚安波塞利国家公园的大象 (© George Steinmetz/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/17.jpg) 
+
+2012-07-16 | [黄河壶口瀑布 (© View Stock/Stock Connection/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/16.jpg) 
+
+2012-07-15 | [福克兰群岛的黑眉信天翁一家 (© Steve Bloom Images/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/15.jpg) 
+
+2012-07-14 | [英国汉普郡温彻斯特大教堂 (© Peter Lewis/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/14.jpg) 
+
+2012-07-13 | [波兰格但斯克市的老城区 (© Filip Warulik/Alamy) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/13.jpg) 
+
+2012-07-12 | [台湾澎湖双心石沪 (© Lawren/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/12.jpg) 
+
+2012-07-11 | [飞行中的凤蝶 (© Lawren/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/11.jpg) 
+
+2012-07-10 | [地铁终端的玻璃彩绘天花板 (© Dan Hallman/The Image Bank/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/10.jpg) 
+
+2012-07-09 | [夕阳下的风车剪影 (© ychlin/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/09.jpg) 
+
+2012-07-08 | [日月潭 (© JUN/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/08.jpg) 
+
+2012-07-07 | [佐治亚州公园内的喷泉广场 (© Russell Kord/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/07.jpg) 
+
+2012-07-06 | [荷叶 (© Lan Yin/photo contest) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/06.jpg) 
+
+2012-07-05 | [德国巴伐利亚州的篝火 (© Konrad Wothe/Getty images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/05.jpg) 
+
+2012-07-04 | [经过撒哈拉沙漠的骆驼商队 (© Frans Lemmens/Super Stock) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/04.jpg) 
+
+2012-07-03 | [上海外滩观光隧道 (© Dennis Degnan/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/03.jpg) 
+
+2012-07-02 | [阿拉斯加州德纳利国家公园上空的风暴云 (© Ron Niebrugge/CorbisMotion) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/02.jpg) 
+
+2012-07-01 | [天刚亮，捕鱼人已经开始工作 (© MelindaChan/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/07/01.jpg) 
+
+2012-06-30 | [北京故宫博物院 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/30.jpg) 
+
+2012-06-29 | [大西洋亚速尔群岛附近的海豚 (© Wil Meinderts/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/29.jpg) 
+
+2012-06-28 | [云南丽江玉龙雪山前的舞蹈表演 (© Bob Krist/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/28.jpg) 
+
+2012-06-27 | [澳大利亚国家公园内的东部灰大袋鼠 (© Paul Souders/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/27.jpg) 
+
+2012-06-26 | [在水车边钓鱼的男子 (© Michael Townsend/Stone/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/26.jpg) 
+
+2012-06-25 | [在阳光下晾晒的印度纱丽 (© Grant Faint/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/25.jpg) 
+
+2012-06-24 | [吸食花蜜的蜂鸟 (© Kennan Ward/Footage Search) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/24.jpg) 
+
+2012-06-23 | [日本大阪观看棒球比赛的学生 (© Arthur Meyerson/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/23.jpg) 
+
+2012-06-22 | [五颜六色的香 (© Medioimages/Photodisc/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/22.jpg) 
+
+2012-06-21 | [加拿大渥太华国会图书馆 (© Ron Watts/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/21.jpg) 
+
+2012-06-20 | [海边落日 (? Sheng Jiuyong (© GUANGXI)/Xinhua Press/Corbis))](https://bing.ee123.net/img/cn/fhd/2012/06/20.jpg) 
+
+2012-06-19 | [长颈鹿妈妈与它的孩子 (© Pete Mcbride/National Geographic/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/19.jpg) 
+
+2012-06-18 | [在冰上玩耍的北极熊 (© Steven Kazlowski/Science Faction/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/18.jpg) 
+
+2012-06-17 | [南非博茨瓦纳，雄狮与宝宝 (© Fotofeeling/Westend61/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/17.jpg) 
+
+2012-06-16 | [寿带鸟在喂食小宝宝 (© mcb bank bhalwal/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/16.jpg) 
+
+2012-06-15 | [夏威夷考艾岛 (© Frans Lanting/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/15.jpg) 
+
+2012-06-14 | [麒麟座的狐狸皮星云 (© Tony Hallas/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/14.jpg) 
+
+2012-06-13 | [2010年上海世博会的音乐喷泉 (© Yi Lu/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/13.jpg) 
+
+2012-06-12 | [西班牙瓦伦西亚的水族馆 (© Rudi Sebastian/plainpicture) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/12.jpg) 
+
+2012-06-11 | [堪萨斯州博览会的嘉年华游乐设施 (© Joel Sartore/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/11.jpg) 
+
+2012-06-10 | [南极洲的巴布亚企鹅 (© Momatiuk–Eastcott/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/10.jpg) 
+
+2012-06-09 | [怀俄明州黄石国家公园 (© Thomas Kokta/Masterfile) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/09.jpg) 
+
+2012-06-08 | [俄勒冈州的哥伦比亚河峡谷，鹰溪的皮划艇运动员 (© Ty Milford/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/08.jpg) 
+
+2012-06-07 | [意大利卡普里岛附近的船只 (© Glowimages/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/07.jpg) 
+
+2012-06-06 | [纳米比亚的猫鼬 (© Gerard Lacz/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/06.jpg) 
+
+2012-06-05 | [东南大学四牌楼校区逸夫建筑馆 (© Zhongqian Xu/Southeast University) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/05.jpg) 
+
+2012-06-04 | [暮色下的稻田 (© Flirt/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/04.jpg) 
+
+2012-06-03 | [2009年4月6日，在江苏省兴化市附近乘船赏花的游人 (© Wang Kaicheng/Xinhua Press/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/03.jpg) 
+
+2012-06-02 | [纽约大都会歌剧院 (© Richard Cummins/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/02.jpg) 
+
+2012-06-01 | [伦敦白金汉宫的花园内，行进中的女王王室护卫队 (© Chris Jackson/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/06/01.jpg) 
+
+2012-05-31 | [正在玩捉迷藏的小朋友 (© blue jean images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/31.jpg) 
+
+2012-05-30 | [香港海洋公园的缆车 (© Steven Vidler/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/30.jpg) 
+
+2012-05-29 | [开屏的雄孔雀吸引了雌孔雀的关注 (© Dave Blackey/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/29.jpg) 
+
+2012-05-28 | [一天中最后的阳光落在珠穆朗玛峰和附近的山峰上 (© Dan Rafla/Aurora/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/28.jpg) 
+
+2012-05-27 | [黎明时分的薰衣草花田 (© Antony Spencer/Getty images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/27.jpg) 
+
+2012-05-26 | [加州旧金山，沐浴在晚霞中的金门大桥 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/26.jpg) 
+
+2012-05-25 | [纽约州尼亚加拉大瀑布，新娘面纱瀑布“风中洞穴”之旅 (© age fotostock/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/25.jpg) 
+
+2012-05-24 | [黄昏时分，纳米比亚的埃托沙国家公园内的长颈鹿 (© Framepool) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/24.jpg) 
+
+2012-05-23 | [台湾南投县，阳光斜射入云雾缭绕的山谷 (© Artbeats/Baoying Multimedia Technologies Inc.) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/23.jpg) 
+
+2012-05-22 | [南卡罗来纳州春天花朵盛开的桃树果园 (© Harrison Shull/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/22.jpg) 
+
+2012-05-21 | [葡萄牙蓬蒂·迪利马的大街 (© Juan Carlos Zamarreño/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/21.jpg) 
+
+2012-05-20 | [加拿大维多利亚市比根山公园 (© Michael Wheatley/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/20.jpg) 
+
+2012-05-19 | [南京大学仙林校区杜厦图书馆 (© Zewen Gong/Najing University) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/19.jpg) 
+
+2012-05-18 | [布里斯班潮汐区的红树 (© visionandimagination.com/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/18.jpg) 
+
+2012-05-17 | [英国康沃尔郡兰兹角，陆地的尽头 (© Ray Bradshaw/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/17.jpg) 
+
+2012-05-16 | [挪威盖伦格盖朗厄尔峡湾 (© Karsten Bidstrup/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/16.jpg) 
+
+2012-05-15 | [新墨西哥州的美洲驼 (© Ryan Heffernan/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/15.jpg) 
+
+2012-05-14 | [鸟瞰土耳其达利安三角洲 (© Guido Alberto Rossi/Axiom) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/14.jpg) 
+
+2012-05-13 | [西班牙加泰罗尼亚刚剥了树皮的橡树 (© John Miller/plainpicture/Robert Harding) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/13.jpg) 
+
+2012-05-12 | [阿拉斯加州的红狐妈妈 (© Johnny Johnson/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/12.jpg) 
+
+2012-05-11 | [蒙大拿州冰川国家公园盛开的熊草 (© Shannon Nace/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/11.jpg) 
+
+2012-05-10 | [明尼苏达州明尼阿波利斯市 (© Joe Mamer/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/10.jpg) 
+
+2012-05-09 | [英格兰约克郡里沃兹修道院 (© Robert Cousins/Robert Harding/Plain Picture) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/09.jpg) 
+
+2012-05-08 | [墨西哥索诺拉州的舞者 (© Radius/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/08.jpg) 
+
+2012-05-07 | [亚利桑那州仙人掌国家公园 (© Buddy Mays/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/07.jpg) 
+
+2012-05-06 | [堪萨斯州国家自然科学区 (© Charles Gurche/Danita Delimont) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/06.jpg) 
+
+2012-05-05 | [捷克布拉格 (© Reed Kaestner/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/05.jpg) 
+
+2012-05-04 | [西藏林芝风景如画的花谷 (© TAO Images Limited/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/04.jpg) 
+
+2012-05-03 | [科罗拉多州落基山脉的落基山羊 (© David Courtenay/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/03.jpg) 
+
+2012-05-02 | [日本北海道神威岬的日落美景 (© Japan Travel Bureau/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/02.jpg) 
+
+2012-05-01 | [加州死亡谷国家公园 (© Robert Harding World Imagery/Neale Clark/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/05/01.jpg) 
+
+2012-04-30 | [花丛中的雄性蜂鸟 (© Joe McDonald/CORBIS) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/30.jpg) 
+
+2012-04-29 | [弗吉尼亚州殖民地国家历史公园 (© George Steinmetz/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/29.jpg) 
+
+2012-04-28 | [“和平”月季上的雨滴 (© Mark Windom/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/28.jpg) 
+
+2012-04-27 | [炉管海绵形成的天然脸 (© Mauricio Handler/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/27.jpg) 
+
+2012-04-26 | [加州红杉树国家公园 (© William Manning/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/26.jpg) 
+
+2012-04-25 | [英国威尔士的一群家燕 (© David Slater/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/25.jpg) 
+
+2012-04-24 | [夕阳照耀下的罂粟花海 (© Anthony Spencer/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/24.jpg) 
+
+2012-04-23 | [德国石荷州的野生小猪 (© Gerhard Schulz/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/23.jpg) 
+
+2012-04-22 | [伦敦南华克大教堂的天花板 (© Loop Images/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/22.jpg) 
+
+2012-04-21 | [在莫哈韦沙漠的内华达太阳能一号 (© David Nunuk/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/21.jpg) 
+
+2012-04-20 | [华盛顿州西雅图的太空针塔 (© Lonnye Bower) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/20.jpg) 
+
+2012-04-19 | [带着耕牛前去工作的农夫 (© Chuteiklim ARPS, Hon FPSS/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/19.jpg) 
+
+2012-04-18 | [大开曼岛的幼年绿海龟 (© Stephen Frink/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/18.jpg) 
+
+2012-04-17 | [哥伦比亚北部的绒顶柽柳猴 (© Thomas Marent/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/17.jpg) 
+
+2012-04-16 | [仙人掌 (© Flowerphotos/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/16.jpg) 
+
+2012-04-15 | [加州隆波克的花卉农场 (© Craig Aurness/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/15.jpg) 
+
+2012-04-14 | [墨西哥尤卡坦半岛的鸽子宫 (© Kenneth Garrett/National Geographic/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/14.jpg) 
+
+2012-04-13 | [密歇根州豪猪山脉的小溪 (© Ron Strong/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/13.jpg) 
+
+2012-04-12 | [在尼泊尔加德满都待售的粉状颜料 (© Dinodia/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/12.jpg) 
+
+2012-04-11 | [地球从月球平面升起的合成图 (© Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/11.jpg) 
+
+2012-04-10 | [日本京都伏见稻荷大社的千本鸟居 (© Rudy Sulgan/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/10.jpg) 
+
+2012-04-09 | [伊利诺伊州动物园的一只土拨鼠 (© Tim Boyle/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/09.jpg) 
+
+2012-04-08 | [鸟瞰巴哈马海岸 (© Jeremy Woodhouse/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/08.jpg) 
+
+2012-04-07 | [三只坐在草地上的兔子 (© Image Source Ltd./Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/07.jpg) 
+
+2012-04-06 | [坦桑尼亚的巨型半边莲属植物 (© Oleg Bulanyy) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/06.jpg) 
+
+2012-04-05 | [得克萨斯州铁轨上的矢车菊 (© Jeremy Woodhouse/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/05.jpg) 
+
+2012-04-04 | [苏格兰爱丁堡福斯铁路桥 (© Christopher Belsten/Getty) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/04.jpg) 
+
+2012-04-03 | [乌云下，西湖桥上的行人 (© Jon Hicks/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/03.jpg) 
+
+2012-04-02 | [摩纳哥蒙特卡洛的夜景 (© Sergio Pitamitz/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/02.jpg) 
+
+2012-04-01 | [佛罗里达州萨尼贝尔岛的鹬群 (© Bill Gozansky/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/04/01.jpg) 
+
+2012-03-31 | [加拿大班夫国家公园的鸦脚山 (© Daisy Gilardini/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/31.jpg) 
+
+2012-03-30 | [法国巴黎埃菲尔铁塔 (© Jamie Beck and Kevin Burg. Courtesy of the City of Paris and the operator of the Eiffel Tower. © Pierre Bideau for the lighting of the Eiffel Tower) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/30.jpg) 
+
+2012-03-29 | [日本伊豆的黄昏 (© Tommy Tsutsui/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/29.jpg) 
+
+2012-03-28 | [印尼西苏门答腊的大王花 (© Fadil/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/28.jpg) 
+
+2012-03-27 | [西班牙马德里的塞戈维亚桥 (© María Galán/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/27.jpg) 
+
+2012-03-26 | [华盛顿杰弗逊纪念堂前的樱花架 (© Degree/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/26.jpg) 
+
+2012-03-25 | [德国科隆大教堂 (© E. Teister/Blickwinkel/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/25.jpg) 
+
+2012-03-24 | [南极洲罗斯岛伊里布斯山北侧的冰洞 (© George Steinmetz/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/24.jpg) 
+
+2012-03-23 | [鸟瞰乌拉圭成熟的稻田 (© Guillermo Robles/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/23.jpg) 
+
+2012-03-22 | [蒙大拿州草原的雷雨 (© Artbeats) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/22.jpg) 
+
+2012-03-21 | [印度泰姬陵附近的顶坛女人 (© Peter Adams/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/21.jpg) 
+
+2012-03-20 | [澳大利亚宁格鲁礁的鲸鲨 (© Franco Banfi/WaterFrame/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/20.jpg) 
+
+2012-03-19 | [早春的报春花 (© Don Johnston/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/19.jpg) 
+
+2012-03-18 | [英国苏格兰斯凯岛的高地牛 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/18.jpg) 
+
+2012-03-17 | [马达加斯加变色龙的尾巴 (© Joe McDonald/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/17.jpg) 
+
+2012-03-16 | [爱尔兰首都都柏林 (© Design Pics/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/16.jpg) 
+
+2012-03-15 | [印度枯叶蝶 (© James H Robinson/Photo Researchers/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/15.jpg) 
+
+2012-03-14 | [伪装中的兰花螳螂 (© FLPA/Bill Coster/agefotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/14.jpg) 
+
+2012-03-13 | [海参背上的圆球光背蟹 (© Stephen Frink/Lifesize/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/13.jpg) 
+
+2012-03-12 | [印尼登巴萨沙滩上的传统渔船 (© Tim Mannakee/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/12.jpg) 
+
+2012-03-11 | [纳米比亚死亡谷内的枯树 (© Frank Krahmer/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/11.jpg) 
+
+2012-03-10 | [马达加斯加西部的猴面包树大道 (© Nigel Pavitt/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/10.jpg) 
+
+2012-03-09 | [波兰首都华沙的老城集市广场 (© Keren Su/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/09.jpg) 
+
+2012-03-08 | [德克萨斯州奥斯汀上空的墨西哥无尾蝙蝠 (© imagebroker.net/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/08.jpg) 
+
+2012-03-07 | [街头准备表演的芭蕾女孩 (© Malcolm Ainsworth/Flickr/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/07.jpg) 
+
+2012-03-06 | [锦灯笼 (© Skip Moody-Rainbow/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/06.jpg) 
+
+2012-03-05 | [华盛顿州雷尼尔山国家公园 (© Stephen Matera) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/05.jpg) 
+
+2012-03-04 | [紧紧蜷缩在巢内冬眠的榛睡鼠 (© Nature Picture Library/Britain On View/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/04.jpg) 
+
+2012-03-03 | [康涅狄格州哈特福德市 (© Enzo Figueres/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/03.jpg) 
+
+2012-03-02 | [阿拉斯加州2005年艾迪塔罗德狗拉雪橇赛 (© AlaskaStock/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/02.jpg) 
+
+2012-03-01 | [俄勒冈州海岸线风光 (© Tanmay Ganacharya) ©)](https://bing.ee123.net/img/cn/fhd/2012/03/01.jpg) 
+
+2012-02-29 | [威尔士加的夫城堡前的黄水仙 (© SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/29.jpg) 
+
+2012-02-28 | [跳跃的西部绿树蛙 (© David A. Northcott/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/28.jpg) 
+
+2012-02-27 | [阿拉斯加世界冰雕艺术锦标赛作品 (© Patrick Endres/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/27.jpg) 
+
+2012-02-26 | [马来西亚马布岛的黄多带海龙 (? David B Fleetham/Oxford Scientific (© OSF)/Photolibrary))](https://bing.ee123.net/img/cn/fhd/2012/02/26.jpg) 
+
+2012-02-25 | [亚利桑那州大峡谷国家公园 (© Jean-Pierre Lescourret/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/25.jpg) 
+
+2012-02-24 | [越南广宁省下龙湾 (© Mark Daffey/Lonely Planet) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/24.jpg) 
+
+2012-02-23 | [环斑海豹 (© Tsuneo Nakamura/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/23.jpg) 
+
+2012-02-22 | [西维吉尼亚州新河峡大桥 (© Timothy Mainiero/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/22.jpg) 
+
+2012-02-21 | [棕榈叶 (© Gary W. Carter/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/21.jpg) 
+
+2012-02-20 | [从挂满灯笼的寺庙看向远处的台北101 (© Marc Dozier/Hemis/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/20.jpg) 
+
+2012-02-19 | [香港海洋公园 (© Best View Stock/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/19.jpg) 
+
+2012-02-18 | [悬挂在叶子上的水滴 (© Natural Selection Robert Cable/DesignPics/Aurora Photo) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/18.jpg) 
+
+2012-02-17 | [新墨西哥州罗斯威尔裂开的岩石 (© John B. Carnett/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/17.jpg) 
+
+2012-02-16 | [水晶河内的佛罗里达海牛 (© Wayne Lynch/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/16.jpg) 
+
+2012-02-15 | [日本地狱谷温泉内的日本猕猴 (© Peter Adams Photography Ltd./Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/15.jpg) 
+
+2012-02-14 | [鸟瞰阿根廷冰川国家公园 (© Michele Molinari/Danita Delimont) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/14.jpg) 
+
+2012-02-13 | [荷包牡丹 (© Travel Ink/Gallo Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/13.jpg) 
+
+2012-02-12 | [德国利尔几何修剪的树木园区 (© Karl Johaentges/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/12.jpg) 
+
+2012-02-11 | [美国俄勒冈会议中心 (© Janis Miglavs/Danita Delimont) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/11.jpg) 
+
+2012-02-10 | [英国纽卡斯尔的“眨眼桥” (© Ian Cumming/Axiom) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/10.jpg) 
+
+2012-02-09 | [日本北海道札幌冰雪节的雪雕 (© Lucas Vallecillos/age footstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/09.jpg) 
+
+2012-02-08 | [夕阳下的加州圣莫尼卡海滩 (© Clipcanvas) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/08.jpg) 
+
+2012-02-07 | [西班牙韦尔瓦省的生物圈保护区 (© Martin Ruegner/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/07.jpg) 
+
+2012-02-06 | [阿尔伯塔省贾斯珀国家公园 (© Tony Ernst) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/06.jpg) 
+
+2012-02-05 | [中国灯笼 (© Steve Taylor/Photographers Choice/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/05.jpg) 
+
+2012-02-04 | [西澳大利亚州鲨鱼湾的叠层石 (© Frans Lanting/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/04.jpg) 
+
+2012-02-03 | [桃花枝上的小鸟 (© Tohoku Color Agency/Japan Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/03.jpg) 
+
+2012-02-02 | [在夕阳下跳跃的宽吻海豚 (© Tom Brakefield/Stockbyte/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/02.jpg) 
+
+2012-02-01 | [向船内偷窥的北极熊 (© Arndt Sven-Erik/ArTerra Picture Library/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2012/02/01.jpg) 
+
+2012-01-31 | [加拿大萨斯喀彻温省冬日觅食的豪猪 (© Wayne Lynch/All Canada Photos/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/31.jpg) 
+
+2012-01-30 | [红狐 (© Yukihiro Fukuda/Aflo Foto Agency/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/30.jpg) 
+
+2012-01-29 | [中国成都保护区内的小熊猫 (© Sue Bishop/Oxford Scientific/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/29.jpg) 
+
+2012-01-28 | [德国小岛的香蕉叶特写 (© Egon Bömsch/Age footstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/28.jpg) 
+
+2012-01-27 | [智利卡雷拉湖大理石洞穴 (© Danita Delimont/Gallo Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/27.jpg) 
+
+2012-01-26 | [中国刺绣特写 (© Tom Nebbia/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/26.jpg) 
+
+2012-01-25 | [北京的中国剧院 (© Peter Adams/JAI/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/25.jpg) 
+
+2012-01-24 | [中国红包 (© Asia Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/24.jpg) 
+
+2012-01-23 | [毛笔书法 (© Fuse/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/23.jpg) 
+
+2012-01-22 | [模具特写 (© Henry Gan/Photodisc/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/22.jpg) 
+
+2012-01-21 | [马来西亚槟榔屿极乐寺的焰火 (© Tan Lian Hock/Asia RM/Age footstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/21.jpg) 
+
+2012-01-20 | [夕阳下的滑雪者 (© Felix Rioux/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/20.jpg) 
+
+2012-01-19 | [南乔治亚岛的王企鹅群 (© Frans Lanting/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/19.jpg) 
+
+2012-01-18 | [苏格兰圣基尔达群岛峭壁上空的海鸟群 (© Jim Richardson/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/18.jpg) 
+
+2012-01-17 | [澳大利亚堪培拉的联邦广场 (© Richard IAnson/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/17.jpg) 
+
+2012-01-16 | [法国巴黎艺术桥 (© Maurizio Rellini/SIME/4Corbers) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/16.jpg) 
+
+2012-01-15 | [挪威罗弗敦群岛的雷讷渔村 (© Frank Krahmer/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/15.jpg) 
+
+2012-01-14 | [伦敦大英博物馆的屋顶 (© D.V.A./age footstock) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/14.jpg) 
+
+2012-01-13 | [大高加索山脉乌什巴山双子峰 (© Brooks Kraft/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/13.jpg) 
+
+2012-01-12 | [印度喀拉拉邦附近夕阳下的渔夫 (© Anders Blomqvist/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/12.jpg) 
+
+2012-01-11 | [加拿大阿尔伯塔省的大角猫头鹰 (© Wayne Lynch/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/11.jpg) 
+
+2012-01-10 | [摩洛哥马拉喀什的集市 (© Peter Adams Photography Ltd./Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/10.jpg) 
+
+2012-01-09 | [洛杉矶国际机场的遇见餐厅 (© Tom Paiva/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/09.jpg) 
+
+2012-01-08 | [螳螂 (© Norbert Wu/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/08.jpg) 
+
+2012-01-07 | [西雅图华盛顿大学图书馆 (© Michael T. Sedam/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/07.jpg) 
+
+2012-01-06 | [澳大利亚圣克莱尔湖国家公园 (© Rob Blakers/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/06.jpg) 
+
+2012-01-05 | [北京箭扣长城的雪景 (© Fotosearch/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/05.jpg) 
+
+2012-01-04 | [鸟瞰法国马提尼克岛的海滩码头 (© Guido Alberto Rossi/Axiom) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/04.jpg) 
+
+2012-01-03 | [缅甸古城蒲甘 (© Philippe Body/Hemis/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/03.jpg) 
+
+2012-01-02 | [意大利小镇的涂鸦街 (© SIME/eStock Photos) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/02.jpg) 
+
+2012-01-01 | [德国巴登符腾堡州黑森林的晨雾 (© PS Belenos/Huber/4Corners) ©)](https://bing.ee123.net/img/cn/fhd/2012/01/01.jpg) 
+
+2011-12-31 | [北京紫禁城的日出 (© Travelasia/Asia Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/31.jpg) 
+
+2011-12-30 | [香港维多利亚港上空的焰火 (© Chan Yat Nin/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/30.jpg) 
+
+2011-12-29 | [德国斯图加特的碰碰车 (© Panoramic Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/29.jpg) 
+
+2011-12-28 | [德克萨斯州达拉斯州会厅 (© Matt Pasant/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/28.jpg) 
+
+2011-12-27 | [北极熊在冰冻的波弗特海上滚动 (© Patrick J. Endres/Visuals Unlimited) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/27.jpg) 
+
+2011-12-26 | [纽约大都会艺术博物馆的埃及神庙 (© Lynn Saville/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/26.jpg) 
+
+2011-12-25 | [睡在雪中的北极狐 (© Richard Hamilton Smith/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/25.jpg) 
+
+2011-12-24 | [壁炉中的火焰 (© Tetra Images/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/24.jpg) 
+
+2011-12-23 | [装饰着圣诞彩灯的房屋 (© Artbeats/Rubberball) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/23.jpg) 
+
+2011-12-22 | [圣诞树农场 (© Ocean/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/22.jpg) 
+
+2011-12-21 | [前门乐器店的古筝 (© Phil Weymouth/Lonely Planet) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/21.jpg) 
+
+2011-12-20 | [巴黎老佛爷百货公司 (© WIN-Initiative/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/20.jpg) 
+
+2011-12-19 | [意大利科莫湖 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/19.jpg) 
+
+2011-12-18 | [德国巴伐利亚州的雪景 (© Fischer/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/18.jpg) 
+
+2011-12-17 | [犹他州国会礁脉国家公园 (© Don White/Super Stock) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/17.jpg) 
+
+2011-12-16 | [西雅图飞行博物馆 (© Ron Koeberer/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/16.jpg) 
+
+2011-12-15 | [装饰着圣诞彩灯的瑞士卢塞恩市政厅 (© Stefan Huwiler/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/15.jpg) 
+
+2011-12-14 | [罗马花椰菜 (© Martha Lazar/Getty) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/14.jpg) 
+
+2011-12-13 | [南极洲附近浮窥的虎鲸 (© Norbert Wu/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/13.jpg) 
+
+2011-12-12 | [法国克雷西森林中的栗子 (© Stephane Bouilland/Peter Arnold/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/12.jpg) 
+
+2011-12-11 | [珊瑚上的圣诞树蠕虫 (© Reinhard Dirscherl/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/11.jpg) 
+
+2011-12-10 | [美国印第安纳州立博物馆 (© Henryk Sadura/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/10.jpg) 
+
+2011-12-09 | [挪威奥斯陆市政厅 (© Jon Hicks/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/09.jpg) 
+
+2011-12-08 | [两只绿领吸蜜鹦鹉 (© Gary Vestal/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/08.jpg) 
+
+2011-12-07 | [西班牙保护区的野山羊 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/07.jpg) 
+
+2011-12-06 | [冬季清晨的德国修道院 (© Imagebroker RF/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/06.jpg) 
+
+2011-12-05 | [卫星拍摄的佛罗里达州沼泽地 (© Universal Images Group/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/05.jpg) 
+
+2011-12-04 | [加州太浩湖翡翠岛的日出 (© Don Smith/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/04.jpg) 
+
+2011-12-03 | [圣彼得堡总参部拱门上的战车 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/03.jpg) 
+
+2011-12-02 | [佛罗里达州的迈阿密 (© Radius Images/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/02.jpg) 
+
+2011-12-01 | [老挝丰沙湾地区的石缸平原 (© Colin Brynn/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/12/01.jpg) 
+
+2011-11-30 | [罗马尼亚的德古拉城堡 (© Marco Cristofori/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/30.jpg) 
+
+2011-11-29 | [花朵上的透翅蝶 (© Darrell Gulin/DanitaDelimont) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/29.jpg) 
+
+2011-11-28 | [南京紫金山明孝陵的石象 (© Ian Trower/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/28.jpg) 
+
+2011-11-27 | [美国亚利桑那州的羚羊峡谷 (© Stephen Matera) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/27.jpg) 
+
+2011-11-26 | [南非的迷人景色 (© Martin Harvey/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/26.jpg) 
+
+2011-11-25 | [省立冰川公园，摄于加拿大 (© Gary Fiegehen/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/25.jpg) 
+
+2011-11-24 | [千手佛珊瑚 (© Stuart Westmorland/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/24.jpg) 
+
+2011-11-23 | [马萨诸塞州漂浮在水面上的红莓 (© Kerry Sherck/Aurora/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/23.jpg) 
+
+2011-11-22 | [四川塔公草原的帐篷与经幡 (© Robert Harding Picture Library/Superstock) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/22.jpg) 
+
+2011-11-21 | [科罗拉多州白杨与岩壁上的雪 (© Terry Eggers/Danita Delimont) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/21.jpg) 
+
+2011-11-20 | [卷曲的羽衣甘蓝 (© Gap Photos/Visuals Unlimited, Inc.) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/20.jpg) 
+
+2011-11-19 | [加州圣地亚哥海洋世界的虎鲸 (© Michael Melford/Stone/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/19.jpg) 
+
+2011-11-18 | [韩国庆尚北道注山池旁的老树 (© Multi-bits/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/18.jpg) 
+
+2011-11-17 | [拉脱维亚首都里加 (© Top Photo Corporation/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/17.jpg) 
+
+2011-11-16 | [环尾狐猴与它的孩子 (© SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/16.jpg) 
+
+2011-11-15 | [泰国大城府佛像上的清洁工人 (© Kozz Lig/Demotix/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/15.jpg) 
+
+2011-11-14 | [波多黎各圣胡安的城墙 (© Zhang Jun/Xinhua Press/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/14.jpg) 
+
+2011-11-13 | [波兰山上正在看守羊群的牧羊犬 (© Henryk T. Kaiser/Age Fotostock/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/13.jpg) 
+
+2011-11-12 | [美国犹他州议会大厦 (© Joseph Sohm/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/12.jpg) 
+
+2011-11-11 | [红色罂粟花特写 (© Deb Casso/OJO Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/11.jpg) 
+
+2011-11-10 | [黄山白云景区的松树 (© Radius Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/10.jpg) 
+
+2011-11-09 | [南达科他州的恶地国家公园 (© Carol Barrington/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/09.jpg) 
+
+2011-11-08 | [藏在树洞中的松鼠 (© Norihisa Inomata/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/08.jpg) 
+
+2011-11-07 | [奔跑的冰岛马 (© Tim Flach/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/07.jpg) 
+
+2011-11-06 | [圣路易斯波托西州的一处瀑布 (© Patricio Robles Gil/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/06.jpg) 
+
+2011-11-05 | [淡水苔藓虫 (© Wim van Egmond/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/05.jpg) 
+
+2011-11-04 | [加拿大温哥华的天际线 (© Stephen Matera) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/04.jpg) 
+
+2011-11-03 | [瑞士伯尔尼钟楼塔上的天文钟 (© Blaine Harrington/age fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/03.jpg) 
+
+2011-11-02 | [澳大利亚悉尼歌剧院内景 (© Hervé Hughes/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/02.jpg) 
+
+2011-11-01 | [埃塞俄比亚瑟门山国家公园的小狒狒 (© Fiona Rogers/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/11/01.jpg) 
+
+2011-10-31 | [庆祝亡灵节制造的饰品 (© Rodrigo Cruz/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/31.jpg) 
+
+2011-10-30 | [建筑物上的石像鬼 (© Roger Brooks/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/30.jpg) 
+
+2011-10-29 | [爱沙尼亚首都塔林 (© Bharat Ranjan) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/29.jpg) 
+
+2011-10-28 | [马来西亚姆鲁国家公园鹿洞 (© Richard Ashworth/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/28.jpg) 
+
+2011-10-27 | [菲律宾皮纳图博火山地貌 (© Philippe Bourseiller/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/27.jpg) 
+
+2011-10-26 | [美国肯塔基州议会大厦内景 (© Walter Bibikow/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/26.jpg) 
+
+2011-10-25 | [挂着雨珠的草蜘蛛网 (© Don Johnston/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/25.jpg) 
+
+2011-10-24 | [英国萨默塞特郡切达峡谷的高夫山洞 (© Martin Engelmann/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/24.jpg) 
+
+2011-10-23 | [羽扇豆叶子上的白霜和冰冻露珠 (© Imagebroker RF/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/23.jpg) 
+
+2011-10-22 | [美国阿拉斯加州的锡特卡 (© Daryl Pederson/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/22.jpg) 
+
+2011-10-21 | [美国科罗拉多州国家森林的秋天 (© Terry Donnelly/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/21.jpg) 
+
+2011-10-20 | [彩色玻璃球 (© Stockbroker Stockbroker/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/20.jpg) 
+
+2011-10-19 | [街头向游客兜售货物的玩具熊 (© Ingo Schulz/Imagebroker.net/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/19.jpg) 
+
+2011-10-18 | [万花筒 (© Datacraft Co Ltd/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/18.jpg) 
+
+2011-10-17 | [香港大屿山大澳村的纪念品 (© Steve Vidler/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/17.jpg) 
+
+2011-10-16 | [玩具摩托车特写 (© Bilderlounge/Beyond fotomedia/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/16.jpg) 
+
+2011-10-15 | [德国灯光节期间的柏林大教堂 (© Axel Schmies/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/15.jpg) 
+
+2011-10-14 | [法国诺曼底雷诺测试中心 (© Francis Cormon/Hemis/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/14.jpg) 
+
+2011-10-13 | [菲尼克斯群岛附近的莴苣珊瑚 (© Paul Nicklen/National Geographic/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/13.jpg) 
+
+2011-10-12 | [巴塞罗那旧港区哥伦布纪念碑 (© Rafael Campillo/Pixtal/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/12.jpg) 
+
+2011-10-11 | [变色龙 (© Exactostock/SuperStock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/11.jpg) 
+
+2011-10-10 | [克罗地亚的杜布罗夫尼可 (© SIME/eStock Photo) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/10.jpg) 
+
+2011-10-09 | [火龙果 (© Asia Images Group/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/09.jpg) 
+
+2011-10-08 | [黄林莺 (© Sodapix/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/08.jpg) 
+
+2011-10-07 | [德国汉堡植物园中的菊花 (© Gerhard Schulz/Age Fotostock/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/07.jpg) 
+
+2011-10-06 | [佐治亚州国家公园内的柏树 (© Danita Delimont/Gallo Images/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/06.jpg) 
+
+2011-10-05 | [太平洋上空的国际空间站 (© StockTrek/White/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/05.jpg) 
+
+2011-10-04 | [两只高歌的丹顶鹤 (© Panorama Media/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/04.jpg) 
+
+2011-10-03 | [俄亥俄州克利夫兰的凯霍加河 (© Henryk Sadura/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/03.jpg) 
+
+2011-10-02 | [美国爱达荷州湖边景色 (© David Ryan/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/02.jpg) 
+
+2011-10-01 | [灯火辉煌的国家大剧院 (© Christian Kober/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/10/01.jpg) 
+
+2011-09-30 | [天安门广场上的焰火 (© View Stock/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/30.jpg) 
+
+2011-09-29 | [夏威夷毛伊岛哈雷阿卡拉火山 (© SuperStock/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/29.jpg) 
+
+2011-09-28 | [蜂蜜 (© Leser, Nicolas/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/28.jpg) 
+
+2011-09-27 | [美国缅因州如画美景 (© A. J. Whitney/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/27.jpg) 
+
+2011-09-26 | [玩闹的黑背胡狼幼仔 (© Jami Tarris/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/26.jpg) 
+
+2011-09-25 | [泰国曼谷大皇宫 (© David Davis/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/25.jpg) 
+
+2011-09-24 | [挪威北角的午夜太阳 (© SIME/estock) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/24.jpg) 
+
+2011-09-23 | [加州约塞米蒂国家公园的巨杉 (© Frans Lanting/Danita Delimont) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/23.jpg) 
+
+2011-09-22 | [美国巴克斯特国家公园 (© Jerry and Marcy Monkman/Aurora) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/22.jpg) 
+
+2011-09-21 | [南印度喀拉拉邦的茶场 (© Hugh Sitton/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/21.jpg) 
+
+2011-09-20 | [纽约市中央公园草莓园一角 (© Ocean/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/20.jpg) 
+
+2011-09-19 | [伯利兹安柏葛利斯岛 (© Michael Melford/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/19.jpg) 
+
+2011-09-18 | [两只紫蓝金刚鹦鹉 (© Roy Toft/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/18.jpg) 
+
+2011-09-17 | [澳大利亚公园内的小瀑布 (© Alessandra Sarti/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/17.jpg) 
+
+2011-09-16 | [德国慕尼黑啤酒棚 (© Bodo Schieren/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/16.jpg) 
+
+2011-09-15 | [一群飞舞的美洲红鹮 (© SMuller Smuller/Wildlife/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/15.jpg) 
+
+2011-09-14 | [智利百内国家公园的原驼 (© Steve Ogle/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/14.jpg) 
+
+2011-09-13 | [新加坡飞行者摩天轮 (© David McLain/Aurora Photos) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/13.jpg) 
+
+2011-09-12 | [哥斯达黎加国家公园的蜂鸟 (© Shannon Nace/Lonely Planet Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/12.jpg) 
+
+2011-09-11 | [中秋节 (© View Stock/Photolibrary) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/11.jpg) 
+
+2011-09-10 | [德国汉诺威市政厅 (© Scholz F. Collection/Arco Images/Age Fotostock) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/10.jpg) 
+
+2011-09-09 | [教师节 (© Andrew Wong/Getty Images) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/09.jpg) 
+
+2011-09-08 | [维也纳圣斯特凡大教堂的屋顶 (© Walter Bibikow/Corbis) ©)](https://bing.ee123.net/img/cn/fhd/2011/09/08.jpg) 
+
+2011-09-07 | [白露 (© East Photo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/09/07.jpg) 
+
+2011-09-06 | [佛罗里达群岛海洋保护区 (© Stephen Frink/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/09/06.jpg) 
+
+2011-09-05 | [帕劳群岛的岩石岛 (© Bob Krist/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/09/05.jpg) 
+
+2011-09-04 | [卡塔尔多哈市珍珠纪念碑 (© Jon Hicks/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/09/04.jpg) 
+
+2011-09-03 | [意大利威尼斯赛舟会 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/09/03.jpg) 
+
+2011-09-02 | [加拿大多伦多风景 (© Gary Cralle/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/09/02.jpg) 
+
+2011-09-01 | [美国密德湖鸟瞰图 (© Lee Foster/Lonely Planet Images)](https://bing.ee123.net/img/cn/fhd/2011/09/01.jpg) 
+
+2011-08-31 | [云南梯田鸟瞰图 (© Jialiang Gao/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/08/31.jpg) 
+
+2011-08-30 | [马鞍毛毛虫 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/30.jpg) 
+
+2011-08-29 | [一只漂流的海獭 (© Tsuneo Nakamura/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/29.jpg) 
+
+2011-08-28 | [密歇根州休伦湖畔的灯塔 (© Jon Arnold Images/Danita Delimont)](https://bing.ee123.net/img/cn/fhd/2011/08/28.jpg) 
+
+2011-08-27 | [法国塞纳河谷一景 (© Francis Cormon/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/27.jpg) 
+
+2011-08-26 | [夏威夷考艾岛海滩 (© Mark A. Johnson/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/26.jpg) 
+
+2011-08-25 | [大堡礁的鹿角珊瑚 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/25.jpg) 
+
+2011-08-24 | [乍得的橙色沙丘 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/24.jpg) 
+
+2011-08-23 | [贵州的一段崎岖公路 (© Christian Kober/John Warburton-Lee Photography/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/23.jpg) 
+
+2011-08-22 | [处暑 (© Richard Hamilton Smith/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/22.jpg) 
+
+2011-08-21 | [英国海岸线上的堤坝 (© Tim Harris)](https://bing.ee123.net/img/cn/fhd/2011/08/21.jpg) 
+
+2011-08-20 | [西班牙白色山城 (© Jose Fuste Raga/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/20.jpg) 
+
+2011-08-19 | [日本京都寺庙中的石像 (© Rudy Sulgan/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/19.jpg) 
+
+2011-08-18 | [一只嬉戏的非洲幼象 (© Anup Shah/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/18.jpg) 
+
+2011-08-17 | [宾州匹兹堡夜景 (© Kordcom Kordcom/Age Fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/17.jpg) 
+
+2011-08-16 | [加州大苏尔菲佛海滩一角 (© Patrick Smith/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2011/08/16.jpg) 
+
+2011-08-15 | [韩国釜山 (© I Dream Stock/agefotostock)](https://bing.ee123.net/img/cn/fhd/2011/08/15.jpg) 
+
+2011-08-14 | [科隆大教堂 (© Guenter Rossenbach/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/14.jpg) 
+
+2011-08-13 | [划过夜空的流星 (© Alessandro Della Bella/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/13.jpg) 
+
+2011-08-12 | [桂林附近的捕鱼者 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/08/12.jpg) 
+
+2011-08-11 | [南达科他州山水相映 (© Chuck Haney/DanitaDelimont.com)](https://bing.ee123.net/img/cn/fhd/2011/08/11.jpg) 
+
+2011-08-10 | [法国韦尔东峡谷攀岩 (© Keith Ladzinski/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/10.jpg) 
+
+2011-08-09 | [沐浴在晨光中的帕卢斯山 (© Yan Li)](https://bing.ee123.net/img/cn/fhd/2011/08/09.jpg) 
+
+2011-08-08 | [尼泊尔云端小屋 (© White Richardson/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2011/08/08.jpg) 
+
+2011-08-07 | [玉米果穗 (© Wave RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/07.jpg) 
+
+2011-08-06 | [柯氏犬羚特写 (© Shem Compion/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/08/06.jpg) 
+
+2011-08-05 | [两条嬉戏的小鱼 (© Christian Kober/John Warburton-Lee Photography/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/05.jpg) 
+
+2011-08-04 | [科罗拉多大峡谷风光 (© Ron Watts/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/04.jpg) 
+
+2011-08-03 | [秘鲁国家公园里的蝴蝶 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/08/03.jpg) 
+
+2011-08-02 | [维尔京群岛 (© Pacific Stock/SuperStock)](https://bing.ee123.net/img/cn/fhd/2011/08/02.jpg) 
+
+2011-08-01 | [斋月第一天，一个男孩在摆水杯 (© Jaipal Singh/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/08/01.jpg) 
+
+2011-07-31 | [鹦鹉螺 (© Josh Westrich/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/31.jpg) 
+
+2011-07-30 | [红毛猩猩 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/30.jpg) 
+
+2011-07-29 | [大溪地岛 (© Larry Dunmire/SuperStock)](https://bing.ee123.net/img/cn/fhd/2011/07/29.jpg) 
+
+2011-07-28 | [蝙蝠鱼 (© Norbert Probst/Imagebroker.net/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/28.jpg) 
+
+2011-07-27 | [彩虹环绕在苏格兰城堡周围 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/07/27.jpg) 
+
+2011-07-26 | [在爱尔兰拍摄到的石墙里的驴子 (© Ryan Donnell/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/26.jpg) 
+
+2011-07-25 | [西雅图的落日 (© Mohammed Kamel)](https://bing.ee123.net/img/cn/fhd/2011/07/25.jpg) 
+
+2011-07-24 | [秘鲁的印加遗址马丘比丘 (© Sean Caffrey/Lonely Planet Publications Ltd.)](https://bing.ee123.net/img/cn/fhd/2011/07/24.jpg) 
+
+2011-07-23 | [蜗牛 (© Kazuyuki Kido/Aflo Foto Agency/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/23.jpg) 
+
+2011-07-22 | [巴西伊瓜苏瀑布国家公园 (© Radius Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/22.jpg) 
+
+2011-07-21 | [大马哈鱼的鱼子 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/21.jpg) 
+
+2011-07-20 | [普陀山上的庙宇 (© Wolfgang Kaehler/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/20.jpg) 
+
+2011-07-19 | [安徽黄山 (© Panorama Media/Panorama Stock RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/19.jpg) 
+
+2011-07-18 | [四川省峨眉山 (© Best View Stock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/18.jpg) 
+
+2011-07-17 | [降雪后的庐山美景 (© Hu Guolin/Xinhua Press/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/17.jpg) 
+
+2011-07-16 | [福建省武夷山国家公园 (© Christian Kober/John Warburton-Lee Photography/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/16.jpg) 
+
+2011-07-15 | [南非开普敦的风光 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/15.jpg) 
+
+2011-07-14 | [中国西部柴达木盆地的公路 (© Hou Deqiang/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/14.jpg) 
+
+2011-07-13 | [鳐鱼 (© Shari L. Morris/agefotostock)](https://bing.ee123.net/img/cn/fhd/2011/07/13.jpg) 
+
+2011-07-12 | [从埃菲尔铁塔上鸟瞰巴黎夜景 (© Ian Cumming/Axiom Photographic Agency)](https://bing.ee123.net/img/cn/fhd/2011/07/12.jpg) 
+
+2011-07-11 | [在挪威拍摄到的流苏鹬 -- Werner Bollmann/Oxford Scientific (© OSF))](https://bing.ee123.net/img/cn/fhd/2011/07/11.jpg) 
+
+2011-07-10 | [夏威夷茂宜岛的海滩帆板 (© Pacific Stock/Superstock)](https://bing.ee123.net/img/cn/fhd/2011/07/10.jpg) 
+
+2011-07-09 | [中国雅安的大熊猫幼仔 (© Keren Su/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/09.jpg) 
+
+2011-07-08 | [地球和月球 (© NASA, Jet Propulsion Laboratory)](https://bing.ee123.net/img/cn/fhd/2011/07/08.jpg) 
+
+2011-07-07 | [缅因州的百日草的花 (© Adam Jones/Visuals Unlimited/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/07.jpg) 
+
+2011-07-06 | [天山脚下的湖水和风光 (© Phototime Phototime/Sinopictures/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/06.jpg) 
+
+2011-07-05 | [马萨诸塞州的摩天大楼 (© Olaf Broders/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/07/05.jpg) 
+
+2011-07-04 | [阿拉斯加的白头海雕 (© David Copeland)](https://bing.ee123.net/img/cn/fhd/2011/07/04.jpg) 
+
+2011-07-03 | [日本北海道富良野的罂粟花 (© Mitsushi Okada/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/07/03.jpg) 
+
+2011-07-02 | [2010年举办的法国环法自行车赛，正路过向日葵田地 (© Joel Saget/AFP/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/07/02.jpg) 
+
+2011-07-01 | [匈牙利布达佩斯的渔人堡 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/07/01.jpg) 
+
+2011-06-30 | [加拿大安大略省湖水上的红色朝霞 (© Wayne Simpson/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/30.jpg) 
+
+2011-06-29 | [美国华盛顿奥林匹克国家公园中长满青苔的树 (© imagebroker rf/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/29.jpg) 
+
+2011-06-28 | [美国佛罗里达州的比斯坎国家公园 (© Rapsodia/SuperStock)](https://bing.ee123.net/img/cn/fhd/2011/06/28.jpg) 
+
+2011-06-27 | [雪花莲 (© CGS com/Flowerphotos Limited/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/06/27.jpg) 
+
+2011-06-26 | [旧金山的奥克兰海湾大桥 (© Marli Miller/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2011/06/26.jpg) 
+
+2011-06-25 | [希腊雅典的埃皮道鲁斯露天剧场 (© George Tsafos/Lonely Planet Images)](https://bing.ee123.net/img/cn/fhd/2011/06/25.jpg) 
+
+2011-06-24 | [厄瓜多尔加拉帕戈斯群岛上的红蟹 (© Gary Cralle/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/06/24.jpg) 
+
+2011-06-23 | [英国康沃尔郡 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/06/23.jpg) 
+
+2011-06-22 | [蒙大拿州的黑尾草原犬鼠 (© Beth Davidow/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2011/06/22.jpg) 
+
+2011-06-21 | [露珠上倒映出雏菊的景象 (© Craig Tuttle/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/21.jpg) 
+
+2011-06-20 | [夏蝉 -- Mike Price/Oxford Scientific (© OSF)/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/20.jpg) 
+
+2011-06-19 | [日本北海道的泷上芝樱公园 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/19.jpg) 
+
+2011-06-18 | [企鹅父子 (© Wayne Lynch/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/18.jpg) 
+
+2011-06-17 | [太平洋海域的软珊瑚 (© Mark Conlin/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/17.jpg) 
+
+2011-06-16 | [在日本长野县拍摄到的大苇莺 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/16.jpg) 
+
+2011-06-15 | [美国德克萨斯州的沃斯堡现代美术馆 (© Wes Thompson/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/15.jpg) 
+
+2011-06-14 | [平菇 (© Dick Poe/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2011/06/14.jpg) 
+
+2011-06-13 | [日本富山县的立山 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/13.jpg) 
+
+2011-06-12 | [从宇宙国际空间站拍到的太平洋上的日落 (© NASA - digital version copyright/Science Faction/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/12.jpg) 
+
+2011-06-11 | [在日本北海道拍摄到的金翅雀 (© Tohoku Color Agency/Japan Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/06/11.jpg) 
+
+2011-06-10 | [美国查尔斯顿（南卡罗来纳州）的种植园和木兰园中的橡树 (© Adam Jones/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2011/06/10.jpg) 
+
+2011-06-09 | [夕阳下的葡萄牙波尔图路易斯一世桥 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/06/09.jpg) 
+
+2011-06-08 | [水母 (© SSC/SuperStock)](https://bing.ee123.net/img/cn/fhd/2011/06/08.jpg) 
+
+2011-06-07 | [兰花和螳螂 (© Francesco Tomasinelli/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2011/06/07.jpg) 
+
+2011-06-06 | [坐落在葡萄牙里斯本的马车博物馆 (© Jose Fuste Raga/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/06.jpg) 
+
+2011-06-05 | [龙舟上的金色龙头 (© Feng Li/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/06/05.jpg) 
+
+2011-06-04 | [巴西里约热内卢的瓜纳巴拉湾 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/06/04.jpg) 
+
+2011-06-03 | [澳大利亚爱丽斯泉附近的热气球 (© Jake Warga/DanitaDelimont.com)](https://bing.ee123.net/img/cn/fhd/2011/06/03.jpg) 
+
+2011-06-02 | [俄勒冈州的哥伦比亚河峡谷 (© Craig Tuttle/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/06/02.jpg) 
+
+2011-06-01 | [拉脱维亚里加公园，情人桥上挂满同心锁 (© Guiziou Franck/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/06/01.jpg) 
+
+2011-05-31 | [放学回家的小学生 (© Guo Jian She/Redlink/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/31.jpg) 
+
+2011-05-30 | [2003年5月3日在挪威拍下的日偏食的过程，缩时摄影 (© McPHOTO/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/05/30.jpg) 
+
+2011-05-29 | [位于意大利特伦托境内的阿尔卑斯山脉 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/05/29.jpg) 
+
+2011-05-28 | [在印第安纳波利斯举办的赛车比赛 (© Chris Graythen/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/28.jpg) 
+
+2011-05-27 | [菲律宾小岛的海滩风光 (© Bruno Cossa/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/27.jpg) 
+
+2011-05-26 | [新疆的农民在晒红辣椒 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/26.jpg) 
+
+2011-05-25 | [航拍尼日尔盐池 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/25.jpg) 
+
+2011-05-24 | [瑞士的马特洪峰和采尔马特小镇 (© Cosmo Condina/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/24.jpg) 
+
+2011-05-23 | [在阿拉伯联合酋长国拍摄到的沙猫 (© Xavier Eichaker/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/23.jpg) 
+
+2011-05-22 | [纽约公共图书馆 (© Siegfried Layda/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/22.jpg) 
+
+2011-05-21 | [美国海军蓝色天使飞行队 (© Science Faction/SuperStock)](https://bing.ee123.net/img/cn/fhd/2011/05/21.jpg) 
+
+2011-05-20 | [夕阳中的麦田 -- Mike Price/Oxford Scientific (© OSF)/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/20.jpg) 
+
+2011-05-19 | [新西兰的香槟池 (© Kordcom Kordcom/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/19.jpg) 
+
+2011-05-18 | [俯瞰墨西哥的瓜纳华托 (© Peter Adams/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/18.jpg) 
+
+2011-05-17 | [法国巴黎的奥赛博物馆 (© Peet Simard/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/17.jpg) 
+
+2011-05-16 | [夏威夷的水下摄影 (© Pacific Stock/SuperStock)](https://bing.ee123.net/img/cn/fhd/2011/05/16.jpg) 
+
+2011-05-15 | [日落时分的法国戛纳码头 (© Vincenzo Lombardo/Digital Vision/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/15.jpg) 
+
+2011-05-14 | [美国犹他州的布莱斯峡谷国家公园 (© Imagebroker rf/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/14.jpg) 
+
+2011-05-13 | [迁徙中的雪雁 (© Winfried Wisniewski/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/13.jpg) 
+
+2011-05-12 | [肯尼亚长尾猴 (© Panoramic Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/12.jpg) 
+
+2011-05-11 | [加利福尼亚州的美洲红杉 (© Olivier Renck/Aurora)](https://bing.ee123.net/img/cn/fhd/2011/05/11.jpg) 
+
+2011-05-10 | [海兔 (© Reinhard Dirscherl/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/10.jpg) 
+
+2011-05-09 | [土耳其伊斯坦布尔集市里的灯笼 (© Jeremy Horner/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/09.jpg) 
+
+2011-05-08 | [荷兰库肯霍夫公园中的风信子和郁金香 (© Adam Jones/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/08.jpg) 
+
+2011-05-07 | [阿拉斯加国家公园中的母熊和它的孩子们 (© AlaskaStock/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/05/07.jpg) 
+
+2011-05-06 | [纽扣珊瑚 (© Paulo de Oliveira/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/06.jpg) 
+
+2011-05-05 | [花和田地 (© Datacraft Co Ltd/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/05/05.jpg) 
+
+2011-05-04 | [从纽约帝国大厦看洛克菲勒中心 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/05/04.jpg) 
+
+2011-05-03 | [西班牙加那利群岛风光 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/05/03.jpg) 
+
+2011-05-02 | [美国加利福尼亚州洛杉矶港的集装箱 (© Hal Bergman/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/05/02.jpg) 
+
+2011-05-01 | [在蒂萨河孵化的长尾蝣 (© Solvin Zankl/Visuals Unlimited,Inc)](https://bing.ee123.net/img/cn/fhd/2011/05/01.jpg) 
+
+2011-04-30 | [跳动的音符 (© 新浪摄影大赛/李建军)](https://bing.ee123.net/img/cn/fhd/2011/04/30.jpg) 
+
+2011-04-29 | [美国夏威夷哈纳公路 (© Jean Miele/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/29.jpg) 
+
+2011-04-28 | [英国伦敦的西敏寺 (© Ben Stansall/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/04/28.jpg) 
+
+2011-04-27 | [温哥华英吉利湾的平衡岩 (© Rudy Sulgan/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/27.jpg) 
+
+2011-04-26 | [美国纽约康尼岛游乐场的摩天轮 (© Ed Freeman/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/04/26.jpg) 
+
+2011-04-25 | [法国巴黎的卢浮宫 (© Ron Koeberer/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2011/04/25.jpg) 
+
+2011-04-24 | [澳大利亚战争纪念馆 (© Jon Hicks/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/24.jpg) 
+
+2011-04-23 | [水木清华：清华大学校园全景 (© 清华大学/刘旋)](https://bing.ee123.net/img/cn/fhd/2011/04/23.jpg) 
+
+2011-04-22 | [水木清华：朱自清笔下的清华荷塘 (© 清华大学/曾顺)](https://bing.ee123.net/img/cn/fhd/2011/04/22.jpg) 
+
+2011-04-21 | [水木清华：清华大学的第一个校门 (© 清华大学/谢立军)](https://bing.ee123.net/img/cn/fhd/2011/04/21.jpg) 
+
+2011-04-20 | [水木清华：清华早期“四大建筑”之一大礼堂 (© 清华大学/李睿)](https://bing.ee123.net/img/cn/fhd/2011/04/20.jpg) 
+
+2011-04-19 | [水木清华：清华第一个体育馆西体育馆 (© 清华大学/刘旋)](https://bing.ee123.net/img/cn/fhd/2011/04/19.jpg) 
+
+2011-04-18 | [水木清华：紫荆学生公寓 (© 清华大学/曾顺)](https://bing.ee123.net/img/cn/fhd/2011/04/18.jpg) 
+
+2011-04-17 | [水木清华：清华最早的图书馆 (© 清华大学/李睿)](https://bing.ee123.net/img/cn/fhd/2011/04/17.jpg) 
+
+2011-04-16 | [英国康沃尔全球最大的温室“伊甸园” (© Harpur Garden Library/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/16.jpg) 
+
+2011-04-15 | [古巴南长岛的沙滩 (© imagebroker rf/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/04/15.jpg) 
+
+2011-04-14 | [杜克大学花园池塘中的三只小海龟 (© Mohamed Mahmoud El-Geish)](https://bing.ee123.net/img/cn/fhd/2011/04/14.jpg) 
+
+2011-04-13 | [冠水母 (© Pete Atkinson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/04/13.jpg) 
+
+2011-04-12 | [法国里昂富尔韦圣母院 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/04/12.jpg) 
+
+2011-04-11 | [澳大利亚墨尔本的摩天轮 (© David Hannah/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/04/11.jpg) 
+
+2011-04-10 | [克罗地亚的金角湾海滩 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/04/10.jpg) 
+
+2011-04-09 | [肯尼亚马赛马拉国家保护区的斑马群 (© Blaine Harrington III/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/09.jpg) 
+
+2011-04-08 | [金缕梅的花朵 (© JS. Sira/photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/04/08.jpg) 
+
+2011-04-07 | [马其顿奥赫里德湖边的圣伽勃教堂 (© Jon Arnold Images/Masterfile)](https://bing.ee123.net/img/cn/fhd/2011/04/07.jpg) 
+
+2011-04-06 | [美国俄勒冈州的火山化石地貌 (© Ken Hollis)](https://bing.ee123.net/img/cn/fhd/2011/04/06.jpg) 
+
+2011-04-05 | [马鹿 (© Christian Hager/dpa/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/05.jpg) 
+
+2011-04-04 | [上海世博会中国馆展出的《清明上河图》 (© Xu Jiajun/Xinhua Press/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/04.jpg) 
+
+2011-04-03 | [马来西亚吉隆坡的双子塔 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/04/03.jpg) 
+
+2011-04-02 | [西班牙塞维利亚的阿拉米略桥 (© José Fuste Raga/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/02.jpg) 
+
+2011-04-01 | [珊瑚丛中的蝴蝶鱼 (© F. Stuart Westmorland/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/04/01.jpg) 
+
+2011-03-31 | [“开怀大笑”的海豹 (© Hinrich Baesemann/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/31.jpg) 
+
+2011-03-30 | [在意大利拍到的赤狐宝宝 (© Nicola Angeli/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/30.jpg) 
+
+2011-03-29 | [百合雌蕊花粉和柱头特写 (© Joe Petersburger/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/29.jpg) 
+
+2011-03-28 | [佛罗里达州圣彼得斯堡海滩 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/03/28.jpg) 
+
+2011-03-27 | [美国哈佛大学鸟瞰图 (© Frank Siteman/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/27.jpg) 
+
+2011-03-26 | [印度加尔各答的维多利亚纪念馆 (© Bhaswaran Bhattacharya/India Picture RM/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/26.jpg) 
+
+2011-03-25 | [樱花掩盖下的华盛顿杰斐逊纪念堂 (© John Aikins/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/25.jpg) 
+
+2011-03-24 | [澳大利亚的油菜花田 (© Walter Geiersperger/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/24.jpg) 
+
+2011-03-23 | [意大利五渔村中的韦尔纳扎镇 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/03/23.jpg) 
+
+2011-03-22 | [路易斯安那州的新奥尔良狂欢节 (© Richard Cummins/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/22.jpg) 
+
+2011-03-21 | [夏威夷的粘性熔岩 (© Bruce Omori/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/21.jpg) 
+
+2011-03-20 | [春天枝头的小鸟 (© Aso Fujita/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/20.jpg) 
+
+2011-03-19 | [伊朗伊斯法罕郝久古桥的拱形桥洞 (© Eric Martin/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/19.jpg) 
+
+2011-03-18 | [法国谢尔河上的舍农索城堡 (© Kordcom Kordcom/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/18.jpg) 
+
+2011-03-17 | [墨西哥海边的优雅燕鸥 (© Michael S. Nolan/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/03/17.jpg) 
+
+2011-03-16 | [英国麦田怪圈 (© Last Refuge/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/03/16.jpg) 
+
+2011-03-15 | [日本本州陆中海岸国立公园里的北山崎海岸 (© Chad Ehlers/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/15.jpg) 
+
+2011-03-14 | [意大利威尼斯嘉年华庆典上的华丽面具 (© Matthias Tunger/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/03/14.jpg) 
+
+2011-03-13 | [云豹 (© Penny Adams/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/13.jpg) 
+
+2011-03-12 | [美国亚利桑那州大峡谷 (© Dan Leffel/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/12.jpg) 
+
+2011-03-11 | [迪尔库古城用盐板拼成的居民区 (© National Geographic Society/ImageState RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/11.jpg) 
+
+2011-03-10 | [冰岛米湖 (© Hans Strand/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/10.jpg) 
+
+2011-03-09 | [加拿大的巴芬岛 (© Daryl Benson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/03/09.jpg) 
+
+2011-03-08 | [爱沙尼亚塔林的红色屋顶 (© Keren Su/Danita Delimont)](https://bing.ee123.net/img/cn/fhd/2011/03/08.jpg) 
+
+2011-03-07 | [广角镜头下的“蝴蝶采花” (© Kenzo Ohya/Dex Image/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/07.jpg) 
+
+2011-03-06 | [澳大利亚的玫瑰鹦鹉 (© Martin Harvey/Cobris)](https://bing.ee123.net/img/cn/fhd/2011/03/06.jpg) 
+
+2011-03-05 | [还未醒来的睡鼠 (© SMuller Smuller/Wildlife/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/05.jpg) 
+
+2011-03-04 | [在意大利的里雅斯特举办的帆船赛 (© Grand Tour/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/04.jpg) 
+
+2011-03-03 | [位于长江峭壁上的三游洞餐厅 (© Walter Bibikow/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/03/03.jpg) 
+
+2011-03-02 | [日本京都的葵祭仪式 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/02.jpg) 
+
+2011-03-01 | [在日本武道馆中写书法祈福 (© Alain Evrard/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/03/01.jpg) 
+
+2011-02-28 | [纪念长崎原子弹爆炸的千纸鹤花环 (© Richard Cummins/Design Pics/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/02/28.jpg) 
+
+2011-02-27 | [鲤鱼旗 (© Karin Slade/Taxi Japan/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/02/27.jpg) 
+
+2011-02-26 | [日本东京的高山祭 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/26.jpg) 
+
+2011-02-25 | [海葵中的小丑鱼 (© Robinson Ed/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/25.jpg) 
+
+2011-02-24 | [塞伦盖蒂国家公园中的黑斑羚 (© Joe McDonald/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/02/24.jpg) 
+
+2011-02-23 | [以色列境内的死海 (© PhotoStock-Israel/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/02/23.jpg) 
+
+2011-02-22 | [虎鲸 (© Norbert Wu/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/02/22.jpg) 
+
+2011-02-21 | [美国加州鬼城伯帝镇 (© Fotofeeling/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/02/21.jpg) 
+
+2011-02-20 | [在树枝上睡觉的小狮子 (© Scott Stulberg/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/02/20.jpg) 
+
+2011-02-19 | [委内瑞拉的天使瀑布 (© Jay Dickman/CORBIS)](https://bing.ee123.net/img/cn/fhd/2011/02/19.jpg) 
+
+2011-02-18 | [雨后的荷包牡丹花 (© Alessandra Sarti/Imagebroker RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/18.jpg) 
+
+2011-02-17 | [湖南崀山日落美景 (© Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/17.jpg) 
+
+2011-02-16 | [孔明灯 (© Alison Wright/DanitaDelimont.com)](https://bing.ee123.net/img/cn/fhd/2011/02/16.jpg) 
+
+2011-02-15 | [美国蒙大拿州的山猫 (© imagebroker RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/15.jpg) 
+
+2011-02-14 | [俄勒冈州胡德山的日出 (© Marc Adamus/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2011/02/14.jpg) 
+
+2011-02-13 | [澳大利亚大堡礁的圣灵群岛 (© Michael Weber/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/13.jpg) 
+
+2011-02-12 | [塞舌尔靠近非洲海岸的圣皮埃尔岛 (© Purestock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/12.jpg) 
+
+2011-02-11 | [翻车鱼 (© Richard Herrmann/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/11.jpg) 
+
+2011-02-10 | [巴西萨尔瓦多市的嘉年华 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2011/02/10.jpg) 
+
+2011-02-09 | [上海高速公路立交桥 (© Jose Fuste Raga/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/02/09.jpg) 
+
+2011-02-08 | [木版年画的模板 (© Tao images/age fotostock)](https://bing.ee123.net/img/cn/fhd/2011/02/08.jpg) 
+
+2011-02-07 | [北京春节期间出售的玩具风车 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/07.jpg) 
+
+2011-02-06 | [传统的中国食品幸运饺 (© sodapix sodapix/F1Online RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/06.jpg) 
+
+2011-02-05 | [西班牙瓦伦西亚篝火节的炮竹 (© Valentin Rodriguez/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/05.jpg) 
+
+2011-02-04 | [春节期间的传统中国饰品 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/04.jpg) 
+
+2011-02-03 | [在伦敦庆祝中国新年的小朋友手中拿着纸龙 (© Grant Pritchard/Britain on View/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/03.jpg) 
+
+2011-02-02 | [北京地坛公园庙会中出售的兔儿爷 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/02/02.jpg) 
+
+2011-02-01 | [北京地坛公园在春节时布置的红灯笼 (© Adrian Bradshaw/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/02/01.jpg) 
+
+2011-01-31 | [加拿大绿色草地附近的土拨鼠一家 (© Stephen J. Krasemann/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/31.jpg) 
+
+2011-01-30 | [太平洋在秘鲁海滩上留下的“沙浪” (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/30.jpg) 
+
+2011-01-29 | [法国巴黎的蓬皮杜艺术中心博物馆 (© Fernans Ivaldi/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/01/29.jpg) 
+
+2011-01-28 | [日本秋田的铁路桥 (© Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/28.jpg) 
+
+2011-01-27 | [美国佛罗里达州大沼泽地国家公园的夕阳 (© SIME/eStock)](https://bing.ee123.net/img/cn/fhd/2011/01/27.jpg) 
+
+2011-01-26 | [北卡罗莱纳州动物园中的狒狒 (© Joseph Conway)](https://bing.ee123.net/img/cn/fhd/2011/01/26.jpg) 
+
+2011-01-25 | [日本京都化野念佛寺道路两旁的竹林 (© Rudy Sulgan/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/25.jpg) 
+
+2011-01-24 | [美国阿拉斯加的麝牛 (© Milo Burcharm/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/24.jpg) 
+
+2011-01-23 | [西班牙瓦伦西亚的艺术科学城 (© Oleg Bulanyy)](https://bing.ee123.net/img/cn/fhd/2011/01/23.jpg) 
+
+2011-01-22 | [加拿大不列颠哥伦比亚省的斑点湖 (© Chris Harris/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/22.jpg) 
+
+2011-01-21 | [挪威的红松鼠 (© Trondelag County, Norway)](https://bing.ee123.net/img/cn/fhd/2011/01/21.jpg) 
+
+2011-01-20 | [美国怀俄明州的谷仓 (© Larry Golden)](https://bing.ee123.net/img/cn/fhd/2011/01/20.jpg) 
+
+2011-01-19 | [冰岛冬季的黄金瀑布 (© Erwan Balança/Bios/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/19.jpg) 
+
+2011-01-18 | [法国阿尔萨斯州科尔马的木质别墅 (© Sigfrid López/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/01/18.jpg) 
+
+2011-01-17 | [美国怀俄明州的魔鬼塔国家纪念碑 (© Panoramic Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/01/17.jpg) 
+
+2011-01-16 | [马耳他南部海岸 (© Bertrand Gardel/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/16.jpg) 
+
+2011-01-15 | [德国巴伐利亚州林道市港口著名的灯塔和狮子雕像 (© Charles Mahaux/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/15.jpg) 
+
+2011-01-14 | [美国新罕布什尔州覆盖在冰雪下的华盛顿山天文台 (© Mike Thesis/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/01/14.jpg) 
+
+2011-01-13 | [埃及尼罗河 (© Simon Leung)](https://bing.ee123.net/img/cn/fhd/2011/01/13.jpg) 
+
+2011-01-12 | [美国内华达州的火焰谷公园 (© Simon Leung)](https://bing.ee123.net/img/cn/fhd/2011/01/12.jpg) 
+
+2011-01-11 | [由麦哲伦太空望远镜拍摄的金星北半球雷达影像 (© NASA/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/11.jpg) 
+
+2011-01-10 | [冰洞中的松貂 (© James Urbach/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/10.jpg) 
+
+2011-01-09 | [正在堆雪球的日本猕猴 (© Keren Su/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/09.jpg) 
+
+2011-01-08 | [雪地中的狼 (© Richard Wear/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/08.jpg) 
+
+2011-01-07 | [在冰上晒太阳的海豹 (© MIXA Co. Ltd./MIXA RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/07.jpg) 
+
+2011-01-06 | [南极洲的企鹅 (© Radius Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/06.jpg) 
+
+2011-01-05 | [夏威夷的莫洛凯尼火山岛 (© Comstock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/05.jpg) 
+
+2011-01-04 | [瑞典阿比斯库国家公园中的“冰花” (© Michael Krabs/imagebroker.net/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2011/01/04.jpg) 
+
+2011-01-03 | [阿尔卑斯长号 (© Don Emmert/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/01/03.jpg) 
+
+2011-01-02 | [英国伦敦的大本钟 (© Carl De Souza/Getty Images)](https://bing.ee123.net/img/cn/fhd/2011/01/02.jpg) 
+
+2011-01-01 | [南非开普敦的坎普斯湾 (© Massimo Ripani/Corbis)](https://bing.ee123.net/img/cn/fhd/2011/01/01.jpg) 
+
+2010-12-31 | [破壳而出的小海龟 (© Christian Heinrich/imagebroker RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/12/31.jpg) 
+
+2010-12-30 | [北京颐和园的十七孔桥 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/12/30.jpg) 
+
+2010-12-29 | [黑山亚得里亚海岸的科托尔镇 (© Bertrand Gardel/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/29.jpg) 
+
+2010-12-28 | [孟加拉国正在捕鱼的渔民 (© Tim Laman/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/12/28.jpg) 
+
+2010-12-27 | [也门索科特拉岛上的龙血树 (© Tony Waltham/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/12/27.jpg) 
+
+2010-12-26 | [多米尼加共和国的小岛 (© Antonino Bartuccio/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/26.jpg) 
+
+2010-12-25 | [南非卡拉哈迪国家公园中的穿山甲 (© age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/12/25.jpg) 
+
+2010-12-24 | [圣诞树和中国结 (© View Stock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/12/24.jpg) 
+
+2010-12-23 | [雪人们一起过圣诞 (© Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/12/23.jpg) 
+
+2010-12-22 | [亮丽的圣诞节街头 (© Mark Turner/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/12/22.jpg) 
+
+2010-12-21 | [冬夜里的圣诞树 (© Kevin G. Smith/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/12/21.jpg) 
+
+2010-12-20 | [德国慕尼黑的圣诞装饰市场 (© imagebroker.net/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/12/20.jpg) 
+
+2010-12-19 | [俄罗斯的驯鹿群 (© Natalie Fobes/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/12/19.jpg) 
+
+2010-12-18 | [海象群 (© Joel Sartore/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/12/18.jpg) 
+
+2010-12-17 | [澳大利亚维多利亚州的十二使徒岩 (© John Doornkamp/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/12/17.jpg) 
+
+2010-12-16 | [世界上第一架飞机，莱特兄弟发明的飞行器“飞行者一号” (© Smithsonian Institution/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/16.jpg) 
+
+2010-12-15 | [髯海豹 (© Paul Souders/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/15.jpg) 
+
+2010-12-14 | [加利福尼亚州大苏尔海岸的比克斯比日落桥 (© Scott Stulberg/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/14.jpg) 
+
+2010-12-13 | [飞行中的雪鸮 (© Theo Allofs/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/13.jpg) 
+
+2010-12-12 | [挪威天空闪现美丽的极光 (© Per-Andre Hoffman/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2010/12/12.jpg) 
+
+2010-12-11 | [澳大利亚袋鼠岛上的卓越岩 (© Norbert Wu/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/11.jpg) 
+
+2010-12-10 | [广西桂林天湖 (© 陆晓波)](https://bing.ee123.net/img/cn/fhd/2010/12/10.jpg) 
+
+2010-12-09 | [西班牙多沙海岸的地中海 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/12/09.jpg) 
+
+2010-12-08 | [日本罗臼岳山上的虎头海雕 (© Frank Lukasseck/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/08.jpg) 
+
+2010-12-07 | [法国加尔桥 (© Romain Cintract/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/12/07.jpg) 
+
+2010-12-06 | [纽约中央公园的冬天 (© Ellen Rooney/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/12/06.jpg) 
+
+2010-12-05 | [芝加哥夜景 (© Anjan Hegde/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/12/05.jpg) 
+
+2010-12-04 | [正在捕鱼的阿拉斯加棕熊 (© Paul Souders/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/04.jpg) 
+
+2010-12-03 | [澳大利亚悉尼达令港的单轨列车 (© Jon Hicks/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/03.jpg) 
+
+2010-12-02 | [火海胆 (© Stuart Westmorland/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/02.jpg) 
+
+2010-12-01 | [食肉性猪笼草 (© Photolibrary/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/12/01.jpg) 
+
+2010-11-30 | [广西壮族自治区北海市暮色中的冠头岭 (© 许本明)](https://bing.ee123.net/img/cn/fhd/2010/11/30.jpg) 
+
+2010-11-29 | [玻利维亚萨哈马国家公园 (© Patrick Escudero/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/29.jpg) 
+
+2010-11-28 | [巴西马托格罗索州的农场在收获大豆 (© Paulo Fridman/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/28.jpg) 
+
+2010-11-27 | [瑞典斯德哥尔摩 (© Bruno Ehrs/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/27.jpg) 
+
+2010-11-26 | [嘴里塞满了花生的花栗鼠 (© Frank Cezus/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/11/26.jpg) 
+
+2010-11-25 | [土家第一宅 (© 覃文乐)](https://bing.ee123.net/img/cn/fhd/2010/11/25.jpg) 
+
+2010-11-24 | [火鸡的羽毛 (© Darrell Gulin/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/11/24.jpg) 
+
+2010-11-23 | [澳大利亚塔斯曼尼亚的薰衣草花田 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/11/23.jpg) 
+
+2010-11-22 | [美国犹他州的拱门国家公园 (© Purestock/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/11/22.jpg) 
+
+2010-11-21 | [南京市高淳县固城镇秀山村雪景 (© 魏长华)](https://bing.ee123.net/img/cn/fhd/2010/11/21.jpg) 
+
+2010-11-20 | [希腊福莱甘兹罗斯小镇上的教堂 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/11/20.jpg) 
+
+2010-11-19 | [苏格兰斯塔法岛芬戈尔洞中的玄武岩柱 (© Jim Richardson/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/19.jpg) 
+
+2010-11-18 | [哥伦比亚圣奥古斯丁考古公园中的雕像 (© Jane Sweeney/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/18.jpg) 
+
+2010-11-17 | [被称为“塔斯马尼亚恶魔”的澳大利亚袋獾 (© Ian Waldie/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/11/17.jpg) 
+
+2010-11-16 | [幽灵星云 (© NASA/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/16.jpg) 
+
+2010-11-15 | [泰国沙敦府绿龟岛国家海洋公园 (© James R.D. Scott/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/11/15.jpg) 
+
+2010-11-14 | [阿根廷阿尔韦亚尔冰川洞穴 (© Science Faction/SuperStock)](https://bing.ee123.net/img/cn/fhd/2010/11/14.jpg) 
+
+2010-11-13 | [非洲乍得新石器时代的岩画 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/13.jpg) 
+
+2010-11-12 | [台湾五色鸟 (© Sam Yeh/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/11/12.jpg) 
+
+2010-11-11 | [瑞士阿尔卑斯山脉的天文台 (© Gimmi Gimmi/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/11/11.jpg) 
+
+2010-11-10 | [澳大利亚考拉 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/11/10.jpg) 
+
+2010-11-09 | [菲律宾海域的躄鱼 (© Franco Banfi/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/11/09.jpg) 
+
+2010-11-08 | [浙江嘉善西塘 (© “风光无忌，有景必应摄影大赛”/昂峰)](https://bing.ee123.net/img/cn/fhd/2010/11/08.jpg) 
+
+2010-11-07 | [阿拉伯联合酋长国迪拜的棕榈岛 (© OSOMEDIA/agefotostock)](https://bing.ee123.net/img/cn/fhd/2010/11/07.jpg) 
+
+2010-11-06 | [结霜的栒子 (© Richard Becker/FLPA/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/11/06.jpg) 
+
+2010-11-05 | [美国佛罗里达州的七英里大桥 (© Hiroyuki Matsumoto/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/05.jpg) 
+
+2010-11-04 | [印度拉贾斯坦邦集市的妇女在把金盏花做成项链出售 (© Douglas Pearson/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/04.jpg) 
+
+2010-11-03 | [新疆维吾尔族自治区的天山大峡谷 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/03.jpg) 
+
+2010-11-02 | [乌兹别克斯坦喀喇昆仑沙漠的“地狱之门” (© Image Source/Superstock)](https://bing.ee123.net/img/cn/fhd/2010/11/02.jpg) 
+
+2010-11-01 | [坦桑尼亚恩戈罗恩戈罗自然保护区中的犀牛母子 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/11/01.jpg) 
+
+2010-10-31 | [五颜六色的乌克兰民居 (© Gavin Hellier/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/31.jpg) 
+
+2010-10-30 | [阴森恐怖的墓地 (© Colin Anderson/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/10/30.jpg) 
+
+2010-10-29 | [四川省甘孜州稻城县亚丁景区 (© “风光无忌，有景必应摄影大赛”/沈会斌)](https://bing.ee123.net/img/cn/fhd/2010/10/29.jpg) 
+
+2010-10-28 | [意大利威尼斯的圣马可广场 (© Estock/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/10/28.jpg) 
+
+2010-10-27 | [葡萄牙亚速尔群岛海岸的抹香鲸 (© Franco Banfi/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/27.jpg) 
+
+2010-10-26 | [登山者在美国加州海岸的附近的树上露营 (© Louie Psihoyos/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/26.jpg) 
+
+2010-10-25 | [湖南省怀化市通道侗族自治县双江镇芋头寨 (© “风光无忌，有景必应摄影大赛”/谭久德)](https://bing.ee123.net/img/cn/fhd/2010/10/25.jpg) 
+
+2010-10-24 | [澳大利亚巴罗莎谷的葡萄园 (© Milton Wordley/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/24.jpg) 
+
+2010-10-23 | [埃及红海海域的海龙 (© Wolfgang Poelzer/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/23.jpg) 
+
+2010-10-22 | [日本关东的落叶松 (© JTB Photo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/22.jpg) 
+
+2010-10-21 | [英国剑桥大学圣三一学院的图书馆 (© H&D Zielske/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/10/21.jpg) 
+
+2010-10-20 | [美国科罗拉多州圣胡安山脉 (© Phil Nelson/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/20.jpg) 
+
+2010-10-19 | [一艘大船正在通过南极冰原地区的浮冰 (© Frank Lukasseck/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/19.jpg) 
+
+2010-10-18 | [英国北爱尔兰安特里姆郡巨人之路 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/10/18.jpg) 
+
+2010-10-17 | [土耳其伊斯坦布尔地下宫殿柱子下的美杜莎石像 (© David Sutherland/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/17.jpg) 
+
+2010-10-16 | [卢旺达维龙加山脉上的小麦梯田 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/16.jpg) 
+
+2010-10-15 | [陕西省道教名山华山 (© Karl Johnaentqes/LOOK-foto/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/15.jpg) 
+
+2010-10-14 | [日本岐阜县的索道 (© JTB Photo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/14.jpg) 
+
+2010-10-13 | [美国缅因州卡姆登市的秋天 (© Imagestate/Tips Images)](https://bing.ee123.net/img/cn/fhd/2010/10/13.jpg) 
+
+2010-10-12 | [德国柏林，光之节上被装饰得五彩缤纷的勃兰登堡大门 (© Andreas Rentz/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/10/12.jpg) 
+
+2010-10-11 | [玛瑙 (© Albert Copley/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/11.jpg) 
+
+2010-10-10 | [肯尼亚马赛马拉国家保护区中可爱的动物 (© Federico Veronesi/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/10/10.jpg) 
+
+2010-10-09 | [青藏铁路风光 (© “风光无忌，有景必应摄影大赛”/王永杰)](https://bing.ee123.net/img/cn/fhd/2010/10/09.jpg) 
+
+2010-10-08 | [叙利亚帕尔米拉古城遗址 (© DEA/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/08.jpg) 
+
+2010-10-07 | [中国国家游泳中心 (© Best View Stock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/07.jpg) 
+
+2010-10-06 | [凤冠鸠 (© Mark Newman/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/06.jpg) 
+
+2010-10-05 | [新西兰南岛的库克山国家公园 (© Frans Lemmens/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/10/05.jpg) 
+
+2010-10-04 | [莫斯科红场上著名的大教堂 (© Cindy Miller Hopkins/DanitaDelimont.com)](https://bing.ee123.net/img/cn/fhd/2010/10/04.jpg) 
+
+2010-10-03 | [宇航员在宇宙空间站进行太空行走 (© StockTrek/Superstock)](https://bing.ee123.net/img/cn/fhd/2010/10/03.jpg) 
+
+2010-10-02 | [红珊瑚群中的海马 (© Douwma Georgette/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/10/02.jpg) 
+
+2010-10-01 | [阿根廷菲茨罗伊山下的德尔瀑布 (© Momatiuk - Eastcott/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/10/01.jpg) 
+
+2010-09-30 | [北京故宫紫禁城 (© Chen Hanquan/iStock Exclusive/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/09/30.jpg) 
+
+2010-09-29 | [江南水乡鲁镇 (© Best View Stock/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/09/29.jpg) 
+
+2010-09-28 | [西安大雁塔 (© Bruno Barbier/Robert Harding Travel/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/28.jpg) 
+
+2010-09-27 | [中国咸阳出土的西汉兵马俑 (© Shigeki Tanaka/Oriental Touch/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/09/27.jpg) 
+
+2010-09-26 | [河南洛阳的古代建筑 (© Best View Stock/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/09/26.jpg) 
+
+2010-09-25 | [电子显微镜下的青霉菌 (© Visuals Unlimited/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/09/25.jpg) 
+
+2010-09-24 | [麒麟座中的狐狸皮星云 (© Stocktrek Images/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/09/24.jpg) 
+
+2010-09-23 | [厄瓜多尔的可乐瀑布 (© Kevin Schafer/CORBIS)](https://bing.ee123.net/img/cn/fhd/2010/09/23.jpg) 
+
+2010-09-22 | [中国贵州的梯田 (© View Stock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/22.jpg) 
+
+2010-09-21 | [仰望天空的兔子 (© Swell Media/Uppercut Images RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/21.jpg) 
+
+2010-09-20 | [加拿大邱吉尔河流域的北极熊 (© Ward Kennan/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/20.jpg) 
+
+2010-09-19 | [格陵兰岛伊卢利萨特冰川峡湾附近的小镇 (© Frank Krahmer/Masterfile)](https://bing.ee123.net/img/cn/fhd/2010/09/19.jpg) 
+
+2010-09-18 | [四川九寨沟的芦苇海 (© “风光无忌，有景必应摄影大赛”/尹兰)](https://bing.ee123.net/img/cn/fhd/2010/09/18.jpg) 
+
+2010-09-17 | [美国怀俄明州黄石国家公园中的猛犸温泉 (© Kevin Mullins)](https://bing.ee123.net/img/cn/fhd/2010/09/17.jpg) 
+
+2010-09-16 | [加州海岸森林中的海兔 (© Mirlo Zanni/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/16.jpg) 
+
+2010-09-15 | [著名的独立天使纪念碑耸立在墨西哥城广场中央 (© Walter Bibikow/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/15.jpg) 
+
+2010-09-14 | [福建省永定的客家土楼 (© Christian Kober/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/09/14.jpg) 
+
+2010-09-13 | [哥斯达黎加的紫罗兰蜂鸟 (© Paul Souders/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/09/13.jpg) 
+
+2010-09-12 | [美国俄勒冈州波特兰的日本花园 (© Craig Tuttle/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/09/12.jpg) 
+
+2010-09-11 | [加拿大艾伯塔的洛矶山冰河国家公园 (© Steve Vidler/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/11.jpg) 
+
+2010-09-10 | [法国普罗旺斯的古镇昂特沃 (© Rod Edwards/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/09/10.jpg) 
+
+2010-09-09 | [教室中的黑板和粉笔 (© Raymond Forbes/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/09.jpg) 
+
+2010-09-08 | [观光船正穿过希腊的科林斯运河 (© Mark Hannaford/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/08.jpg) 
+
+2010-09-07 | [沾着露水的日本黑松苗 (© Amana Productions/Amanaimages/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/07.jpg) 
+
+2010-09-06 | [马来西亚吉隆坡黑风洞的印度教寺庙 (© Stuart Westmorland/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/09/06.jpg) 
+
+2010-09-05 | [图瓦卢的首都富纳富提岛 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/09/05.jpg) 
+
+2010-09-04 | [加拿大班夫国家公园中的鼠兔 (© Don Johnston/All Canada Photos/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/09/04.jpg) 
+
+2010-09-03 | [阿拉斯加的小猪赛跑 (© Norbert von der Groeben/The Image Works)](https://bing.ee123.net/img/cn/fhd/2010/09/03.jpg) 
+
+2010-09-02 | [张着大嘴“做鬼脸”的小狮子 (© Paul Souder/Digital Vision/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/09/02.jpg) 
+
+2010-09-01 | [泡温泉的日本猕猴昏昏欲睡 (© Radius Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/09/01.jpg) 
+
+2010-08-31 | [可爱的宠物狗在沙滩上玩耍 (© Martin Bydalek/Uppercut Images RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/31.jpg) 
+
+2010-08-30 | [本月世博之最：最不堪重负的展馆墨西哥馆 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/30.jpg) 
+
+2010-08-29 | [湖南武陵源张家界国家公园 (© TAO Images Limited/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/29.jpg) 
+
+2010-08-28 | [澳大利亚墨尔本的韦伯桥 (© Doug Byrnes/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/08/28.jpg) 
+
+2010-08-27 | [美国亚拉巴马州杰克逊县的永不沉没洞穴 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/08/27.jpg) 
+
+2010-08-26 | [到英国布莱顿游历皇家行宫 (© Steve Day/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/26.jpg) 
+
+2010-08-25 | [日本京都茶馆的艺妓 (© Sankei/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/08/25.jpg) 
+
+2010-08-24 | [马其顿的德巴尔镇风光 (© Blagoja Jankoski/Flickr/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/08/24.jpg) 
+
+2010-08-23 | [潜水员在洪都拉斯的罗阿坦岛潜水 (© Norbert Wu/Science Faction/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/08/23.jpg) 
+
+2010-08-22 | [二十四节气中的处暑 (© sodapix/F1Online RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/22.jpg) 
+
+2010-08-21 | [丝绸之路上在吉尔吉斯斯坦境内的石头客栈 (© Doug Meikle/Ticket/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/21.jpg) 
+
+2010-08-20 | [位于德国德累斯顿的茨温格宫 (© Miles Ertman/Masterfile)](https://bing.ee123.net/img/cn/fhd/2010/08/20.jpg) 
+
+2010-08-19 | [纳米比亚的骷髅海岸 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/08/19.jpg) 
+
+2010-08-18 | [美国加州海峡群岛国家公园中的巨型海带 (© Ralph A. Clevenger/CORBIS)](https://bing.ee123.net/img/cn/fhd/2010/08/18.jpg) 
+
+2010-08-17 | [法国阿维尼翁的圣贝内泽桥和教皇宫 (© Travelpix Ltd./Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/08/17.jpg) 
+
+2010-08-16 | [英国威尔特郡的巨石阵 (© Peter Arkell/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/16.jpg) 
+
+2010-08-15 | [澳大利亚的“情侣”海豹 (© Shoot/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/15.jpg) 
+
+2010-08-14 | [葡萄牙里斯本的哲罗姆派修道院 (© Nachos Calonge/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/14.jpg) 
+
+2010-08-13 | [加拿大新不伦瑞克省的小镇 (© Renault Philippe/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/13.jpg) 
+
+2010-08-12 | [美国俄勒冈著名的草垛礁石 (© Wei Zheng)](https://bing.ee123.net/img/cn/fhd/2010/08/12.jpg) 
+
+2010-08-11 | [澳大利亚威尔士南部的马群 (© Renee Claire Schneide/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/08/11.jpg) 
+
+2010-08-10 | [巴厘岛的稻田小景 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/08/10.jpg) 
+
+2010-08-09 | [美国国家航空和航天博物馆中展出的飞机 (© David Sailors/CORBIS)](https://bing.ee123.net/img/cn/fhd/2010/08/09.jpg) 
+
+2010-08-08 | [甘肃敦煌的月牙泉 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/08.jpg) 
+
+2010-08-07 | [英国威尔特郡附近的树篱迷宫 (© Jason Hawkes/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/08/07.jpg) 
+
+2010-08-06 | [秋色满溢的德国巴登符腾堡葡萄园 (© Martin Ruegner/The Image Bank/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/08/06.jpg) 
+
+2010-08-05 | [纳赛尔湖边上的埃及神庙 (© Aldo Pavan/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/08/05.jpg) 
+
+2010-08-04 | [洪都拉斯海域附近的蓝钟海鞘 (© Mike Ricciardi/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/04.jpg) 
+
+2010-08-03 | [景色瑰丽的瑞士提契诺山谷 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/08/03.jpg) 
+
+2010-08-02 | [夕阳下的波兰华沙旧城区 (© Allan Baxter/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/02.jpg) 
+
+2010-08-01 | [正在捕鱼的翠鸟破水而出 (© Gisela Delpho/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/08/01.jpg) 
+
+2010-07-31 | [壮观的秦始皇兵马俑 (© GR. Richardson/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/31.jpg) 
+
+2010-07-30 | [上海世博会丹麦馆中的小美人鱼塑像 (© Qilai Shen/Bloomberg/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/07/30.jpg) 
+
+2010-07-29 | [华盛顿国际风筝节上的漂亮风筝 (© Danita Delimont/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/07/29.jpg) 
+
+2010-07-28 | [麒麟座中的v838星 (© STScI/NASA/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/28.jpg) 
+
+2010-07-27 | [波兰文艺复兴时期的建筑 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/27.jpg) 
+
+2010-07-26 | [军舰鸟 (© Yvette Cardozo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/26.jpg) 
+
+2010-07-25 | [意大利的阿马尔菲古镇 (© SIME / eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/25.jpg) 
+
+2010-07-24 | [美国好莱坞的中国大剧院 (© Jean-Pierre Lescourret/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/24.jpg) 
+
+2010-07-23 | [秘鲁中南部的马丘比丘古城遗迹 (© Bob Krist/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/23.jpg) 
+
+2010-07-22 | [希腊海岛的沉船滩 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/22.jpg) 
+
+2010-07-21 | [美国西雅图的夜景 (© Alex Bartel/Superstock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/21.jpg) 
+
+2010-07-20 | [捷克布拉格的查理大桥 (© Brian Lawrence/Imagestate/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/20.jpg) 
+
+2010-07-19 | [夕阳下的天鹅 (© Michael Breuer/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/19.jpg) 
+
+2010-07-18 | [庄园前的林荫小道 (© Alois Weber/F1 Online/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/18.jpg) 
+
+2010-07-17 | [风景迷人的法属西印度群岛：瓜德罗普 (© Walter Bibikow/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/17.jpg) 
+
+2010-07-16 | [波多黎各海边的灯塔 (© Michele Falzone/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/07/16.jpg) 
+
+2010-07-15 | [法国凡尔赛宫的皇家礼堂 (© Bertrand Rieger/Hemis/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/15.jpg) 
+
+2010-07-14 | [墨西哥湾壮观的的海豚队伍 (© Specialist Stock/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/14.jpg) 
+
+2010-07-13 | [太阳日冕 (© Michael Benson/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/13.jpg) 
+
+2010-07-12 | [日本宫岛的严岛神社 (© JTB Photo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/12.jpg) 
+
+2010-07-11 | [希腊德尔福的雅典娜神庙 (© Peter Adams/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/11.jpg) 
+
+2010-07-10 | [世界上美女最多的国家之一：泰国 (© Jay Sturdevant/danitadelimont)](https://bing.ee123.net/img/cn/fhd/2010/07/10.jpg) 
+
+2010-07-09 | [世界上美女最多的国家之一：印度 (© Vladpans/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/09.jpg) 
+
+2010-07-08 | [世界上美女最多的国家之一：土耳其 (© Kordcom Kordcom/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/07/08.jpg) 
+
+2010-07-07 | [世界上美女最多的国家之一：巴西 (© David Uribe Photography/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/07.jpg) 
+
+2010-07-06 | [阿根廷的贝利托莫雷诺冰川，今天是小暑 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/07/06.jpg) 
+
+2010-07-05 | [英国伦敦的皇家音乐厅 (© Juliet White/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/07/05.jpg) 
+
+2010-07-04 | [尚未长大的阿尔卑斯蝾螈 (© Solvin Zankl/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2010/07/04.jpg) 
+
+2010-07-03 | [泰国艾尤塔雅的著名景观，树根环抱佛头 (© Thom Lang/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/03.jpg) 
+
+2010-07-02 | [斯洛伐克首都的标志性建筑，阿波罗大桥 (© Rudy Sulgan/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/07/02.jpg) 
+
+2010-07-01 | [澳大利亚，行走在红色沙丘上的魔鬼蜥蜴 (© Theo Allofs/CORBIS)](https://bing.ee123.net/img/cn/fhd/2010/07/01.jpg) 
+
+2010-06-30 | [今天是七月一日党的生日 (© Christian Kober/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/30.jpg) 
+
+2010-06-29 | [本月上海世博会之最：最难一睹芳容的展馆，中国馆（东方之冠） (© Guo Changyao/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/06/29.jpg) 
+
+2010-06-28 | [新西兰南岛中奥塔哥，瓦纳卡湖边上的里彭葡萄园 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/06/28.jpg) 
+
+2010-06-27 | [德国柏林的火车站 (© Grant Faint/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/27.jpg) 
+
+2010-06-26 | [南非开普敦的桌山 (© Frans Lemmens/Photographers Choice/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/26.jpg) 
+
+2010-06-25 | [日本本州岛的松本城 (© Gavin Hellier/JAI/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/06/25.jpg) 
+
+2010-06-24 | [印尼苏拉威西岛伦贝海峡的蓝环章鱼 (© Peter Arnold Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/24.jpg) 
+
+2010-06-23 | [美国华盛顿州的雷尼尔山国家公园，雷尼尔山倒映在湖中 (© Charles A. Blakeslee/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/23.jpg) 
+
+2010-06-22 | [由粘土和稻草盖成的喀麦隆特色民居 (© Sylvain Grandadam/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/22.jpg) 
+
+2010-06-21 | [美国亚利桑那州的纪念碑山谷 (© Macduff Everton/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/21.jpg) 
+
+2010-06-20 | [今天是二十四节气中的夏至，图为澳大利亚的大堡礁 (© Yann Arthus-Bertrand/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/06/20.jpg) 
+
+2010-06-19 | [乌干达布温迪国家公园中的小猩猩和它的爸爸 (© Paul Souders/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/06/19.jpg) 
+
+2010-06-18 | [电子显微镜下的苍耳种子 (© Richard Kessel/Visuals Unlimited, Inc.)](https://bing.ee123.net/img/cn/fhd/2010/06/18.jpg) 
+
+2010-06-17 | [斯洛文尼亚建造在悬崖上的城堡 (© Jose Fuste Raga/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/17.jpg) 
+
+2010-06-16 | [冰岛如画般优美的蓝曼纳劳卡山谷 (© Gunnar Svanberg Skula/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/06/16.jpg) 
+
+2010-06-15 | [今天是端午节 (© IMAGEMORE Co, Ltd./Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/15.jpg) 
+
+2010-06-14 | [闪电被定格的瞬间 (© Chuck Doswell/Visuals Unlimited)](https://bing.ee123.net/img/cn/fhd/2010/06/14.jpg) 
+
+2010-06-13 | [大灰猫头鹰 (© Morales/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/06/13.jpg) 
+
+2010-06-12 | [葡萄牙里斯本的贝伦塔 (© GlowCam/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/06/12.jpg) 
+
+2010-06-11 | [菲律宾巴拉望省的公主港市，有趣的珊瑚岛酷似一张人脸 (© Robert Harding Images/MasterFile)](https://bing.ee123.net/img/cn/fhd/2010/06/11.jpg) 
+
+2010-06-10 | [2010年南非世界杯在今天开幕 (© 4 Eyes Photography/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/10.jpg) 
+
+2010-06-09 | [岁月的童话：阿拉丁神灯 (© Mike Kemp/Rubberball/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/09.jpg) 
+
+2010-06-08 | [岁月的童话：狮子王 (© Westend61/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/08.jpg) 
+
+2010-06-07 | [岁月的童话：丑小鸭的故事 (© Gaby Wojciech/Westend61/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/06/07.jpg) 
+
+2010-06-06 | [岁月的童话：七只乌鸦 (© Jorn Bohmer Olsen/NordicPhotos/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/06/06.jpg) 
+
+2010-06-05 | [岁月的童话：小红帽的故事 (© Ashley Cooper/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/06/05.jpg) 
+
+2010-06-04 | [俯瞰美国加利福尼亚州的金门大桥 (© George Steinmetz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/06/04.jpg) 
+
+2010-06-03 | [澳大利亚昆士兰州的降灵群岛 (© Sunset/TIPS)](https://bing.ee123.net/img/cn/fhd/2010/06/03.jpg) 
+
+2010-06-02 | [加拿大爱德华王子岛上的赤狐 (© John Sylvester/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/06/02.jpg) 
+
+2010-06-01 | [阿拉斯加道尔顿公路旁的管道 (© Michael Melford/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/06/01.jpg) 
+
+2010-05-31 | [幸福的摩天轮，今天是六一儿童节 (© Mansoor Malik)](https://bing.ee123.net/img/cn/fhd/2010/05/31.jpg) 
+
+2010-05-30 | [意大利罗马著名的斗兽场 (© Rene Mattee/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/05/30.jpg) 
+
+2010-05-29 | [亚利桑那州大峡谷国家公园 (© Michael DeYoung/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/29.jpg) 
+
+2010-05-28 | [马达加斯加喀斯特石灰岩层地质奇观 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/28.jpg) 
+
+2010-05-27 | [婆罗洲的印度眼镜猴 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/27.jpg) 
+
+2010-05-26 | [斯里兰卡渔民传统的捕鱼方式 (© Tips Italia/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/05/26.jpg) 
+
+2010-05-25 | [伯利兹海域著名的蓝洞 (© Image Source/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/25.jpg) 
+
+2010-05-24 | [坦桑尼亚恩戈罗恩戈罗火山口 (© Blaine Harrington III/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/24.jpg) 
+
+2010-05-23 | [纽约市的布鲁克林大桥 (© Gavin Hellier/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/05/23.jpg) 
+
+2010-05-22 | [南美洲苏里南共和国，海滩上刚被孵化出来的绿海龟 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/22.jpg) 
+
+2010-05-21 | [奥地利施蒂利亚州的朝圣教堂 (© plainpicture/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/21.jpg) 
+
+2010-05-20 | [二十四节气中的小满 (© Chris Cheadle/All Canada Photos)](https://bing.ee123.net/img/cn/fhd/2010/05/20.jpg) 
+
+2010-05-19 | [在肯尼亚纳库鲁湖上拍摄到的白鹈鹕鸟群 (© Werner Bollmann/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/05/19.jpg) 
+
+2010-05-18 | [英国伦敦塔特写 (© Creatas/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/05/18.jpg) 
+
+2010-05-17 | [肯尼亚马赛马拉国家保护区中，猎豹和它的幼崽们 (© DLILLC/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/17.jpg) 
+
+2010-05-16 | [天龙星座中的猫眼星云 (© STScI/NASA/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/16.jpg) 
+
+2010-05-15 | [在巴布亚新几内亚发现的新生物种，它被命名为“袋猴” (© Michele Westmorland/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/05/15.jpg) 
+
+2010-05-14 | [美国阿拉斯加沃森湖畔的“标识林” (© Don Johnston/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/05/14.jpg) 
+
+2010-05-13 | [五月之夏：“首夏犹清和，芳草亦未歇” (© Boris Roessler/epa/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/13.jpg) 
+
+2010-05-12 | [五月之夏:“草树知春不久归，百般红紫斗芳菲” -- Mike Powles/Oxford Scientific (© OSF)/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/05/12.jpg) 
+
+2010-05-11 | [五月之夏：“麦随风里熟，梅逐雨中黄” (© Darwin Wiggett/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/05/11.jpg) 
+
+2010-05-10 | [五月之夏：“岸头树子直如筠，谁遣相招住水滨” (© Anne Montfort/Photononstop/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/05/10.jpg) 
+
+2010-05-09 | [五月之夏：“松风涧水杂清音，空山如弄琴” (© Raymond Forbes/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/05/09.jpg) 
+
+2010-05-08 | [母亲节，爱要如何表达？小水獭依偎在妈妈的怀抱里 (© Steven Kazlowski/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/05/08.jpg) 
+
+2010-05-07 | [世界上最宽的瀑布，巴西的伊瓜苏瀑布 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/05/07.jpg) 
+
+2010-05-06 | [黄色的蚕茧 (© Inge Spence/Visuals Unlimited,Inc)](https://bing.ee123.net/img/cn/fhd/2010/05/06.jpg) 
+
+2010-05-05 | [挪威蜿蜒崎岖的山地公路 (© Rainer Mirau/Mauritius/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/05/05.jpg) 
+
+2010-05-04 | [二十四节气之立夏 (© Dennis Kirkland/Jaynes)](https://bing.ee123.net/img/cn/fhd/2010/05/04.jpg) 
+
+2010-05-03 | [匈牙利国家公园中的蜂虎鸟 (© ARCO/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/05/03.jpg) 
+
+2010-05-02 | [2010年上海世博会上，标新立异的世博会场馆设计 (© Philippe Lopez/AFP/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/05/02.jpg) 
+
+2010-05-01 | [上海世博园中的游人 (© Philippe Lopez/AFP/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/05/01.jpg) 
+
+2010-04-30 | [人间仙境般的都市](https://bing.ee123.net/img/cn/fhd/2010/04/30.jpg) 
+
+2010-04-29 | [晚霞下的小河](https://bing.ee123.net/img/cn/fhd/2010/04/29.jpg) 
+
+2010-04-28 | [夜幕下的上海华光璀璨 (© Panorama Stock RF/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/04/28.jpg) 
+
+2010-04-27 | [美国南银州立瀑布公园中幽静的小路 (© Craig Tuttle/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/04/27.jpg) 
+
+2010-04-26 | [美国佛罗里达州的杰弗逊纪念堂 (© Bob Krist/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/26.jpg) 
+
+2010-04-25 | [可爱的刺猬幼崽 (© Images, Agence Photographique/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/04/25.jpg) 
+
+2010-04-24 | [从外太空拍到2004年席卷巴哈马的飓风“珍妮” (© NOAA/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/24.jpg) 
+
+2010-04-23 | [纳米比亚南部小镇上的“猫鼬一家” (© Paul Souders/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/23.jpg) 
+
+2010-04-22 | [南极冰川上的企鹅 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/22.jpg) 
+
+2010-04-21 | [法国卢瓦尔河谷的舍农索水上城堡 (© Luca da Ros/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/21.jpg) 
+
+2010-04-20 | [距离地球一万光年的仙后座A，爆炸后精美绝伦的超新星 (© NASA)](https://bing.ee123.net/img/cn/fhd/2010/04/20.jpg) 
+
+2010-04-19 | [危地马拉丛林中的玛雅文明遗址 (© Keren Su/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/19.jpg) 
+
+2010-04-18 | [南美洲苏里南共和国，海滩上刚刚孵化出的绿海龟 (© Frans Lanting/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/18.jpg) 
+
+2010-04-17 | [“小荷才露尖尖角，早有蜻蜓立上头。”今天是24节气中的谷雨 (© age fotostock/Superstock)](https://bing.ee123.net/img/cn/fhd/2010/04/17.jpg) 
+
+2010-04-16 | [日本三重县的伊势湾，图为被绳索相连的“夫妻岩” (© Gavin Hellier/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/16.jpg) 
+
+2010-04-15 | [爱尔兰梅奥县阳光明媚的克莱尔郡 (© Travelpix Ltd./Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/04/15.jpg) 
+
+2010-04-14 | [在巴布亚新几内亚发现的新物种，命名为“袋貂” (© Michele Westmorland/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/04/14.jpg) 
+
+2010-04-13 | [今天是泰坦尼克号皇家邮轮殉难日 (© A Rose/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/04/13.jpg) 
+
+2010-04-12 | [波兰格但斯克城广场上的海神喷泉 (© Jon Arnold Images/Danita Delmont.com)](https://bing.ee123.net/img/cn/fhd/2010/04/12.jpg) 
+
+2010-04-11 | [智利复活节岛上神秘的摩艾石像 (© James L. Amos/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/11.jpg) 
+
+2010-04-10 | [法属波利尼西亚，土阿莫土群岛上的“法卡拉瓦”环礁 (© Sergio Pitamitz/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/04/10.jpg) 
+
+2010-04-09 | [刚刚长出新叶子的蕨类植物，它看上去生机勃勃 (© Don Johnston/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/04/09.jpg) 
+
+2010-04-08 | [在湖中泛波的，是“鸳鸯”中的“鸳”鸟 (© David Slater/DanitaDelimont.com)](https://bing.ee123.net/img/cn/fhd/2010/04/08.jpg) 
+
+2010-04-07 | [中国云南罗平的油菜花田 (© JTB Photo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/04/07.jpg) 
+
+2010-04-06 | [还有许许多多贫困地区的孩子在渴望读书，让我们为他们共同搭建一座“幸福书屋” (© 罗晓韵/重庆市花图文化传播有限责任公司)](https://bing.ee123.net/img/cn/fhd/2010/04/06.jpg) 
+
+2010-04-05 | [澳大利亚南部库伯佩迪地区的蛋白石矿 (© Chris McLennan/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/04/05.jpg) 
+
+2010-04-04 | [“清明时节雨纷纷，路上行人欲断魂。借问酒家何处有？牧童遥指杏花村。”今天是清明节 (© Ian Cumming/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/04/04.jpg) 
+
+2010-04-03 | [游艇在德国多瑙河惬意的美景中畅游 (© Bildagentur Waldhaeusl/Age Fotostock)](https://bing.ee123.net/img/cn/fhd/2010/04/03.jpg) 
+
+2010-04-02 | [不丹的传统节日里，喇嘛乐师在为当地的传统舞蹈配乐 (© Keren Su/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/04/02.jpg) 
+
+2010-04-01 | [远离孤独的自闭症，关注心理健康，让梦想化为彩虹 (© blue jean images)](https://bing.ee123.net/img/cn/fhd/2010/04/01.jpg) 
+
+2010-03-31 | [草坪上的不是真的奶牛，而是观赏奶牛，愚人节快乐 (© Carl D. Walsh/Aurora Photos)](https://bing.ee123.net/img/cn/fhd/2010/03/31.jpg) 
+
+2010-03-30 | [漂亮的圆锥形蓝环海螺 (© Steven Trainoff Ph.D./Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/03/30.jpg) 
+
+2010-03-29 | [环保没有局外人：支持本地环保、吃本地生长的农作物，是改善碳排放最有效的举措，享受环保的低碳生活 (© Sylvain Grandadam/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/03/29.jpg) 
+
+2010-03-28 | [环保没有局外人：全球气候变暖 (© Tony Ernst)](https://bing.ee123.net/img/cn/fhd/2010/03/28.jpg) 
+
+2010-03-27 | [环保没有局外人：期待今晚8：30—9：30，我们为地球关灯一小时 (© Science Photo library/NASA/NOAA/SPL)](https://bing.ee123.net/img/cn/fhd/2010/03/27.jpg) 
+
+2010-03-26 | [环保没有局外人：期待今晚8：30—9：30，我们为地球关灯一小时 (© Science Photo library/NASA/NOAA/SPL)](https://bing.ee123.net/img/cn/fhd/2010/03/26.jpg) 
+
+2010-03-25 | [环保没有局外人：利用可再生能源走持续发展道路 (© Joho Joho/Cultura RM/Photolibrary ©)](https://bing.ee123.net/img/cn/fhd/2010/03/25.jpg) 
+
+2010-03-24 | [环保没有局外人：保护濒危物种 (© Renee Lynn/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/24.jpg) 
+
+2010-03-23 | [意大利托斯卡纳的山谷 (© Fabio Muzzi/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/03/23.jpg) 
+
+2010-03-22 | [生长在澳大利亚大堡礁附近海域的脑珊瑚 (© Stuart Westmorland/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/22.jpg) 
+
+2010-03-21 | [美属处女群岛沙滩上的船 (© Reed Kaestner/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/21.jpg) 
+
+2010-03-20 | [广西龙脊梯田上晒辣椒 (© age fotostock/Superstock)](https://bing.ee123.net/img/cn/fhd/2010/03/20.jpg) 
+
+2010-03-19 | [哈勃望远镜拍摄到的M82星系 (© NASA/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/19.jpg) 
+
+2010-03-18 | [克罗地亚杜布洛尼古城 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/03/18.jpg) 
+
+2010-03-17 | [鸟瞰美国纽约曼哈顿的摩天大楼 (© David Jay Zimmerman/Corbis Edge/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/17.jpg) 
+
+2010-03-16 | [俄罗斯莫斯科街头举办热闹的圣帕特里克节游行 (© Sergei Karpukhin/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/16.jpg) 
+
+2010-03-15 | [芝加哥费尔德博物馆展出的霸王龙 (© Craig Lovell/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/03/15.jpg) 
+
+2010-03-14 | [孟加拉国街头的农贸集市 (© Abir Abdullah/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/14.jpg) 
+
+2010-03-13 | [可爱的小海豹陪你一起过白色情人节 (© Colin Monteath/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/03/13.jpg) 
+
+2010-03-12 | [巴西圣保罗的奥利维尔大桥 (© Andre Sieber)](https://bing.ee123.net/img/cn/fhd/2010/03/12.jpg) 
+
+2010-03-11 | [奥地利瓦腾斯的施华洛世奇水晶世界博物馆“绿意正浓” (© Riccardo Spila/Grand/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/03/11.jpg) 
+
+2010-03-10 | [黄昏中寂静的美国犹他州盐湖城 (© Great Salt Lake Landscapes & More/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/03/10.jpg) 
+
+2010-03-09 | [法国巴黎圣母院屋顶上的夜行神龙雕像 (© David Barnes/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/03/09.jpg) 
+
+2010-03-08 | [墨西哥米却肯州正在捕鱼的渔民 (© Macduff Everton/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/03/08.jpg) 
+
+2010-03-07 | [三月八日国际劳动妇女节：祝天下女人节日快乐 (© HG, Rossi/Cusp/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/03/07.jpg) 
+
+2010-03-06 | [加拿大努纳武特地区的一角鲸鱼群 (© Minden Pictures/Masterfile)](https://bing.ee123.net/img/cn/fhd/2010/03/06.jpg) 
+
+2010-03-05 | [以清新幽静闻名的英格兰坎布里亚郡湖区 (© SIME/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/03/05.jpg) 
+
+2010-03-04 | [西班牙风格的哥伦比亚卡塔赫纳街景 (© PhotoLatino/eStock Photo)](https://bing.ee123.net/img/cn/fhd/2010/03/04.jpg) 
+
+2010-03-03 | [南太平洋的波拉波拉岛 (© Corbis/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/03/03.jpg) 
+
+2010-03-02 | [在撒哈拉沙漠中长途跋涉的骆驼 (© SUETONE Emilio/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/03/02.jpg) 
+
+2010-03-01 | [北京时间2月28日上午结束的有舵雪橇男子四人赛，拉脱维亚一队向观众挥手致意 (© Richard Heathcote/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/03/01.jpg) 
+
+2010-02-28 | [北京时间2月27日上午结束的单板滑雪女子平行大回转比赛中，斯洛文尼亚选手 Glorija Kotnik 竞技该项目 (© Jamie Squire/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/28.jpg) 
+
+2010-02-27 | [北京时间2月26日上午决出的花样滑冰女子自由舞比赛中，韩国选手金妍儿表现出色，并最终摘得金牌 (© Jamie Squire/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/27.jpg) 
+
+2010-02-26 | [北京时间2月25日上午，在刚刚结束的短道速滑女子3000米接力赛中，短道速滑队为中国又添一金，图为比赛中韩国选手李恩星紧追中国选手张会 – Vincenzo Pinto/AFP/Getty Images ? (©Jack Milchanowski/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/26.jpg) 
+
+2010-02-25 | [北京时间2月23日，在加拿大温哥华体育场中举行的，花样滑冰女子单人滑短节目比赛中，美籍日裔选手长洲未来表演的难度动作 (© Matthew Stockman/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/25.jpg) 
+
+2010-02-24 | [北京时间2月23日上午刚刚结束的花样滑冰冰舞自由舞比赛中，来自英国的 Sinead Kerr 和 John Kerr 表演难度动作 (© Matthew Stockman/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/24.jpg) 
+
+2010-02-23 | [2月22日凌晨4时45分，在加拿大温哥华赛普拉斯山滑雪场举行的自由式滑雪障碍争先赛1/4决赛中，瑞士的 Richard Spalinger 和奥地利的 Thomas Zangerl 二人紧追不舍。 (© Streeter Lecka/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/23.jpg) 
+
+2010-02-22 | [北京时间2月21日凌晨，在加拿大温哥华惠斯勒滑雪中心举行的跳台滑雪男子大台个人赛中，波兰选手 Adam Malysz 在最后一跳后，激动的亲吻地面 (© Alexander Hassenstein/Bongarts/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/22.jpg) 
+
+2010-02-21 | [北京时间2月20日凌晨2点，惠斯勒跳台滑雪中心举行的跳台滑雪男子大台资格赛，哈萨克斯坦选手 Nikolay Karpenko 腾空而起 (© Al Bello/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/21.jpg) 
+
+2010-02-20 | [老北京春节习俗：地坛公园举办的春节庙会 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/20.jpg) 
+
+2010-02-19 | [外国人过中国春节：伦敦街头的漂亮灯笼 (© Marion Krauskopf/Panther Media/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/02/19.jpg) 
+
+2010-02-18 | [海外华侨庆春节：加拿大多伦多的春节彩灯 (© Henry Georgi/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/18.jpg) 
+
+2010-02-17 | [香港春节的跨年烟火汇演 (© JTB Photo/Japan Travel Bureau/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/17.jpg) 
+
+2010-02-16 | [北方人眼中的传统春节 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/16.jpg) 
+
+2010-02-15 | [春节习俗：合家团圆吃饺子 (© Corbis/Superstock)](https://bing.ee123.net/img/cn/fhd/2010/02/15.jpg) 
+
+2010-02-14 | [海南三亚一处温馨浪漫的爱之沙滩 (© 林婷婷/武汉)](https://bing.ee123.net/img/cn/fhd/2010/02/14.jpg) 
+
+2010-02-13 | [春节传统：吉利又喜庆的春联 (© SuperStock RF/SuperStock)](https://bing.ee123.net/img/cn/fhd/2010/02/13.jpg) 
+
+2010-02-12 | [必应祝福2010虎年春节快乐 (© Ilovephoto Design/Photodisc/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/12.jpg) 
+
+2010-02-11 | [民间剪纸艺术十二生肖中的虎 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/11.jpg) 
+
+2010-02-10 | [民间工艺品布老虎 (© Keren Su/China Span/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/10.jpg) 
+
+2010-02-09 | [印度国家公园中刚满月的老虎幼崽 (© Gavriel Jecan/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/09.jpg) 
+
+2010-02-08 | [具有”老虎气势”的台湾高雄莲花湖龙虎塔 (© Superstock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/08.jpg) 
+
+2010-02-07 | [吉林长白山森林野生动物园中的东北虎 (© Adam Wong/Redlink-Asian Photography Network/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/07.jpg) 
+
+2010-02-06 | [日本札幌雪节上的大型雪雕 (© JTB Photo/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/06.jpg) 
+
+2010-02-05 | [英国德文郡达特姆尔高原浓雾的早晨 (© David Clapp/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/05.jpg) 
+
+2010-02-04 | [瑞典的斯德哥尔摩 (© Jeremy Woodhouse/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/02/04.jpg) 
+
+2010-02-03 | [太空中的木卫一 (© Michael Benson/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/02/03.jpg) 
+
+2010-02-02 | [在天空盘旋的秃鹫 (© John Lund/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/02/02.jpg) 
+
+2010-02-01 | [由美国宇航局的火星侦察轨道器拍摄的火星陨石坑 - - NASA ? (©NASA)](https://bing.ee123.net/img/cn/fhd/2010/02/01.jpg) 
+
+2010-01-31 | [韩国东部江原道被积雪覆盖的山庙 (© YONHAP/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/01/31.jpg) 
+
+2010-01-30 | [印度尼西亚海域中一只因求偶而变色的雄性乌贼 (© White/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/30.jpg) 
+
+2010-01-29 | [华盛顿区的美国国会图书馆 (© Michele Falzone/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/29.jpg) 
+
+2010-01-28 | [蒙大拿州从树上一跃而下的美洲狮 (© Daniel J. Cox/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/01/28.jpg) 
+
+2010-01-27 | [冬季里的滑雪爱好者 (© Brian Stevenson/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/01/27.jpg) 
+
+2010-01-26 | [正在空中飞翔的玫瑰色琵鹭 (© Jack Milchanowski/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/26.jpg) 
+
+2010-01-25 | [叙利亚中南部的巴尔米拉古城 (© Panoramic Images/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/01/25.jpg) 
+
+2010-01-24 | [夜色中的法国巴黎街巷 (© Peet Simard/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/01/24.jpg) 
+
+2010-01-23 | [西班牙的维京海盗节 (© Bjorn Svensson/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/01/23.jpg) 
+
+2010-01-22 | [携程&MSN十年旅行摄影大赛作品精选：内蒙古额济纳旗的胡杨林 (© 门小燕/北京)](https://bing.ee123.net/img/cn/fhd/2010/01/22.jpg) 
+
+2010-01-21 | [携程&MSN十年旅行摄影大赛作品精选：新疆塔克拉玛干沙漠 (© 潘若巍/上海)](https://bing.ee123.net/img/cn/fhd/2010/01/21.jpg) 
+
+2010-01-20 | [携程&MSN十年旅行摄影大赛作品精选：内蒙古呼伦贝尔草原 (© 李长山/北京)](https://bing.ee123.net/img/cn/fhd/2010/01/20.jpg) 
+
+2010-01-19 | [携程&MSN十年旅行摄影大赛作品精选：云南丽江的乡村太安 (© 李廷刚/四川成都)](https://bing.ee123.net/img/cn/fhd/2010/01/19.jpg) 
+
+2010-01-18 | [携程&MSN十年旅行摄影大赛作品精选：新疆白哈巴村的清晨 (© 张可/江苏常州)](https://bing.ee123.net/img/cn/fhd/2010/01/18.jpg) 
+
+2010-01-17 | [无处不浪漫：时尚浪漫的澳大利亚悉尼海湾 (© Walter Bibikow/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/01/17.jpg) 
+
+2010-01-16 | [无处不浪漫：浪漫的黎巴嫩贝鲁特 (© Paul Thuysbaert/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/16.jpg) 
+
+2010-01-15 | [无处不浪漫：皇室的浪漫情怀飘荡在卢森堡上空 (© John B. MuellerGetty Images)](https://bing.ee123.net/img/cn/fhd/2010/01/15.jpg) 
+
+2010-01-14 | [无处不浪漫：神秘的新西兰峡湾国家公园 – Tony Ernst ? (© Tony Ernst)](https://bing.ee123.net/img/cn/fhd/2010/01/14.jpg) 
+
+2010-01-13 | [无处不浪漫：炽热的尼加拉瓜海岸 (© Jay Dickman/CORBIS)](https://bing.ee123.net/img/cn/fhd/2010/01/13.jpg) 
+
+2010-01-12 | [无处不浪漫：如邻家女孩般亲切的瑞典老城 (© Jaynes Gallery)](https://bing.ee123.net/img/cn/fhd/2010/01/12.jpg) 
+
+2010-01-11 | [无处不浪漫：云淡风轻的华盛顿州立公园 (© Michael Sedam/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/11.jpg) 
+
+2010-01-10 | [无处不浪漫：印度泰姬陵因爱情而永恒浪漫 (© Bob Krist/Corbis)](https://bing.ee123.net/img/cn/fhd/2010/01/10.jpg) 
+
+2010-01-09 | [东北冰雪之旅：大连市中山广场灯火通明 (© Jerry Driendl/Stone +/Getty Images)](https://bing.ee123.net/img/cn/fhd/2010/01/09.jpg) 
+
+2010-01-08 | [东北冰雪之旅：冬阳下的东北农家院 (© TAO Images Limited/Tao Images/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/08.jpg) 
+
+2010-01-07 | [东北冰雪之旅：东北最高峰吉林长白山 (© China Tourism Press/Riser)](https://bing.ee123.net/img/cn/fhd/2010/01/07.jpg) 
+
+2010-01-06 | [东北冰雪之旅：银装素裹的吉林雾凇 (© View Stock RF/age fotostock)](https://bing.ee123.net/img/cn/fhd/2010/01/06.jpg) 
+
+2010-01-05 | [东北冰雪之旅：哈尔滨夜色中的圣索菲亚大教堂 (© Best View Stock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/05.jpg) 
+
+2010-01-04 | [东北冰雪之旅：一年一度的哈尔滨冰雪节今天盛大开幕 (© Christian Kober/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/04.jpg) 
+
+2010-01-03 | [科罗拉多州落基山国家公园中的长尾黄鼬 (© Joe McDonald/CORBIS)](https://bing.ee123.net/img/cn/fhd/2010/01/03.jpg) 
+
+2010-01-02 | [从“新”开始：祝福中的新人踏上新的人生旅程 (© Paul D Van Hoy II/age fotostock/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/02.jpg) 
+
+2010-01-01 | [从“新”开始：新生的企鹅宝宝寄托新的希望 (© Thorsten Milse/Robert Harding Travel/Photolibrary)](https://bing.ee123.net/img/cn/fhd/2010/01/01.jpg) 
+
